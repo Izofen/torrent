@@ -1,3 +1,493 @@
+###  Публикация: 723160   (1001526) от 12.01.2020
+
+Dmitriy Redko (AstroPilot, Manifestor, Yoga Mantra) - Discography 85 Releases (2007-2019) [FLAC|Lossless|tracks+.cue, tracks]<Psybient, Ambient, Downtempo, Progressive Trance, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manifestor & Trylon - Absurd (06:47)
+ 02. Manifestor & Trylon - Dark Hour (07:22)
+ 03. Manifestor & Trylon - Escape (07:22)
+ 04. Manifestor - Beyond Illusions (Static Illusion Remix) (09:23)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psy-Trance/Progressive TranceПродолжительность: 94:14:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AF9FD68FFB68BE402859C83B8CB05175107B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488934   (1001456) от 13.08.2021
+
+Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Breaks>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Intimidated You Colourful Sound (02:41)
+ 02. Nice Dreams (04:07)
+ 03. Sea Salt (04:18)
+ 04. Naramata (04:04)(   Читать дальше...   )Жанр: Electro, IDM, Acid, BreaksПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488613   (1001455) от 13.08.2021
+
+VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Intromotion (1:35)
+02. La Estación Del Mar - Un Bano En El Lago (4:45)
+03. Slow World - Deep Inside (Original Mix) (5:21)
+04. Der Waldläufer - Yanaras Light (Original Mix) (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488968   (1001453) от 13.08.2021
+
+Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vacant Lot (02:52)
+ 02. Scrap Sailing (02:14)
+ 03. Character Creation (00:31)
+ 04. Body For Barter (00:37)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2255D408F08BC7F4828D0326C67FF6BFCA79C70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488939   (1001425) от 13.08.2021
+
+Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <Tribal, Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entelodon (03:58)
+ 02. Sivatherium (06:36)
+ 03. Deinotherium (06:10)
+ 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D118F05BCCC219730154303CE5C79193BEF9FCC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013364   (1001406) от 13.08.2021
+
+Airplanemusic | Diego H. Nascimento - Discography 25 Releases (2011-2021) Midia84 [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Ambient, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiometric (Full Line Mix) (06:53)
+ 02. Galaxie Sound (09:53)
+ 03. Union Of Soul (09:15)
+ 04. Tycho #4 (Airplane Reconstructor Mix) (06:12)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Techno, Ambient, Glitch, Experimental •Продолжительность: 26:39:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1267D691B7C58D07B6D72395816762A27D7ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321632   (1001399) от 13.08.2021
+
+Clocolan - Discography 9 Releases (2016-2021) BauSatz [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humantime (04:14)Тип издания: WEBЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:03:17 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7702CA2FC944189B1E3FBF3617F552D09EF108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046940   (1001396) от 13.08.2021
+
+Nebulo - Discography 12 Releases (2006-2019) Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Experimental, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YYY (03:24)
+ 02. 488BPM (03:24)
+ 03. BND ROSE (03:22)
+ 04. ASCII SNAKE (05:11)Тип издания: CD, WebЖанр: IDM, Ambient, Industrial, Techno, Experimental, Glitch •Продолжительность: 08:10:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CFF51247CAC0785E03D98B3C2721279A5FCCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125104   (1001359) от 13.08.2021
+
+Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
+ 02. Bing And Ruth - The How Of It Sped (05:48)
+ 03. Nils Frahm - For (Max Cooper Remix) (07:06)
+ 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488729   (1001191) от 14.08.2021
+
+VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - It Gets Better
+02. Steve Angello - Teasing Mr. Charlie w/Jay Robinson - Free Again (Axwell Cut)
+03. Buy Now - For Sale (Swedish House Mafia Remode)
+04. Steve Angello & Sebastian Ingrosso - 555(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352559   (1001090) от 14.01.2020
+
+Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Ambient, Dark Jazz, Future Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (15:02)
+02. II (12:11)
+03. III (17:45)
+(   Читать дальше...   )Производство: Svart Lava - LAVA002Жанр: Experimental, Dark Ambient, Dark Jazz, Future JazzПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6DEC51B2DE26B37B279B8180D4F05C71DAF772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352350   (1001086) от 14.01.2020
+
+Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eintagsfliege (07:08)
+02. Zweibrütiger Scheckenfalter (07:13)
+03. Dreizehenspecht (03:34)
+04. Vierfleck (06:12)(   Читать дальше...   )Жанр: Techno, Tech House, MinimalПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352571   (1001056) от 14.01.2020
+
+Love Theme - Love Theme (2017) Alter [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Drone>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Exile (9:03)
+02. Late Crossing (3:44)
+03. Docklands / Yaumatei / Plum Garden (8:53)
+04. She's Here (5:19)(   Читать дальше...   )Производство: Alter - ALT34Жанр: Dark Ambient, Dark Jazz, Drone, ElectronicПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46550176F12B5EA636B95348866039741CEC8EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352594   (1001051) от 14.01.2020
+
+Aidan Baker & Gareth Davis - Invisible Cities (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Drone, Dark Ambient, Dark Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memory (11:42)
+02. Sky (11:40)
+03. Signs (7:22)
+04. Desire (15:30)Производство: Karlrecords - KR045Жанр: Experimental, Drone, Dark Ambient, Dark JazzПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACE3CCA55D929E380056EDA8A50EB012C3A0BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352888   (1000890) от 15.01.2020
+
+VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House, Neo Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Progressive House, Neo TranceПродолжительность: 03:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3D71D1C10E0CCC7E40C0B39848C75D08F36B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547986   (1000715) от 15.01.2020
+
+Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, Euro House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brooklyn Bounce (рус. «Бруклин Баунс») - немецкая музыкальная группа, работающая в стиле Hard House, Euro Trance. В начале своего творческого пути была одной из самых востребованных и популярных танцевальных команд. За двенадцать лет было продано 2 500 000[1] CD с синглами группы. Одно из самых известных произведений Brooklyn Bounce «Bass, Beats and Melody» получило (   Читать дальше...   )Жанр: Euro Trance, Hands-up, Techno, Хард-хаус, Progressive HouseПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D797157C55F5500617F2A4F2964721EBDD57EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597720   (999964) от 04.01.2013
+
+VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]<Dance, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modjo - Lady (Hear Me Tonight) [03:40]
+02. Sonique - It feels So Good [03:48]
+03. Junior Senior - Move Your Feet [02:59]
+04. Moloko - Sing It Back (Boris Musical Mix) [04:37]
+05. Stonebridge - Put 'Em High [03:25]
+06. Basement Jaxx - Rendez Vu [03:41]
+07. Wamdue Project - King Of My Castle [03:26]
+08. Bob Marley Vs Funkstar Deluxe - Sun Is Shining [03:53]
+09. The Cardigans - Love Fool (Tee's Club Radio Edit) [03:19]
+10. X-Press 2 Feat. David Byrne - Lazy [04:11](   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598597   (999702) от 05.01.2013
 
 PROMID - Sound Of Worship (2012) [MP3|320 кб/с]<Lounge, ChillOut>
@@ -297,552 +787,6 @@ VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602619   (997555) от 13.01.2013
-
-VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997555.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bubba – Nudenight (Original Mix) 6:04
-2. F3 – What You Need (Downtown Party Network Remix) 5:56
-3. Finnebassen – If You Only Knew (Original Mix) 6:22
-4. Finnebassen Gundelach – When It Rains (Digital Exclusive) (Original Mix)8:36
-5. Flow & Zeo Marcello V.O.R – N.Y Candy (Original Mix) 6:52
-6. Jobe – This Feeling (Original Mix) 6:19
-7. Jobe – My Life (Max Belobrov Remix) 8:04
-8. Lula Circus – Light Outside (Original Mix) 7:20
-9. Made To Move – Shaman (Cera Alba Remix) 7:56
-10. Markus Eden – With Me (Original Mix) 7:08(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601453   (997503) от 13.01.2013
-
-Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997503.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Mother Earth
-2. Sky Is The Limit (feat Donny Goines)
-3.  Sledgehammer
-4. Alchemist (feat Gino Sydal)
-5.  Dancer In The Dark
-6.  Hungry Eyes (feat Qwentalis)
-7. Sustainer
-8.  Witchcraft
-9.  Redemption
-10.  Konami Kode (feat. Donny Goines)(   Читать дальше...   )Жанр: Dubstep, Electro HouseПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603052   (997154) от 14.01.2013
-
-Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<House, Electro, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream & Shout (Dirty Main)
-02. Scream & Shout (Clean Edit)Жанр: House, Electro, PopПродолжительность: 00:08:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603621   (996472) от 17.01.2013
-
-VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laidback Luke Feat Wynter Gordon - Speak Up (Jay Style Remix) (05:41)
-02. Dj Sakin - Beverly Hills Cop (Club Mix) (05:54)
-03. Mykel Mars - Scream (Album Version) (06:59)
-04. Davie Terry - Vibe (House Kartel Reebost Remix) (07:06)
-05. Danky Cigale And Mykel Mars - Feel So High (Kevin Hills Remix) (05:54)
-06. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (03:42)
-07. Djerem, Chris Willis & Xenia - So Beautiful (Djerem Electro Edit) (03:09)
-08. Lissat & Voltaxx - Like Dis Like Dat (Chris Kaeser Remix) (08:05)
-09. Chris Kaeser - Montpellier Of Course (Fx & Sting B Mix) (06:05)
-10. Dj Absinth - Diva (Original) (06:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CA835113468D3B5C285DF205A0B71088B7BA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603693   (996045) от 18.01.2013
-
-Lemongrass - Discography (1998-2012) [MP3|320 кб/с]<Electronic, Downtempo, Chillout, Lounge, Ambient, Deep House, Breaks>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wawa - Taste Of Fear (Lemongrass Full Moon Mix)
-02. Kondencuotas Pienas - So Pure (Lemongrass Rmx)
-03. Jettricks Feat. Adefunke & Faye Houston - Lose You (Lemongrass Deep House Remix)
-04. Glam Sam And His Combo - The Last Days Of Disco (Lemongrass First Kiss Rmx)
-05. Michiko - Stuck On You (Lemongrass Samba De Sol Rmx)
-06. Tokyo Counterpoint - To The Sky (Lemongrass Free Bird Remix)
-07. Alexandra Hampton - Breaking Waves (Lemongrass Remix Feat. Jana Tarasenko)
-08. Luke Hampton - Jazz Music (Lemongrass Remix)
-09. Karen Gibson Roc - So I Say (Lemongrass Remix)
-10. Five Seasons - Love Apple (Lemongrass Wet Dreams Remix)(   Читать дальше...   )Жанр: Electronic, Downtempo, Chillout, Lounge, Ambient, Deep House, BreaksПродолжительность: 37:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E3206C58968C8E9F81B88F87C41961294BAF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603187   (995951) от 19.01.2013
-
-VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deepshakerz - Silbidos 013 (07:52)
-02. Deniz Koyu - Hydra (07:05)
-03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
-04. Jean Elan - What It Takes - Club Edit (03:16)
-05. DBN - Inside Out (06:15)
-06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
-07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
-08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
-09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
-10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603418   (995891) от 19.01.2013
-
-Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Silence Never Heard (2:53)
-02. - Lost In You (feat. Janai) (5:15)
-03. - Stick By This (5:51)
-04. - Plastique (4:12)
-05. - I'm Running (feat. Soloman) (5:44)
-06. - Falling (7:00)
-07. - Grain (4:06)
-08. - Lost Highway (6:47)
-09. - Mr Miyagi (4:51)
-10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603133   (995874) от 19.01.2013
-
-VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fresh - Gold Dust (Shy FX Re-Edit) (03:02)
-02. Wiley feat. Skepta - Can You Hear Me (Ayayaya) (03:52)
-03. Example - Changed the Way You Kiss Me (Radio Edit) (03:15)
-04. Carly Rae Jepsen - Call Me Maybe (Almighty Mix Radio Edit) (04:14)
-05. Jessie J feat. David Guetta - LaserLight (03:32)
-06. Nicki Minaj - Starships (Edited Version) (03:30)
-07. Lady Gaga feat. Colby O'Donis - Just Dance (04:02)
-08. LMFAO feat. Lauren Bennett & GoonRock - Party Rock Anthem (Radio Edit) (03:52)
-09. Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Radio Edit) (03:21)
-10. Pitbull feat. Ne-Yo - Give Me Everything (03:48)(   Читать дальше...   )Жанр: Club, House, ProgressiveПродолжительность: 04:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605635   (995662) от 20.01.2013
-
-David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Mountains 54 (Original Mix) (8:43)
-02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606654   (995263) от 21.01.2013
-
-Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une Nouvelle Humanite (The Rurals Remix) 7:54
-02. Une Nouvelle Humanite (Andy Compton's PENG Mix) 7:08
-03. Une Nouvelle Humanite (Da Capo's Touch) 7:29Жанр: Deep HouseПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605538   (995174) от 21.01.2013
-
-VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbara Mendes - Help
-02. Marcela Mangabeira - Love Story
-03. Eduardo Braga - Smooth Operator
-04. Maria Augusta - Penny Lane
-05. Nicole - Dynamite
-06. Cecilia Dale - Baubles, Bangles and Beads
-07. Monique Kessous - She Loves You
-08. Bob Tostes - The Lady Is a Tramp
-09. Daniela Procopio - Do You Really Want to Hurt Me?
-10. Tahta Menezes - I Should Be So Lucky(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D41B776E0E3501DF5C9AA1C0680F580E879328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607302   (994935) от 22.01.2013
-
-VA - Bigroom Dance & House (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - White Beach - Original
-02. Calabria Vs Rob Estell - Space - Club Mix
-03. Benny White - Simplicity
-04. Bernd Hall & Marco Zanfardino Feat. Gosia - Summer Music - Adam M & Luca Etb Remix
-05. B Van E - I Need You - Original Mix
-06. Christopher Felix Feat. Pamela - Enjoy Your Life - Like Never Before - Primacy Remix
-07. Davie Terry - Vibe - Original Mix
-08. Nothing But The Beat - Killing Me - Mykel Mars Remix
-09. House Kartel - Moldova - 2012 Club Mix
-10. Luis Herrero - 16 Years - Original Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49207ADCCFB5FA395D37F4B0D82CDDFDFD032F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605995   (994931) от 22.01.2013
-
-Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoreline (Original Mix) (7:04)
-02. Tucano (Original Mix) (7:15)Жанр: Progressive HouseПродолжительность: 00:14:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430502   (994198) от 01.01.2012
-
-KMFDM - Greatest Shit (2CD) (2010) [MP3|320 kbps]<Industrial Rock/Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994198.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01 D.I.Y (Edit) 4:19
-02 Tohuvabohu (Edit) 4:43
-03 Son Of A Gun (Overhauled Mix Edit) 3:33
-04 Juke Joint Jezebel (Single Mix) 4:09
-05 Naïve (Edit) 3:44
-06 Sucks (12” Mix Edit) 3:57
-07 Hau Ruck (Edit) 3:25
-08 More & Faster (12” Mix) 3:31
-09 Money (Radio Mix) 3:50(   Читать дальше...   )2010Жанр: Industrial Rock/MetalПродолжительность: 02:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523CD7001B2243E96F0F1087798CFC6B1498095D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352977   (993283) от 16.01.2020
-
-Morcheeba Productions - Cool Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Downtempo, Balearic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Strong
-02. Who’s Losin’ Out?
-03. Dreamer
-04. Interconnection(   Читать дальше...   )Жанр: Trip-Hop, Downtempo, BalearicПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F914A86DF157A5FA30B1ECA68F6657910CF7F270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353259   (992681) от 17.01.2020
-
-The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House, Synthwave, Dreamwave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcade Dreams (Timecop1983 Remix) (5:34)
- 02. Crystalline (Dan Sieg Remix) (6:26)
- 03. Kids (PROFF Remix) (6:10)
- 04. Nocturnal (Nox Vahn Remix) (8:14)(   Читать дальше...   )Жанр: Deep House, Progressive House, Synthwave, DreamwaveПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE840FFF2C7CEA3848C1AB488B4D1A858F7D2D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353317   (992637) от 17.01.2020
-
-VA - Warm Yourself Lounge (Chillout Your Mind) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clelia Felix - Ocean Breeze (Original Mix) 02:58
-02. The Soul Crusaders - High Hopes (Original Mix) 04:42
-03. Pier-O - Angelfish (Original Mix) 06:24
-04. Chillson - Giant Steps (Original Mix) (feat. Marc Hartman) 03:50(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34C7F6C4EE6E906F5225585E1F721E1AA386F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

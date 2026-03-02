@@ -1,3 +1,32 @@
+###  Публикация: 1683944   (127858) от 15.12.2023
+
+VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127858.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Twisted Sister - Heavy Metal Christmas (The Twelve Days of Christmas) [05:15]
+002. L.A. Guns - Merry Xmas Everybody [04:11]
+003. Cheap Trick - Christmas Christmas [02:17]
+004. Alice Cooper, John 5, Billy Sheehan, Vinny Appice - Santa Claws Is Coming To Town [04:20](   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F63A21FAD2A6F5E2E4A20A434AC42A663F6DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685753   (127070) от 19.12.2023
 
 Dr. Arthur Krause - Best of (2003-2016) Compilation Album [MP3|320 Kbps] <Goth Rock, Darkwave>
@@ -713,41 +742,6 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490520   (102529) от 01.05.2012
-
-Чиж & Co - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 — Автобус
- 02 — В старинном городе О.
- 03 — Вечная молодость
- 04 — Мышка (Колыбельная хиппи)
- 05 — Русская (Хочу чаю)
- 06 — Глазами и душой
- 07 — Houchie Coochie Man
- 08 — Она не вышла замуж...
- 09 — Такие дела
- 10 — Глупенькая песня (Ассоль)(   Читать дальше...   )2012Жанр: RockПродолжительность: 04:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
 ```
 
 https://mybot314.ru/tekegram_catalog/

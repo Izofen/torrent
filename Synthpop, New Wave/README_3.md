@@ -1,3 +1,32 @@
+###  Публикация: 1246468   (751604) от 08.02.2019
+
+Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/с] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально группа называлась "Neon Romance", и была основана в начале 2012 года. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя время к группе присоединяется Марика Томчик, которая становится официальной вокалисткой. В течение некоторого времени ребята трудились над своим дебютником "Midnight (   Читать дальше...   )Neon Romance - 2014 - Midnight Stories
+Sexy Suicide - 2016 - Intruder
+Sexy Suicide - 2018 - Iron City (Love Song) (Single)
+Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжительность: 01:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216608   (749214) от 31.03.2018
 
 Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave, Synthwave>
@@ -716,35 +745,6 @@ Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77DB4BEDFEB10C6A82BFD07BCA794BFA1B4E15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220375   (704320) от 19.04.2018
-
-VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Synthpop, Italo-Disco, Electropop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
-02. Italoconnection - Night City (12" Radio Edit) (3:42)
-03. Johan Baeckstrom - Cry Softly (Time Is Mourning) (4:20)
-04. Rational Youth - Flash In The Night (3:44)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9845C96D8A0C90DB86FC80FAA063A958ABED6E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

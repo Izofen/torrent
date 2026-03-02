@@ -1,3 +1,119 @@
+###  Публикация: 1444417   (1034678) от 01.02.2021
+
+VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Police - Every Breath You Take - Remastered 2003 (4:14)
+02. Lady A - Need You Now (3:56)
+03. James Morrison - You Give Me Something (3:32)
+04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444405   (1034668) от 01.02.2021
+
+Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Tight (2:51)
+02. The Wreck of the Antoinette (3:24)
+03. Save Me (3:19)
+04. Here's a Heart (3:29)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444310   (1034653) от 01.02.2021
+
+VA - Acoustic Versions of Pop Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talisha Karrer - Hazard (03:30)
+02. Shannon & Keast - Jealous (04:32)
+03. Landa - Nothing Breaks Like a Heart (03:44)
+04. Logan York - Stay with Me (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2D8947FDDB4E485A2FEF0A3B58AE682D322DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618182   (1034298) от 10.03.2023
+
+Miley Cyrus - Endless Summer Vacation (2023) [FLAC|Lossless|WEB-DL|tracks] <pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers [00:03:20]
+02. Jaded [00:03:05]
+03. Rose Colored Lenses [00:03:43]
+04. Thousand Miles (feat. Brandi Carlile) [00:03:51](   Читать дальше...   )Жанр: popПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E62164876C0AB013CD2E3D4E5EE832FE23CC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444833   (1034206) от 03.02.2021
 
 Annie Lennox - Songs Of Mass Destruction (2007) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
@@ -629,124 +745,6 @@ Helene Segara - Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7FB9B3F85386E8C0A0A3F302000366B62128DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448467   (1030930) от 17.02.2021
-
-Tindersticks - Distractions (2021) [FLAC|Lossless|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man Alone (Can't Stop the Fadin') (11:07)
-02. I Imagine You (05:36)
-03. A Man Needs a Maid (04:42)
-04. Lady with the Braid (06:59)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FB19D37FC134F90436BB4A07230A449870691A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449366   (1029966) от 21.02.2021
-
-Ariana Grande - Positions (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. shut up
-02. 34+35
-03. motive (feat. Doja Cat)
-04. just like magic(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AC11FADF02F66E2C4D44B651E7E2893806EB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623115   (1029601) от 31.03.2023
-
-Elton John - Honky Château: 50th Anniversary (1972, 2xCD, Remastered, 2023, Rocket Entertainment) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Honky Château — пятый студийный альбом британского певца и композитора Элтона Джона, выпущенный в 1972 году. Пластинка была названа в честь французского замка XVIII века Шато д’Эрувиль, где проходила её запись. Альбом занял первое место в США, став первым серии из семи последовательных альбомов Джона, возглавлявших национальный хит-парад.
-
-В феврале 1972 года (   Читать дальше...   )CD One:
- Honky Château:
-01. Honky Cat
-02. Mellow(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84031A3513464E4DC0CE1E7304C350E1C5CEB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449924   (1029574) от 23.02.2021
-
-Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (04:05)
-02. My Favourite Game (03:35)
-03. Apologize (02:48)
-04. You Have Been Loved (04:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E5D81B5234960CF500F9AE7E1C5781ECA547C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

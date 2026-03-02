@@ -1,3 +1,206 @@
+###  Публикация: 1018705   (753810) от 21.05.2016
+
+VA - Дискотечный хит-парад №12 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимати feat. L'One - Я Хочу Тебя
+002. Стас Михайлов - Я Буду С Тобой
+003. Mozgi - Бармен
+004. НеАнгелы - Я Так Скучаю(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D787F0406FE3676D54ED95FFA6E9A2BA0EF215E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281219   (753372) от 07.02.2019
+
+VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753372.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jão - Vou Morrer Sozinho
+002. Dj Omega - Can't Wait
+003. Nicki Minaj & Murda Beatz - Fefe
+004. Four Of Diamonds - Stupid Things(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739C0CE94B8B0069B54280129282570A75AAA845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281338   (753243) от 07.02.2019
+
+Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Rock And Roll All Nite
+02 – Detroit Rock City
+03 – King Of The Night Time World
+04 – Deuce(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29AD2ACCFF6F3CF95B0C5646DF932D30FF93F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216093   (753062) от 29.03.2018
+
+VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Art Of Noise - Robinson Crusoe 3:49
+02 The Grid - Floatation (Single Version) 4:04
+03 Christian Falk feat. Jevetta Steele - Calling You 4:33
+04 William Orbit`s Strange Cargo - Million Town 5:32(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611FC21428E7B0122D261193345D4DFB2AA98530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216242   (753058) от 29.03.2018
+
+VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2fox feat. Nandi - Motion (Original Mix)
+002. 2fox feat. Nandi - Zulu Suite (Original Mix)
+003. A-Mase feat. Rave CHannel - Just Be  (Original Mix)
+004. A. Rassevich - Hate Me Tonight (QRVZH Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216075   (753056) от 29.03.2018
+
+VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR Pres.The MVI - Save Me
+02. Jenia Stan - Dimension (Original Mix)
+03. Mike Drozdov & VetLove ft. Natune - I Love You (Original Mix)
+04. Ilkan Gunuc feat. JJ - I Don't Wanna Know (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B802E22AB8A6B9C1AD8BC4FACC0C5D8FA0C4012E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216070   (752943) от 29.03.2018
+
+VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julia Samoylova - Flame Is Burning
+02. Beth Hart - Picture In A Frame
+03. The Cranberries - Why
+04. Bonnie McKee - Stars In Your Heart(   Читать дальше...   )Жанр: Pop, Ballad, Blues-RockПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AEB9C32244648232228DCFAC380A8FA1E56B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216201   (752938) от 29.03.2018
 
 VA - German Top 100 Single Charts 02.04.2018 [MP3|320 Kbps] <Pop>
@@ -543,209 +746,6 @@ VA - ЕвроХит Топ 40 Europa Plus 08.02.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A67AE8F7E4EF6EB02681868CB3D34B09FC408C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281472   (751513) от 08.02.2019
-
-VA - Сегодня на радио хиты FM Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia O'Brien - Love Myself
-02. Satin Jackets feat. Panama - Automatic
-03. Джиос - Инсомния
-04. Emarosa - Cautious(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B5295EA63133C645A3CD4A5CC34D53EECC4B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395703   (751448) от 12.07.2020
-
-VA - Шансон Музыкальный хит-парад (2020) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751448.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сергей Клушин - Мои Друзья (5:37)
-2. Владимир Ждамиров - А я несу тебе цветы (3:43)
-3. Андрей Курбатов & Лера Огонёк - Тишину Хочу (4:37)
-4. Михаил Шуфутинский - Поздняя любовь (3:58)(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEBE14705C20979F0742BBEF5CA8F57A8F8523F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523471   (751429) от 11.01.2022
-
-Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последние поцелуи
-02. Вечер в Париже
-03. Вспомни...!!!
-04. Ласковый май(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1134F9E50019D4257B6BCE2053C51A1BAB2EFCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523177   (751422) от 11.01.2022
-
-Frank Duval - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock, Electronic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Fighter Prologue
-02. Lonesome Fighter
-03. Lonesome Fighter Epilogue
-04. Mysterious Girl(   Читать дальше...   )Жанр: Rock, Pop Rock, ElectronicПродолжительность: 09:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878888100F41DFFC711D8F83EE1CEF67639636A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216314   (751361) от 30.03.2018
-
-VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Memory Of The Sea (2011 Mix) 7:35
-02. Talamanca - When The Sun Goes Down (Extended Mix) 7:15
-03. Bleedin Neutron - Steel Pillars Of Dawn (Eyal Cohen Remix) 8:12
-04. Vintage & Morelli - Aurora (Extended Mix) 7:23(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216234   (751240) от 30.03.2018
-
-VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751240.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adriatique - Ray (Original Mix)
-002. al l bo & Leerex - Fighters (Original Mix)
-003. Alex Metric &  Ten Ven - Otic (Extended Mix)
-004. Anderson Soares feat. Luiza Caspary - You Make Me High  (Soares Main Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2CEBF47A1E9F681E91C0C2E6AA894FCD141B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216273   (751226) от 30.03.2018
-
-VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7even (GR) - Have It All  (RAFO Remix)
-002. Aeron Aether - Release the Kraken (Erdi Irmak Remix)
-003. Akio Imai & Claudio Giordano - Enigma (Original Mix)
-004. al l bo - Walls Of Tears (De Graal' Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,209 @@
+###  Публикация: 1231730   (603764) от 20.06.2018
+
+VA - German Top 50 Party Schlager Charts 18.06.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna-Maria Zimmermann - Scheiß egal
+02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
+03. Andreas Gabalier - Verdammt lang her
+04. Michelle - In 80 Küssen Um Die Welt(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA28DA6762C488DE6C8A360579FA9D80ECA85C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231841   (603696) от 20.06.2018
+
+VA - Vários 44 (2018) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603696.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+
+01. Shawn Mendes - In My Blood
+02. Justin Timberlake Feat. Chris Stapleton - Say Something(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:22:15
+
+01. Calvin Harris Feat. Dua Lipa - One Kiss
+02. Thirty Seconds To Mars - Dangerous Night(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665A7BBFFB54121584EC3180CFAE8C6F01C9D553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231807   (603672) от 20.06.2018
+
+VA - Trance Collection Vol.70 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603672.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abstract Vision & Emma Horan - Second Chance (Extended Mix)
+002. Aly & Fila with Emma Hewitt - You & I  (Extended Club Mix)
+003. Alan Morris & Enzo feat. Jess Morgan - Tapestry of Us  (Extended Mix)
+004. Alexander de Roy feat. Macy - Believe in Love Again (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 10:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58610FAD828DC0399ABCF1F5D56B19F84E2C34CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231806   (603669) от 20.06.2018
+
+VA - Deep House Collection Vol.175 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603669.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alesso, Anitta  -  Is That For Me  (Rumble Remix)
+002. Ahmet Kilic  &  Stoto  &  Adeba  - Stumblin' In (feat. Adeba) (Mr.MoudZ Remix)
+003. Ahmet Kilic  &  Stoto  &  Adeba  - Stumblin' In (feat. Adeba) (The Distance & Igi Remix)
+004. Alex Espo - Happiness (Original mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53BA2270F6ADB05FCAE70549E206CA35DAD28FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297557   (603604) от 23.04.2019
+
+VA - German Top 50 Party Schlager Charts 22.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Maite Kelly - Heute Nacht für immer
+03. Kerstin Ott - Regenbogenfarben
+04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC28B7BEDD6978941A6C20E069032AB019D92C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297553   (603597) от 23.04.2019
+
+VA - Options Remake Of Tracks April -B- (2019) [MP3|320 Kbps] <Tropical, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Izakaya Deployment - Speed
+02. Gmj & Matter & Universal Harmonics - Aphelion (Extended Mix)
+03. Emod - A Split Second
+04. Lokovski & David Folkebrant - No Pressure(   Читать дальше...   )Жанр: Tropical, Progressive, Future HouseПродолжительность: 06:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F8F705E73E5E48BD855F458121BE3EBEF0A977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148518   (603450) от 07.07.2017
+
+VA - Trance Masters 100 Greatest Hits Ever (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603450.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drival - Shooting Star
+002. The-Thirst For-Flight - The Shining Of The Stars
+003. Daniel Kandi & Dreamy - Match Made In Heaven
+004. Pan - Space Ride (Club Edit)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C86414B3081D411BE21B3B94D0911D8BBF9E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148693   (603446) от 07.07.2017
 
 VA - Beatport Top 100 Big Room June (2017) [MP3|320 Kbps] <House, Tech House, Trance, Big Room>
@@ -542,209 +748,6 @@ VA - Arpegio Respira: New Age Music Compilation (2019) [MP3|320 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D071EB29568073D1250639C2DC6EC08ACD49854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297660   (602616) от 25.04.2019
-
-VA - 100 Best Albums Of All Time (2013) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602616.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bob Dylan – Like A Rolling Stone
-02. Nirvana – Polly
-03. Van Morrison – Madame George(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 3:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A758F46F3EA158178A95AA75CEB208BE7B5AABA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275955   (602602) от 25.04.2019
-
-Сборник миксов от DJ Jack Ben (Евгений Баленко) (2013-2019)  [MP3|320 Kbps] <Eurodance, Club House, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Ben - Disco Paradise Vol.41 (OCTOBER 2014 MEGAMIX)
-002. Jack Ben - Disco Paradise Vol.43 (NOVEMBER 2014 MEGAMIX)
-003. Jack Ben - Disco Paradise Vol.44 (DECEMBER 2014 MEGAMIX)
-004. Jack Ben - Disco Paradise Vol.45 (HAPPY NEW YEAR 2015 MEGAMIX)(   Читать дальше...   )Жанр: Eurodance, Club House, Deep House, Future House, OLDSCHOOL,Продолжительность: 122:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D7BE4DC4E43A0E47B3D82AACB34C4AEEA8488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149050   (602560) от 09.07.2017
-
-VA - Chill Mastercuts Balearic (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602560.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pindaric Spleen - Reciprocal Inhibition
-002. Bernd Filz - So Cool
-003. Puch - 3mptiness
-004. Sombra Modos - Botavara(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 08:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4DA7B1B5BB64B77C6CC69E6F6F14452FC73967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149233   (602535) от 09.07.2017
-
-VA - Airbeat One (2017) [MP3|320 Kbps] <Club, Future Bass, Indie Dance, и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airbeat Inc. - Won't Come Down (Airbeat One Anthem 2017) (Feat. Pearl Andersson) 03:27
-02. Neelix - 1000 Sterne (Extended Mix) 06:41
-03. Galantis - Rich Boy (Quintino Remix) 03:37
-04. Alle Farben - Far Green (Feat. Lahos) 06:57(   Читать дальше...   )Жанр: Club, Future Bass, Indie Dance, и другиеПродолжительность: 08:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064EDDBB5C24563D2034A2AE4024E3CDCA3DB8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149168   (602523) от 09.07.2017
-
-VA - Space Dancing (2017) [MP3|320 Kbps] <Electronic, Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise Frame - Paradise Frame (4:04)
-02. Hans Edler - Lady In Black (4:16)
-03. Martin Circus - Ite Missa Est (6:40)
-04. Chromium - Radar Angels (4:27)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F176D215C344BD09915FEFC2C05FA9E893D5F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149223   (602512) от 09.07.2017
-
-VA - The 90’s (2017) [MP3|320 Kbps] <Pop, Rock, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candlebox – Far Behind.mp3
-02. Mase – Feel So Good.mp3
-03. Barenaked Ladies – Alcohol.mp3
-04. Faith No More – Easy.mp3(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 03:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0C91A3F72269843B8B7D92497668889E3BDFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149210   (602504) от 09.07.2017
-
-VA - Beatport Top 100 Downloads June (2017) [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Route 94 - House & Pressure (Original Mix) 05:10
-002. CamelPhat, Elderbrook - Cola (Original Mix) 06:56
-003. Gene Farris, Riva Starr, Dennis Cruz - Play (Original Mix) 06:36
-004. Solardo - On The Corner (Original Mix) 07:11(   Читать дальше...   )Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 10:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCD308029D26736B6558BD516403DBCE7D7FE8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

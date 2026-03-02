@@ -1,3 +1,117 @@
+###  Публикация: 1131057   (710397) от 04.05.2017
+
+Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doom Or Destiny (Feat. Joan Jett) (02:54)
+02. Long Time (04:35)
+03. Already Naked (04:06)
+04. Fun (04:19)(   Читать дальше...   )Жанр: Pop Rock, Post Punk, New WaveПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31549BB79693CE687279A67199A956556A51901C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025548   (710184) от 12.06.2016
+
+Paris - You Know Me (2002) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway (3:22)
+02. Are You Happy (3:13)
+03. Rock My World (3:28)
+04. I Do Believe (Written by Per Gessle) (3:36)(   Читать дальше...   )Жанр: Pop, Soft Rock, CountryПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8353BDC4789846172B32E3A2FF39A754CC64BCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025699   (710098) от 12.06.2016
+
+Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Up    [03:12]
+02. Fightin' Over MeЖанр: Pop, R'n'BПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025459   (710024) от 12.06.2016
+
+Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Divorcio (04:00)
+02.  Corazon de papel (03:58)
+03.  Criollo soy (03:56)
+04.  Qui ganaste (03:02)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D12523B90CABF2A577D0FE300BC9C3163DB7946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219951   (709768) от 16.04.2018
 
 VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -628,122 +742,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287876   (699376) от 09.03.2019
-
-Dido - Still On My Mind (2019) BMG [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Folk, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Hurricanes (5:17)
- 02/12. Give You Up (3:22)
- 03/12. Hell After This (3:28)
- 04/12. You Don't Need a God (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Folk, DowntempoПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC496B1CBBBB5FB9E51406DD889A224526EB3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132768   (698869) от 10.05.2017
-
-The Korvids - The Korvids (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Faith (03:49)
-02. Spyboy (03:33)
-03. Tender Tyrannies (04:54)
-04. Slouch (04:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D45206540977D2F5786F6AC755E6EB2DEE5E3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132759   (698795) от 10.05.2017
-
-Sylvie Vartan - Confidanses (1989) [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Fatal 3:31
-YouTube: Q6SUwv4RmmM
-(Michael Cretu / D.Barbelivien)
-02. Ca va de soi 3:32(   Читать дальше...   )Жанр: Pop , ChansonПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221076   (698513) от 22.04.2018
-
-Selena Gomez - Revival (Box Set USA) (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival - 04:06
-02. Kill 'Em With Kindness- 03:37
-03. Hands to Myself - 03:20
-04. Same Old Love- 03:49(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4D5704DF957B32FF5E9718E16324BC248183B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,209 @@
+###  Публикация: 1069281   (373956) от 04.11.2016
+
+VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373956.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren Ft. BullySongs - Freefall (Manse Remix)  2:33
+002. Gareth Emery Ft. Wayward Daughter - Reckless  3:22
+003. Chicane - Offshore (Grum Remix)  3:39
+004. Super8 & Tab - Mega  3:04(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 05:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2008C5DD4DE1C6866E1DECAD38469FBE108D8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069378   (373870) от 04.11.2016
+
+VA - Erotic Summer Night Vol.1: Sexy Chill Out Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florzinho - A La Luna - Euphonic Traveller Remix
+02. Euphonic Traveller - Pont Notre Dame
+03. Alex Naevecke - Summerlove
+04. Svendaq - Cosmic Sweeper(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C832F9DD438A27EB9D531C4C7A798937A4B8DD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069418   (373773) от 04.11.2016
+
+VA - Partybreaks and Remixes - All In One October (short version) (2016) [MP3|320 Kbps] <Afrobeat, Synthpop, Future Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anomie Belle - Unwind
+02. Ariana Grande vs. Paramore - Side Business(Mashup by MixmstrStel)
+03. Big Sean x Rick James x Diplo x Deorro x Steve Aoki x Rickyxsan – Super Freaky Dance (Trini Edit)
+04. Brillz X Willy Joy - POWER(   Читать дальше...   )Жанр: Afrobeat, Synthpop, Future BassПродолжительность: 02:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1EB962416BCA2EC6311576707AA354C1349DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574801   (373455) от 13.11.2012
+
+VA - Trance. Vocal Fascination 36 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373455.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance. Vocal Fascination 36 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Vocal Trance
+Продолжительность: 03:05:13Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Evgeny Bardyuzha - USSR-2061 (Club Mix)
+002. Faruk Sabanci - Oriental Sentiment (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7D271055F56DE8A8CFE1DB27636992BD2DCCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575853   (373231) от 11.09.2022
+
+VA - New Generation Italo Disco - The Lost Files Vol. 15 (2022) [MP3|320 Kbps] <Synthpop, Eurobeat, Italo Dance, New Wave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solitario - In Her Eyes (Extended Vocal Lost Mix)
+02. Casanova - Colder Than Ice (Extended Vocal Lost Mix)
+03. Ranger - Time Went By (Extended Vocal Lost Mix)
+04. Marco Bardi - Summer Love (Extended Vocal Lost Mix)(   Читать дальше...   )Жанр: Synthpop, Eurobeat, Italo Dance, New WaveПродолжительность: 01:23:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D579252C6851BEDF42C1DB0C285A06C0D1DC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254511   (373189) от 14.10.2018
+
+VA - German Top 100 Single Charts 15.10.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373189.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Dynoro & Gigi D'Agostino - In My Mind
+002 Calvin Harris & Sam Smith - Promises
+003 Bushido feat. Capital Bra - Inshallah
+004 Bonez Mc, RAF Camora & Gzuz - Kokain(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C774185DD51A49BA7139488910FC25BEB225E563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950231   (373103) от 25.10.2015
+
+VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Horner - Mellow Daze (02:10)
+02. The Big Sound - Lounge Lizard (02:02)
+03. Ginger Tunes - Round Midnight (05:19)
+04. Jive Ass Sleepers - Big Bad Boss Man (04:49)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950001   (373097) от 25.10.2015
 
 VA - Club Summer 2015 (2015) [MP3|320 кб/с]<Deep House, R&B, Dance>
@@ -546,209 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A4C81649E72616190035CA2D51D60100763587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176222   (371795) от 21.10.2017
-
-VA - По волне моей памяти: Том 3 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Михаил Боярский - Вот и расстались  5:54
-02.  Алла Пугачёва - Песня на бис  7:13
-03.  Игорь Тальков - Бывший подъесаул  5:59
-04.  Александр Барыкин - Букет  3:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415609   (371750) от 14.10.2020
-
-VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - J Tian HD - Carrapicho (2:40)
-002 - Lele Pons, Guaynaa - Se Te Nota (with Guaynaa) (2:35)
-003 - Bad Bunny - Yo Perreo Sola (2:52)
-004 - Jeison el Brother - Baila Mi Cumbia (3:28)(   Читать дальше...   )Жанр: Latin, Bachata, RumbaПродолжительность: 22:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069868   (371699) от 05.11.2016
-
-VA - Любимая волна. Версия 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Наталья Подольская & Владимир Пресняков - Дыши 3:46
-002.Ya-Ya - Bad Girls 3:48
-003.Александр Антонов - Это Все Что Я Могу 3:52
-004.Bakermat - Ballade 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F95C45292CF75B3FF966DAD9C5CF6CFC2A4CF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069863   (371697) от 05.11.2016
-
-VA - Популярный драйвовый хитовичок. Версия 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Djennet - Ты Мой 3:51
-002.Stephen - Your Life 4:07
-003.Винтаж - Немного Рекламы 3:40
-004.Karlk Feat. Guitk - Jeff 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A453C9E1BBE9DB7707121080F2405D6779D0F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176208   (371628) от 21.10.2017
-
-VA - По волне моей памяти: Том 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Добрынин Вячеслав - Ах, какая женщина  4:35
-02.  Юрий Антонов - Берегите женщин  4:38
-03.  Владимир Кузьмин, Алла Пугачева - Две звезды  3:57
-04.  Игорь Скляр - Старый рояль  2:21(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176295   (371599) от 21.10.2017
-
-VA - По волне моей памяти: Том 4 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Олег Даль - Есть Только Миг  3:23
-02.  Игорь Иванов - Облака в реке  3:01
-03.  Михаил Муромов - Яблоки на снегу  4:28
-04.  Юрий Лоза - Зима  4:05(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583EB5E28BE800E5B1041F6A875DAB0B0F26E131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415573   (371594) от 14.10.2020
-
-VA - Love Lyrics Songs (2020) [MP3|320 Kbps] <Pop, Rock, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brook Benton - Rainy Night In Georgia
-002. Brandy - I Do It For You
-003. Sanne Salomonsen - It Must Have Been Love
-004. Ray Charles - Lonely Avenue(   Читать дальше...   )Жанр: Pop Rock Lyric, Romantic BalladsПродолжительность: 06:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC794D7A6D0597D337DB2D9F0D022789BA3DA67
 ```
 
 https://mybot314.ru/tekegram_catalog/

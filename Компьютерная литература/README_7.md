@@ -1,3 +1,110 @@
+###  Публикация: 1849097   (1053231) от 21.01.2026
+
+Chris Fregly | AI Systems Performance Engineering. Optimizing Model Training and Inference Workloads with GPUs, CUDA, and PyTorch (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elevate your AI system performance capabilities with this definitive guide to maximizing efficiency across every layer of your AI infrastructure. In today's era of ever-growing generative models, AI Systems Performance Engineering provides engineers, researchers, and developers with a hands-on set of actionable optimization strategies. Learn to co-optimize hardware, (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849095   (1053230) от 21.01.2026
+
+Priyanka Vergadia, Valliappa Lakshmanan | Visualizing Generative AI. How AI Paints, Writes, and Assists (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Generative AI has the potential to innovate and evolve business processes, but workers are still figuring out how to build with, optimize, and prompt GenAI tools to fit their needs. And of course, there are pitfalls to avoid, like security risks and hallucinations. Getting it right requires an intuitive understanding of the technology’s capabilities and limitations. (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9D20864D3E05062088489C327A1CC836C32FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849063   (1053228) от 21.01.2026
+
+John Paul Mueller, Luca Massaron, Stephanie Diamond | Artificial Intelligence For Dummies. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dive into the intelligence that powers artificial intelligence
+
+Artificial intelligence is swiftly moving from a sci-fi future to a modern reality. This edition of Artificial Intelligence For Dummies keeps pace with the lighting-fast expansion of AI tools that are overhauling every corner of reality. This book demystifies how artificial intelligence systems operate, (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E983CFAFA9AF08C686D459750E235881CBB152AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849061   (1053227) от 21.01.2026
+
+Chris Minnick | Artificial Intelligence All-in-One (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053227.jpg" />
+</div>
+
+
+###  Подробнее
+
+A comprehensive roadmap to using AI in your career and in your life.
+Artificial Intelligence is everywhere. Major software organizations like Microsoft, Google, and Apple have built AI directly into products and invited the world to become part of the AI revolution. And it's impossible to use these tools to their fullest potential without understanding the basics (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD56D35BABA53A07DC8BA64218E695761D33F5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848906   (1053205) от 19.01.2026
 
 Stephanie Diamond | Writing AI Prompts For Dummies (2024) [PDF, EPUB] [EN]
@@ -573,113 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3246C6EEAD6C7946FEC754ACD8B3E3DA9904325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846521   (1051671) от 08.01.2026
-
-Andrey Gavrilin, Adrian Ostrowski, Piotr Gaczkowski | Software Architecture with C++ [Second edition + Examples] (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Designing scalable and maintainable software with C++ requires more than language expertise—it demands strong architectural thinking. This practical guide equips you with the skills to design and build robust, distributed systems using modern C++.
-
-Starting with fundamental architectural principles and design philosophies, the book walks you through practical approaches (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D8DA2E518F1E935AC04F79566A945B643462C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846467   (1051503) от 08.01.2026
-
-Уоллес Ван, Тоннетта Уолкотт | Программирование для создания игр. Практический путеводитель Godot (2024) [PDF, EPUB, MOBI, AZW3]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051503.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге преподаются принципы программирования с использованием игровго движка Godot. Наряду с Unity и Unreal Engine, Godot является одним из самых популярных игровых движков, используемых для создания мобильных игр, игр для ПК и вообще любых видеоигр.
-Обучение программированию с помощью игрового движка может повысить мотивацию. Вместо того, чтобы изучать программирование (   Читать дальше...   )Жанр: Учебное пособиеИздательство: СамиздатФормат: PDF, EPUB, MOBI, AZW3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1C54ED4AFA905D98F21B8049F9FCEFA375FA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846128   (1051143) от 05.01.2026
-
-Е.В. Ильин | Python для инженерных задач (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для изучения языка Python с ориентацией на использование его в инженерных и научных вычислениях, начиная с установки интерпретатора и изучения основ языка и до применения специализированных библиотек. Основные темы касаются встроенных типов языка, функций и аннотации типов, особенностей динамической типизации, форматирования и обработки текста, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7230FCDBC28BAA36FA8958112A83AF737F410108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845937   (1051078) от 11.01.2026
-
-Михаил Жмайло | Windows глазами хакера (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрена внутренняя архитектура Windows и Active Directory, подробно описаны доверенные отношения доменов и лесов, особенности работы Read-only Domain Controllers, уязвимости групповых политик и принципы управления привилегиями. Рассказывается о работе с Kerberos, инжекте и дампе, билетов, угоне пользовательских сессий, использовании WinAPI, COM и Named Pipes (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербурrФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D469861C695E30711E45312C33C5E0F708BF6FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

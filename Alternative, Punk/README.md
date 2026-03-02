@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1855910   (1058758) от 26.02.2026
+
+Gorillaz - The Mountain (2026) Deluxe Edition [MP3|320 Kbps] <Alternative-Rock, Trip-Hop, Leftfield, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mountain (feat. Dennis Hopper, Ajay Prasanna, Anoushka Shankar, Amaan Ali Bangash & Ayaan Ali Bangash)
+02. The Moon Cave (feat. Asha Puthli, Bobby Womack, Dave Jolicoeur, Jalen Ngonda & Black Thought)
+03. The Happy Dictator (feat. Sparks)
+04. The Hardest Thing (feat. Tony Allen)(   Читать дальше...   )Жанр: Alternative-Rock, Trip-Hop, Leftfield, ElectronicПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D77A3C540924FFB70391862AD6A740A885F0D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841059   (1047787) от 09.12.2025
 
 The Imperial Mustard - Turn the Stone (2025) [MP3|320 Kbps] <Psychedelic, Krautrock, Post-rock, Spacerock>
@@ -717,35 +746,6 @@ RA - Intercorrupted (2021) [MP3|320 Kbps] <Alternative, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CD0356FDDB17C971645D33689868BFF55E83BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458620   (1023770) от 29.03.2021
-
-Red Hot Chili Peppers - Devotion to Emotion (2021) live [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Higher Ground (live) [00:03:32]
-02 - Knock Me Down (live) [00:03:53]
-03 - Castles Made Of Sand (live) [00:03:16]
-04 - Me And My Friends  Strip My Mind (live) [00:03:07](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FCB9B214AE8913B82CADC3C842CCABA02AD493
 ```
 
 https://mybot314.ru/tekegram_catalog/

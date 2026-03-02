@@ -1,3 +1,206 @@
+###  Публикация: 1022695   (727857) от 03.06.2016
+
+Deem Beat - Concept Techno Cannel (Podcast NO 001) Mix (2016) [MP3|320 кб/с] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Senseless Live - Under My Wing (Original Mix)
+2. Sabb, Boy. An - Not Feeling That Fine (Zoo Brazil Remix)
+3. Ańii- Desert God (Original Mix)
+4. Touchtalk - Anticipation (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8E842D3FB6433A55CB852457DA6772381C8AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022674   (727851) от 03.06.2016
+
+VA - Future Feelings Club Disco House (2016) [MP3|128-320 кб/с] <Electro, Disco, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dr. Beat - Na Na Na
+002. Gariy & Hacker - Piano Groove
+003. Robin Schulz Ft. Akon - Heatwave
+004. Jonas Vogel - Find My Way Home (Lucas & Steve Remix)(   Читать дальше...   )Жанр: Electro, Disco, Club HouseПродолжительность: 08:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DA10A7EB557CBF2D61D5B57064E57F266CA0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530754   (727826) от 12.02.2022
+
+VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727826.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоторой степени несерьезный и легкомысленный сборничек, где собраны заводные популярные поп-мелодии со всего света. Мелодии, которые непринуждённо "застревают" в голове, но тем не менее не вызывают дискомфорта.001. Jts & Tatsunoshin - Afterlife
+002. Stayc - I'll Be There
+003. Urban Cookie Collective - Champagne Supernova
+004. Ariana Bell - Your Touch(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B0D411770D75998C853E68D4048B0837E80DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022528   (727785) от 03.06.2016
+
+VA - Chill Out XSTATION Complete (2016) [MP3|320 кб/с] <ChillOut, Ambient, Downtempo, Lounge, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Byrd - Without You (Aleksey Beloozerov Remix)
+02. Imogen Heap - Run-Time (Matt Lange Remix)
+03. MALARIS - Mystery Planet
+04. Mr FijiWiji feat. Anna Yvette - Hostage (Original Mix)(   Читать дальше...   )Жанр: ChillOut, Ambient, Downtempo, Lounge, ElectronicaПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9820D41635876F733FDD7A6FB1275A539F9C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022871   (727779) от 03.06.2016
+
+VA - Ibiza 2016 (Deluxe Version) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nando Rodriguez - Day of the Days (Original Mix)
+02. Nebogitel - Riders (Original Mix)
+03. GRiSHA - Lonely Night (Original Mix)
+04. Corporate Fony - South Station (Corporate Fony Remix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0544A330A695C7ACDC37B5E85E40AE14C583172A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022775   (727777) от 03.06.2016
+
+VA - Pregnancy Music: 2 hours relaxing music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni Verde - Abstract - Piano Version
+02. Hans Overgraard - Suggestion
+03. Hans Overgraard - Impression
+04. Dominik Andersen - Seductive(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88306B8F081A99AABECCF33287CE2AE9AEB65007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022561   (727773) от 03.06.2016
+
+VA - Erotic Chill-Out and Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727773.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Counting Clouds - Sex on the Beach
+002. Susy Seven - Come with Me
+003. King Hookiss - After Midnight - Chillout Mix
+004. Glamour Sound - Night & Sex(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25A472733E9558387F75ECE975D723865FC1C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022482   (727770) от 03.06.2016
 
 VA - 77 Little Mix: Popular And RnB Songs (2016) [MP3|207-320 кб/с] <Pop, RnB>
@@ -542,209 +745,6 @@ VA - Beautiful Interior Lounge Sounds (2022) [MP3|320 Kbps] <Lounge, Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B432B443999A710D431DC9A4DFC1FB5FAF9681B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023292   (726629) от 04.06.2016
-
-VA - Alterportal HITS 16 Vol. 92 - April (2016) [MP3|248-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devour the Day - The Bottom
-02. Everything In Slow Motion - I Am Laid Low
-03. Saliva - Tragic Kind Of Love
-04. Tremonti - Unable to See(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8949B67E3C22F9F35E5DBF158415A56EAA4DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530922   (726605) от 13.02.2022
-
-VA - Chillout Melodic Mixtape (2022) [MP3|320 Kbps] <Chillout, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незатейливая мелодия, легкое, атмосферное звучание, как будто авторы музыкальных произведений пытаются рассказать нам о том, что таится в уголках подсознания, о чем сомневаешься и в чём истинно уверился.001. Lafoliedamour - Lingering On
-002. Art Of Chill - One Day
-003. Marchillo - Nostalgia
-004. Mystericus - Gates Of Teotiuachan(   Читать дальше...   )Жанр: Chillout, Relax, DowntempoПродолжительность: 08:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF4F9C038672FA0977C5424BF04E9936F55E8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530956   (726583) от 13.02.2022
-
-VA - Record Super Chart 12.02.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OWNBOSS, Sevek - Move Your Body (2:37)
-02. Alis Shuka - Not About Us (2:09)
-03. Filatov Karas, Busy Reno - Au Revoir (2:44)
-04. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0014F0D4BDF9E6BD1F0D34963BA63738DDF799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284842   (726549) от 23.02.2019
-
-VA - The Official UK Top 40 Singles Chart 22.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - 7 rings
-02. Ariana Grande - break up with your girlfriend, i'm bored
-03. Lewis Capaldi - Someone You Loved
-04. Calvin Harris, Rag'n'Bone Man - Giant(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444DD1505A1DA99C698E444CCC69D5E3692D94A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284827   (726545) от 23.02.2019
-
-VA - Techno Red Fire (2019) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isabelle - Lemon Juice
-002. Metodi Hristov - Sci-Fi
-003. Indian Kasta - Country Tour
-004. Eduard Guchetl - Return Last Night(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDD25DDD15AB47D277D319E186127348E3D7B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530929   (726535) от 13.02.2022
-
-VA - Friday Vibes: Dance House Music (2022) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культура клубной музыки — явление довольно уникальное. Особенная атмосфера и, конечно, музыка — это то, что создаёт настроение тех, кто пришел отдохнуть на танцполе. Клубная музыка отличается от других музыкальных стилей прежде всего особым драйвом, заставляющим Вас снова и снова выплескивать бурю эмоций в энергичном танце.001. G-Prod - Let Me Feel
-002. Biz - Skyhigh
-003. Edy Marron - Do The Same
-004. Tilman - Make You Hot(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA1D4DECF87D2ADE621AFF2FE3D324BA4F872E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284829   (726532) от 23.02.2019
-
-VA - Total Trance: Selections February (2019) [MP3|320 Kbps] <Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Physical Phase - Maecenas
-002. Main Engine - Through Thorns
-003. Adip Kiyoi - The Agent (Extended Mix)
-004. Dj Dmitrii - Dance City(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 08:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCCA387B68DE75A7EC9980956E18725DE2862F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

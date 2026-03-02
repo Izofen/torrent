@@ -1,3 +1,119 @@
+###  Публикация: 994469   (889641) от 08.03.2016
+
+VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haiducii - Dragostea Din Tei (3:33)
+02. Bellini - Samba de Janeiro (2:48)
+03. Loona - Bailando (3:34)
+04. Mr. President - Coco Jamboo (3:38)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994555   (889631) от 08.03.2016
+
+Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Between The Eyes
+02. Hear No Evil
+03. Shadows Of Love
+04. Marie Claire(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918AC800E3B72FA53F27D652573DA4650C01597E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494461   (888980) от 07.09.2021
+
+Halsey - If I Can’t Have Love, I Want Power (Target Exclusive) (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tradition (3:46)
+02. Bells in Santa Fe (3:38)
+03. Easier than Lying (3:26)
+04. Lilith (2:47)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2134632F541CA88BF590CDFAA3B462DC3839E22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494363   (888828) от 07.09.2021
+
+VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Senza Una Donna (Original Italian Version) (04:27)
+02. Gianluca Grignani - La Mia Storia Tra Le Dita (05:09)
+03. Vasco Rossi - E... (Remastered 2017) (03:29)
+04. Franco Battiato - Centro Di Gravità Permanente (Remastered) (03:59)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A734CF6B099792E042AB71804C1D770380C70751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494537   (887739) от 08.09.2021
 
 VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996044   (881080) от 13.03.2016
-
-Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me
-02. Sarah
-03. Dedicated To The Moon
-04. So Easy(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373021   (880344) от 06.04.2020
-
-Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power Of Love
-02. From This Moment On
-03. There You'll Be
-04. And I Am Telling You ( Duet With Nicole Scherzinger )(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8254B5C1C3892FE12159259E8862AEEBD752A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373216   (880102) от 06.04.2020
-
-Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. !!!!!!! (0:14)
- 02. Bad Guy (3:14)
- 03. Xanny (4:04)
- 04. You Should See Me in a Crown (3:01)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D292ED3FA67FF48207BF0D297DB8434D7B045C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373229   (880050) от 06.04.2020
-
-Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. COPYCAT (3:15)
- 02. idontwannabeyouanymore (3:24)
- 03. my boy (2:51)
- 04. watch (2:58)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3061AD4B5EEF99ED9AE753BD91EDEB71F8D93FA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1402444   (701579) от 14.08.2020
+
+Векторный клипарт - Whole and chopped fruit in chocolate splash realistic illustrations 2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Целые и нарезанные фрукты в шоколадной глазури
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4E821D1B82D877D1D46D760B6C945FFB1C7D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402442   (701569) от 14.08.2020
 
 Векторный клипарт - Sweet candy landscape of plasticine 3d realistic illustrations [EPS]
@@ -653,32 +681,6 @@ All About Tabla, от Mango Loops предлагает вам 1000, Tabla Loops 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65DA874F1DB7308CBE64EE4CD0B53E47365F832A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221409   (695095) от 24.04.2018
-
-Текстуры - Jeans Textures X 6 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры.Формат: JPGРазрешение файлов: 1920 x 1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E670138C0FFD47926A6D5E1CB9D018B75991D76
 ```
 
 https://mybot314.ru/tekegram_catalog/

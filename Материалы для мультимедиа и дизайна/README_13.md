@@ -1,3 +1,30 @@
+###  Публикация: 1455597   (1025615) от 19.03.2021
+
+NNM Club Sound Cleaner's - Clean Music Tracks 3 by andgelo12 [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных треков очищенных от "голосовых вставок" ("watermarks").
+Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DC452635A6379B76992A6918A32623AC39BC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455369   (1025593) от 19.03.2021
 
 Звуковые библиотеки - Best Service - Chris Hein Horns Pro Complete [Kontakt, MP4]
@@ -643,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136B9DD6B0C61CBA785E3B712EEF3E9A24E4A49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456749   (1024834) от 23.03.2021
-
-3D Smart materials - Artstation - Poligone - Poligone Smart Material Collection for AAA Character Creation [SPSM]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024834.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора Poligone: Этот пакет представляет собой коллекцию умных материалов, которые я создал за 5 лет моей карьеры профессионального 3D-художника. Эти материалы использовались во всех моих AAA и мобильных проектах для многих известных клиентов (ILM, Microsoft, Lucas, Disney, NCSoft, Nexon, Telltale, Kabam, Gamevil, Digital Legends и многих других).Формат: SPSM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E22840FC658DD1C9425A28543DD028B5B63407
 ```
 
 https://mybot314.ru/tekegram_catalog/

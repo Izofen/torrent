@@ -1,3 +1,206 @@
+###  Публикация: 1401020   (713473) от 08.08.2020
+
+VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry - Head & Heart (feat. MNEK)
+02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
+03. Nathan Dawe - Lighter (feat. KSI)
+04. Harry Styles - Watermelon Sugar(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39054FDDA8ECECE7A779714ADBF2D7CEE5E53823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401037   (713359) от 08.08.2020
+
+VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Sie ruft
+02. Apache 207 - Bläulich
+03. Bonez MC - Tilidin Weg
+04. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F3AE8907CAFFE6D7B520744CB08AD351E7821A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401016   (713344) от 08.08.2020
+
+VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cocino - Where Do We Go
+002. Jay Fox - Heartbeat
+003. Sunnery James - Pray (Extended Mix)
+004. Asher Postman - Walk Away(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 08:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219359   (713329) от 14.04.2018
+
+VA - Ultimate Chillout Dreams (2018) [MP3|256-320 Kbps] <Ambient, Chillout, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2illusions - Flying Butterfly (Original Mix) 3:56
+02. 2illusions - Spring Day 3:15
+03. Daminika - Last Goodbye 4:03
+04. DJK - I Like Chopin (Rainy Daze Chillout mix) 4:54(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 18:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16B051E3CDE27EEAF4333CB7780A0A5C41365CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401019   (713323) от 08.08.2020
+
+VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713323.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sirius Delta - Stray
+002. Moam - Run With It
+003. Dorian Lay - Level Down
+004. Hdsn - Shake The Ground(   Читать дальше...   )Жанр: House, Electro, ClubПродолжительность: 10:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FB141685BDEE8F802C4B9326BE96B3A20DBEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400689   (713122) от 08.08.2020
+
+VA - New Rock 2 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theory Of A Deadman - World Keeps Spinning (3:34)
+02. The Strokes - Bad Decisions (4:53)
+03. The Rolling Stones - Living In A Ghost Town (4:07)
+04. The Pretty Reckless - Death by Rock and Roll (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41D695F5206F78D7B5E88FC907000A1CBE91800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286387   (713106) от 02.03.2019
+
+VA - Tropical Vibes vol. 7 (2018 - 2019) [MP3|320 Kbps] <Tropical House, Deep House, Soulful House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Goman - Forward To The Sun (Original Mix)
+02. FunFil - Feels (Original Mix)
+03. Kavinsky & Lovefoxxx - Nightcall (DJ VoJo Remix)
+04. Delaise - The Moonlight's Show (DJ VoJo Remix)(   Читать дальше...   )Жанр: Tropical House, Deep House, Soulful House, Nu Disco, Indie Dance, Future BassПродолжительность: 04:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F05D335E0DB20B1B42EA6A2F768936EC11E55C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401036   (713052) от 08.08.2020
 
 VA - Rnb Soul Musical Collection (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -542,209 +745,6 @@ VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E76524FC90EA6DCFFE090BBC4507227CE0C32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025182   (712225) от 11.06.2016
-
-VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Tut - Nothing Is for Certain - Ibiza Mix
-02. Misses Smith - Bag Of Moons
-03. Rainman - Hammock Dreams - Super Extended Beach Mix
-04. Zenyatta - Too Good(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC625CF48FCFADC658B8BA2DB4B72FE6D52F2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025040   (712217) от 11.06.2016
-
-VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Euro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Ice, Thomas Gold – Ice Baby
-02. Britney Spears – I Wanna Go
-03. Snoop Dogg, David Guetta – Sweat
-04. Scooter – How Much Is The Fish(   Читать дальше...   )Жанр: Electronic, House, Euro HouseПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82ACF6F62C6E809C922D434F2D813CD1616237B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025291   (712213) от 11.06.2016
-
-VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Retro Noize - Intro [0:16]
-02. Age of Love - The Age of Love [6:49]
-03. Systematic Parts - Violin De La Nuit [4:02]
-04. B.B.E. - Seven Days and One Week [2:56](   Читать дальше...   )Жанр: Jumpstyle, Techno, Hard TranceПродолжительность: 03:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025289   (712195) от 11.06.2016
-
-VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Pussy Lounge 2016 (Continuous Mix By Darkraver & Ruthless) [01:18:21]
-02. Various Artists - Pussy Lounge 2016 (Continuous Mix By Paul Elstak & The Viper) [01:16:35]
-03. Geck-O - Sorry Not Sorry [3:16]
-04. Pat B & Nowaxx & Potato - Pressure [3:32](   Читать дальше...   )Жанр: HardstyleПродолжительность: 06:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025073   (712193) от 11.06.2016
-
-VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Nothing - Summer of Love - Singled Out Mix
-02. Ms. Jones and the Fireflies - 5am - Lana in the Video Sadness Cut
-03. Deep Sound Employees - Follow - Beach Cafe Mix
-04. Heartless Surfer Crew - Skip the Beat - Olly Got a Heart Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130790   (712179) от 03.05.2017
-
-VA - Top 100 Зайцев.Нет - Апрель (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712179.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Estradarada - Вите Надо Выйти  4:18
-002.  Егор Крид & Molly - Если ты меня не любишь  3:27
-003.  Rag'N'Bone Man - Human  3:19
-004.  Burito - По волнам  3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0E4B18C9A238CA2F0F3782190A3AB332D4DF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025180   (712135) от 11.06.2016
-
-VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712135.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karizma Duo - One Last Time
-002. Umbu Kaborang - Bersorak
-003. Henrietta Adewole - Bloodstream
-004. Sidney Mohede - Tiba Saatnya(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754779D8B9C25D88AC88E967F2F6FC39F4583455
 ```
 
 https://mybot314.ru/tekegram_catalog/

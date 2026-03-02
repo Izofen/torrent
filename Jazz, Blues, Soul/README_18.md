@@ -1,32 +1,3 @@
-###  Публикация: 1615491   (1037598) от 26.02.2023
-
-Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Quarters [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifeflight [8:44]
-02. Up Jumped Spring [7:08]
-03. Theme for Kareem [6:35]
-04. On the Real Side [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BCCDCF9EF3BF674FB82ABE5A35DA9339654EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615494   (1037594) от 26.02.2023
 
 Freddie Hubbard - Times Are Changing (1989) Blue Note [FLAC|Lossless|image + .cue] <Post-Bop, Soul-Jazz>
@@ -742,6 +713,35 @@ Najee - Savoir Faire (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20AE904984235ECFF093D0F5E70A44C938020D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616434   (1036428) от 02.03.2023
+
+Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever Lola Wants
+02. Misty
+03. Bewitched, Botheered ad Bewildered
+04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C317AD318D3BB75446701DD4F3792D793099D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

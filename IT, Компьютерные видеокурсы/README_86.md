@@ -1,3 +1,89 @@
+###  Публикация: 1651852   (194627) от 08.08.2023
+
+Udemy, Richard Chesterwood | Kubernetes Hands-On - Deploy Microservices to the AWS Cloud (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kubernetes is one of the hottest topics right now, and engineers with Kubernetes skills are in big demand.
+
+Get those skills with this course! It's is a great chance to work on a real Kubernetes project, and to get yourself to a high professional standard on real projects.
+(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 28:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4A0E87F820F8F1F6F06A60679E8ADC21C3FD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651937   (194586) от 09.08.2023
+
+Abbas Masri | Mastering Android App Development with Kotlin [XML +COMPOSE] (2023) WEBRip [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194586.jpg" />
+</div>
+
+
+###  Подробнее
+
+So you want to become an Android developer and start publishing your own apps?
+
+Do you have no programming experience whatsoever? Or maybe you have worked with another programming language in the past?
+(   Читать дальше...   )Жанр: Android, Android studio, KotlinЯзык озвучки: АнглийскийПродолжительность: 50:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CF3B0AD963421A6BAD8A92B47C03550460F6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652128   (194529) от 10.08.2023
+
+Udemy, Richard Chesterwood | Istio Hands-On for Kubernetes (2023) WEB-DL  [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_194529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Istio is one of the most talked-about frameworks in recent years! If you've worked with Kubernetes before, then you'll want to learn Istio! With this hands-on, practical course, you'll be able to gain experience in running your own Istio Service Meshes.
+
+This course is designed to be clear and understandable - and fun! But we also go into detail - you'll be learning (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E6C1A5D1A9B73E4530C124CFF271F4C28BAF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652090   (194493) от 09.08.2023
 
 Stepik, Shultais Education, Никита Шультайс | Проектирование баз данных (2023) WEB-DL [RU]
@@ -638,87 +724,6 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B45A6D449043A3FB96637D6C1CB7E52F219F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657744   (192038) от 05.09.2023
-
-Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN / EN, RU Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192038.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Full Web Apps with FastAPI (07:12:04)
-FastAPI ворвался на веб-сцену Python. Фактически, опрос разработчиков PSF 2020 года показывает, что FastAPI выходит из-под контроля и становится 3-м по популярности и наиболее быстрорастущим фреймворком для разработчиков Python. Люди, открывающие для себя FastAPI, в восторге от его набора инструментов для создания API. Но (   Читать дальше...   )Производство: TalkpythonЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 12:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68B0A20B381FA9C2F4829F104249245D83408B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658170   (191839) от 06.09.2023
-
-Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте масштабируемые и производительные fullstack приложения на сервере с использованием современных технологий, таких как AppSync, Lambda, DynamoDB и Vue.js. Научитесь строить производительные и масштабируемые полностековые приложения, создавая клон Twitter с нуля.
-Технологии serverless позволяют вам создавать масштабируемые и производительные приложения без (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 35:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE322C8065D24696055EB3F6379B96C83E47059A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657954   (191745) от 06.09.2023
-
-Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basics to Advance (Java OOP) (2022) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191745.jpg" />
-</div>
-
-
-###  Подробнее
-
-From this course, you can learn Object-Oriented Programming from basics to advanced concepts.
-All code examples in the course are written in Java but that's doesn't mean you can't apply the knowledge from this course in other programming languages. You can easily use the knowledge from this course in any language if you want to build applications with the help of (   Читать дальше...   )Производство: Udemy, Learn IT UniversityЖанр: Java, Patterns, GoF, SOLID, OOPЯзык озвучки: АнглийскийПродолжительность: 07:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
 ```
 
 https://mybot314.ru/tekegram_catalog/

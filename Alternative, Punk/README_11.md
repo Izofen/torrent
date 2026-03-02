@@ -1,26 +1,25 @@
-###  Публикация: 875663   (856357) от 07.03.2015
+###  Публикация: 1220346   (705982) от 18.04.2018
 
-The Supernaturals - 360 (2015) [MP3|320 кб/с]<Rock/ Indie/ Britpop/ Power Pop>
+A Perfect Circle - Eat The Elephant (2018) [MP3|320 Kbps] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Sweet George
-02. Air Hostess
-03. Zombie
-04. Something to Believe In
-05. All Rivers Flow(   Читать дальше...   )Жанр: Rock/ Indie/ Britpop/ Power PopПродолжительность: 00:54:30
+01. Eat The Elephant
+02. Disillusioned
+03. The Contrarian
+04. The Doomed(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:57:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:113399F7D3CBEEC03EC18D02F78D8928EDF9333F
+magnet:?xt=urn:btih:FDFE7578F09619435D2B76C91B45621A8EA71D60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,29 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875494   (856088) от 07.03.2015
+###  Публикация: 1401994   (705792) от 12.08.2020
 
-Eskimo Callboy - Crystals (2015) [MP3|320 кб/с]<Post-Hardcore / Electronic>
+Splitmouth - Torment (2020) [MP3|320 Kbps] <Nu-Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pitch Blease
-02. Baby (T.U.M.H.)
-03. My Own Summer
-04. Kill Your Idols
-05. Ritual(   Читать дальше...   )Жанр: Post-Hardcore / ElectronicПродолжительность: 00:39:11
+01. I Can't Stand You [00:02:54]
+02. Trash [00:03:29]
+03. Backstabber [00:02:57]
+04. Over It [00:04:02](   Читать дальше...   )Жанр: Nu-MetalcoreПродолжительность: 00:30:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47A6F0CA92CF1D222BEC590EF3D26BA010C4D968
+magnet:?xt=urn:btih:BBEE60CCFCFFEB4137185F2F4716958E83F07256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,34 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 769517   (855259) от 23.03.2014
+###  Публикация: 1401752   (705693) от 12.08.2020
 
-Chuck Ragan - Till Midnight (2014) [MP3|320 кб/с]<Alt. Rock, Alt. Country>
+Within Destruction - 4 Albums (2012-2020) [MP3|320 Kbps] <Progressive Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Something May Catch Fire 03:52
-02. Vagabond 03:52
-03. Non Typical 04:09
-04. Revved 03:13
-05. Bedroll Lullaby 03:24
-06. Gave My Heart Out 03:06
-07. Wake With You 03:11
-08. You And I Alone 03:57
-09. Whistleblowers Song 02:54
-10. For All We Care 04:38Жанр: Alt. Rock, Alt. CountryПродолжительность: 00:36:22
+01. Yomi [00:01:27]
+02. Yokai (feat. Ryo Kinoshita of Crystal Lake) [00:03:46]
+03. Harakiri (feat. Bill $Aber) [00:03:24]
+04. No Way Out [00:03:19](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 4 CD, 02:33:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D11C8EA305E73EEBE0B61006B472E72968F0090
+magnet:?xt=urn:btih:6F2BB03B92DFF945E7C85B2FFF2E95A296BBF0CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -93,34 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 306164   (855185) от 08.03.2011
+###  Публикация: 1132095   (705073) от 07.05.2017
 
-Roger Miret & The Disasters - Gotta Get Up Now (2011) [MP3|256 kbps]<Street Punk>
+At The Drive-In - in•ter a•li•a (2017) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Stand Up And Fight
-02.The Enemy
-03.We're Gonna Find A Way
-04.Faded
-05.Gotta Get Up Now
-06.My Own Way
-07.Outcast Youth
-08.Tales Of A Short Haired Boy
-09.Tonight's The Night
-10.Bare-Knuckle Brawler(   Читать дальше...)Жанр: Street - PunkПродолжительность: 00:31:44
+01. No Wolf Like The Present
+02. Continuum
+03. Tilting At The Univendor
+04. Governed by Contagions(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:086F95B80C5ADC982D65F11495B8AE5AB5AFD750
+magnet:?xt=urn:btih:E5AED3EE39F90752A4CB7721FCD730AE3006A403
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,34 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 647568   (854780) от 24.04.2013
+###  Публикация: 1131982   (705071) от 07.05.2017
 
-Iggy and The Stooges - Ready To Die (2013) [MP3|320 кб/с]<Punk Rock / Garage Rock>
+Birds of Tokyo - Brace (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Burn
-2. Sex and Money
-3. Job
-4. Gun
-5. Unfriendly World
-6. Ready to Die
-7. DD's
-8. Dirty Deal
-9. Beat That Guy
-10. The DepartedЖанр: Punk Rock / Garage RockПродолжительность: 00:34:54
+01. Harlequins
+02. Brace
+03. Empire
+04. Gods(   Читать дальше...   )Жанр: Alternative Rock, Electronic Indie RockПродолжительность: 00:46:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC9C3B834E2045CF5F7FF7CAB5C21C1F1A115906
+magnet:?xt=urn:btih:7A9F58A6FD1BC143BA67C38D91645801DC9DE622
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 645643   (854675) от 24.04.2013
+###  Публикация: 579429   (705019) от 12.08.2020
 
-Cinema Bizarre - 3 альбома, 3 сингла (2007-2009) [MP3|192-320 кб/с]<Alternative, Glam Rock / Powerpop>
+Motionless In White - 6 альбомов + 3 EP (2007-2020) [MP3|320 кб/с]<Post-Hardcore, Electronic, Metalcore, Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854675.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lovesongs (They Kill Me)
-02. How Does It Feel
-03. Silent Scream
-04. Get Off(   Читать дальше...   )Жанр: Alternative, Glam Rock / PowerpopПродолжительность: 00:14:31
+01. Another Life: Motion Picture Collection (feat. Kerli)
+02. Eternally Yours: Motion Picture Collection (feat. Crystal Joilena)
+03. Another Life: Motion Picture Collection (Instrumental)
+04. Eternally Yours: Motion Picture Collection (Instrumental)Жанр: Post-Hardcore, Electronic, Metalcore, Industrial MetalПродолжительность: 06:30:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADB0DDFF64037A8AE798BBC493B26266B542DF1C
+magnet:?xt=urn:btih:DC3D134C769AB72433445B2E2D8A6916878B6B27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,29 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875955   (852873) от 09.03.2015
+###  Публикация: 1220416   (704424) от 19.04.2018
 
-The War on Peace - Everyone Safe, Everyone Sound (2015) [MP3|320 кб/с]<Alternative/ Indie/ Electronic>
+GROVVES - Grovves (2017) [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Synthpop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fast Machine
-02. You're The Only One
-03. Men With Guns Going House To House
-04. In Every Dream
-05. I Need You(   Читать дальше...   )Жанр: Alternative/ Indie/ ElectronicПродолжительность: 00:54:05
+01. It Comes Around (feat. Jasmine Ash)
+02. Ghost Walk (feat. Anya Marina)
+03. Wish It All Away
+04. Without Fear (feat. Remmi)(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, SynthpopПродолжительность: 00:44:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E91854CD0426952860512606AF16ABD315C3A98
+magnet:?xt=urn:btih:BA9C0BF0664A2D51D9D7A74809A9219E17C6A053
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,29 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875974   (852866) от 09.03.2015
+###  Публикация: 1220547   (704412) от 19.04.2018
 
-Twin Arrows - Hell and Back (2015) [MP3|320 кб/с]<Alternative/ Heavy Psychedelic, Garage Rock, Blues>
+Useless ID & Тараканы! - Among Other Zeros and Ones (2018) [MP3|320 Kbps] <Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Half-face Crook (03:14)
-02. Fountain of Luck (03:40)
-03. I Dream I Drive (03:05)
-04. Merry Doll (05:13)
-05. Chevrotine (03:34)(   Читать дальше...   )Жанр: Alternative/ Heavy Psychedelic, Garage Rock, BluesПродолжительность: 00:47:23
+01. Useless ID - Yearbook
+02. Useless ID - True Punkrocker
+03. Useless ID - Ghetto Limits
+04. Тараканы! - Как обезвредить нам себя самих(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:20:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC3FC9ED603D39285F8B9DD6D96216267882338C
+magnet:?xt=urn:btih:E03AFAA00D324926F16999D7B6AD79D30B069090
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,29 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 876292   (852863) от 09.03.2015
+###  Публикация: 1026485   (701595) от 16.06.2016
 
-Sodium - Haven (2015) EP [MP3|320 кб/с]<Hardcore Punk, Crust>
+Red Hot Chili Peppers - The Getaway (2016) [MP3|320 кб/с] <Alternative Rock, Funk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Identitot (03:30)
-02. Die Entgleisten (02:19)
-03. Der Kunde ist König (03:25)
-04. Jens Apollo (02:45)
-05. Selbstreflexionskamera (03:00)(   Читать дальше...   )Жанр: Hardcore Punk, CrustПродолжительность: 00:19:49
+01. The Getaway
+02. Dark Necessities
+03. We Turn Red
+04. The Longest Wave(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 00:53:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55C45A06B65A282E9BFF151395267E0D0CF5506A
+magnet:?xt=urn:btih:248F8F0882146067CC198210301463780CAC8388
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,29 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 876203   (852861) от 09.03.2015
+###  Публикация: 1220781   (700630) от 21.04.2018
 
-The Wytches - Annabel Dream Reader (2014) [MP3|320 кб/с]<Alternative/ Indie/ Psychedelic Rock>
+phoenix/NEBULIN - Mainframe (2018) [MP3|320 Kbps] <Alternative Rock, Industrial Rock, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Digsaw (03:20)
-02. Wide at Midnight (03:19)
-03. Gravedweller (02:48)
-04. Fragile Male (03:47)
-05. Burn Out the Bruise (03:14)(   Читать дальше...   )Жанр: Alternative/ Indie/ Psychedelic RockПродолжительность: 00:46:48
+01. Play Pretend
+02. Purge, Create, Destroy, Rebuild
+03. Reset, #1076
+04. Omegaworks(   Читать дальше...   )Жанр: Alternative Rock, Industrial Rock, Female VocalПродолжительность: 00:49:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3124E88CA09CAEFADF247AC87C004586A6A0E1A9
+magnet:?xt=urn:btih:EBDC70D87DA4A69C1CEBED4F5E2CFD42EB1B2105
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,34 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 305124   (851285) от 10.03.2011
+###  Публикация: 1220764   (700542) от 21.04.2018
 
-Madball - Empire (2010) [MP3|320 kbps]<Hardcore>
+Opium Ink - Opium Ink (2018) EP [MP3|320 Kbps] <Alternative Rock, Electronic Rock, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Invigorate
-02. Danger Zone
-03. Timeless
-04. All or Nothing
-05. Glory Years
-06. Empire
-07. Shatterproof
-08. The End
-09. Con Fuerza
-10. R.A.H.C.(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:35:06
+01. Before You Go
+02. Porcelain Doll
+03. Heartbreaker
+04. Metallic Kiss(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Female VocalПродолжительность: 00:17:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2EC218AA825DD8C7C50A245E2320EB7A0828011
+magnet:?xt=urn:btih:9B2D38A5BF735C81D881FE039D0963CD50A5D794
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,25 +317,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 190439   (851239) от 12.04.2010
+###  Публикация: 1402134   (699819) от 15.08.2020
 
-Enter Shikari - Дискография (2003-2010) [MP3|192-320 kbps]<Post-Hardcore, Trancecore, Electrocore>
+Fit For A King - 5 Singles (2020) [MP3|320 Kbps] <Christian Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Студийные записи:Жанр: Post-Hardcore, Trancecore, Electrocore
+01 Locked (In My Head) (Single)Жанр: Christian MetalcoreПродолжительность: 00:16:52
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:ECB201192F8EB247AFF3F2951347FA049AB6CD7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +343,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377902   (850086) от 23.04.2020
+###  Публикация: 331375   (699177) от 04.05.2011
 
-Dance Gavin Dance - Afterburner (2020) [MP3|320 Kbps] <Post-Hardcore, Progressive Rock, Experimental>
+Poets Of The Fall - Alchemy Vol. 1 (2011) [MP3|320 kbps]<Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prisoner
-02. Lyrics Lie
-03. Calentamiento Global
-04. Three Wishes(   Читать дальше...   )Жанр: Post-Hardcore, Progressive Rock, ExperimentalПродолжительность: 00:48:29
+01. Can You Hear Me 04:15
+02. Late Goodbye 03:46
+03. Lift 05:13
+04. Illusion & Dream 05:15
+05. Stay 03:35
+06. Sleep 04:56
+07. Carnival of Rust 04:19
+08. Locking Up the Sun 03:54
+09. Roses 04:02
+10. The Ultimate Fling 06:53(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 1:08:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EC21AB611675C764B1BBBCEBC565F83659FA96B
+magnet:?xt=urn:btih:8B13258EAB477B1BFFF3184E8584D4E255519D74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +378,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377897   (848430) от 24.04.2020
+###  Публикация: 1132949   (698873) от 10.05.2017
 
-The Used - Heartwork (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Electronic>
+Kingdom Of Giants - 3 альбома (2013-2017) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848430.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paradise Lost, a poem by John Milton
-02. Blow Me (feat. Jason Aalon Butler)
-03. BIG, WANNA BE
-04. Bloody Nose(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:46:27
+01. Cash Out
+02. Lowlife (feat. Charlie Muscle)
+03. Damaged Goods
+04. Bored to Death(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 02:03:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29FDB168E37D0D11C89EEEF34F7F44F40990658D
+magnet:?xt=urn:btih:467A58DE38AAF5FB447A3150E9D2503F92B59F48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377867   (848337) от 24.04.2020
+###  Публикация: 1220980   (698598) от 22.04.2018
 
-Awolnation - Angel Miners & the Lightning Riders (2020) [MP3|320 Kbps] <Alternative, Rock>
+Blind Channel - Blood Brothers (2018) [MP3|320 Kbps] <Alternative Rock, Electronic>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848337.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Best
-02. Slam (Angel Miners)
-03. Mayday!!! Fiesta Fever (feat. Alex Ebert)
-04. Lightning Riders(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:39:22
+Финская альтернативная рок-группа Blind Channel выпустила свой новый альбом. Студийная пластинка получила название "Blood Brothers" и вышла 20 апреля 2018 года.1. Trigger (3:01)
+ 2. Sharks Love Blood (3:30)
+ 3. Wolfpack (3:18)
+ 4. Elephant in the Room (3:30)(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:36:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEB00D763490A087780E5060E2C961B27D46D4FD
+magnet:?xt=urn:btih:65664EF76BB2D2204030D3FB8628DB2F5601D907
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +436,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499505   (847677) от 02.10.2021
+###  Публикация: 1027195   (698463) от 18.06.2016
 
-Asking Alexandria - See What’s On The Inside (2021) [MP3|320 Kbps] <Post Hardcore, Metalcore>
+Starflyer 59 - Slow (2016) [MP3|320 кб/с] <Alternative Rock, Indie Pop, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847677.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Intro
-2. Alone Again
-3. Faded Out
-4. Never Gonna Learn(   Читать дальше...   )Жанр: Post Hardcore, MetalcoreПродолжительность: 00:40:12
+01. Slow
+02. Told Me So
+03. Cherokee
+04. Hi Low(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, Indie RockПродолжительность: 00:32:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86555BB07BC17CDB7807B13A6B72113DF12D2913
+magnet:?xt=urn:btih:91D0F3D4D4E6CE57ACB00CCE04A66E20D1CA7F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +465,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002747   (846849) от 01.04.2016
+###  Публикация: 1133079   (696715) от 11.05.2017
 
-Birdy - Beautiful Lies (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Folk, Piano>
+Paramore - After Laughter (2017) [MP3|320 Kbps] <Pop Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846849.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Growing Pains
-02. Shadow
-03. Keeping Your Head Up
-04. Deep End(   Читать дальше...   )Жанр: Pop, Indie, Folk, PianoПродолжительность: 01:09:24
+01. Hard Times
+02. Rose-Colored Boy
+03. Told You So
+04. Forgiveness(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:42:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96FD8755C142A3B71372032E0B3C7AC526F8234D
+magnet:?xt=urn:btih:253B51DAB92B568E7E67A0C699188D2596978C61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003482   (843318) от 03.04.2016
+###  Публикация: 1133261   (696606) от 11.05.2017
 
-Alice on the Roof - Higher (2016) [MP3|320 кб/с] <Alternative>
+Seether - Poison the Parish (2017) Deluxe Edition [MP3|320 Kbps] <Post-Grunge>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843318.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Let Me Down
-2. Feel Tonight
-3. Easy Come Easy Go
-4. Like a Dying Rose(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:37:53
+01. Stoke the Fire
+02. Betray and Degrade
+03. Something Else
+04. I'll Survive(   Читать дальше...   )Жанр: Post-GrungeПродолжительность: 00:59:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD56F86FF908C0765DDE23CB68514050F28B0B4C
+magnet:?xt=urn:btih:7C48564B535C231AA8129F8C6C6AF827B1101650
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +523,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003465   (843218) от 03.04.2016
+###  Публикация: 1221528   (693075) от 25.04.2018
 
-Weezer - Weezer (White Album) (2016) Japanese Edition [MP3|320 кб/с] <Alternative Rock, Power Pop>
+The Let Go - Too Much of a Good Thing (2018) EP [MP3|320 Kbps] <Alternative Rock, Pop Rock, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843218.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. California Kids
-02. Wind in Our Sail
-03. Thank God for Girls
-04. (Girl We Got A) Good Thing(   Читать дальше...   )Жанр: Alternative Rock, Power PopПродолжительность: 00:37:49
+01. Too Much of a Good Thing
+02. Love Somebody
+03. Disappearing Ink
+04. Work of Art(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Female VocalПродолжительность: 00:23:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1579B16335656B3665A7299EBB886ADF391B73BD
+magnet:?xt=urn:btih:33806F5BB87702649EBF03FDE183F8185ABE0173
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +552,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003486   (843203) от 03.04.2016
+###  Публикация: 1221783   (691378) от 26.04.2018
 
-The Cat Empire - Rising With The Sun (2016) [MP3|320 кб/с] <Ska, Funk, Indie>
+Ancient Lasers - No Photos on God Mode (2018) [MP3|320 Kbps] <Alternative Pop, Electronic Pop Rock, Electropop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843203.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wolves (03:24)
-02. Bulls (03:27)
-03. Midnight (04:23)
-04. Blasting Away (03:50)(   Читать дальше...   )Жанр: Ska, Funk, IndieПродолжительность: 00:43:05
+01. Luxury Info
+02. Monsters and Demons
+03. Lowlife
+04. Circular Fangs(   Читать дальше...   )Жанр: Alternative Pop, Electronic Pop Rock, ElectropopПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D35E3C8584C4216A7B08459707B2812DBB2E01A
+magnet:?xt=urn:btih:CA8547147145BCAC64078E9025D028EBB5EE6622
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +581,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379824   (837691) от 30.04.2020
+###  Публикация: 1028237   (689964) от 22.06.2016
 
-VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
+Kaleo - A/B (2016) [MP3|320 кб/с] <Alternative Rock, Indie>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837691.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. R.E.M. - The One I Love
-02. The Killers - All These Things That I've Done
-03. The Wallflowers - One Headlight
-04. Massive Attack - Protection(   Читать дальше...   )Жанр: Indie & AlternativeПродолжительность: 01:33:34
+01. No Good
+02. Way Down We Go
+03. Broken Bones
+04. Glass House(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:42:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5DA294E74E485E01EE09FE28334EF13CB0275D4
+magnet:?xt=urn:btih:8F8F16A3B02B663417B36FC65EFE69F00B5DA80A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +610,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005011   (836768) от 07.04.2016
+###  Публикация: 794816   (687470) от 13.06.2014
 
-Filter - Crazy Eyes (2016) [MP3|320 кб/с] <Alternative Rock, Post-Grunge>
+Linkin Park - The Hunting Party (2014) [MP3|320 кб/с]<Alternative>
 
->>Rock, Alternative, Punk, Metal
+>>След.
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836768.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mother E
-02. Nothing In My Hands
-03. Pride Flag
-04. City Of Blinding Riots(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:50:45
+Жанр: AlternativeПродолжительность: 00:45:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ADB9DC3DDB35B7EAC92E4381B15375F82C39F96
+magnet:?xt=urn:btih:80FF5AD27C14EADD767192276E7C90EE02C7CDAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501311   (836570) от 09.10.2021
+###  Публикация: 1222260   (684938) от 29.04.2018
 
-Malrun - Pandemonium (2021) [MP3|320 Kbps] <Modern Metal, Melodic Metalcore>
+VA - Ultimate Punk & New Wave (5CD) (2018) [MP3|320 Kbps] <New Wave, Art Rock, Glam>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836570.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - King of Madness [00:04:09]
-02 - The Mask of Joy [00:03:45]
-03 - Trail of Ashes [00:04:05]
-04 - Pandemonium [00:04:51](   Читать дальше...   )Жанр: Modern Metal, Melodic MetalcoreПродолжительность: 00:48:02
+Punk & New Wave - CD01
+01. The Jam - The Modern World
+02. The Damned - Neat Neat Neat
+03. Skids - Into The Valley(   Читать дальше...   )Жанр: New Wave, Art Rock, GlamПродолжительность: 05:15:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB4472F8399B6F081EA859BF3E09332603E2E7F4
+magnet:?xt=urn:btih:F4908EA4D78476EF21E4BC03021258EEC747E76B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379960   (836374) от 01.05.2020
+###  Публикация: 1135095   (684704) от 17.05.2017
 
-Car Seat Headrest - Making a Door Less Open (2020) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
+Blink-182 - California (2016) 2CD, 2017, Deluxe Edition [MP3|320 Kbps] <Pop Punk, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836374.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Weightlifters
-02. Can't Cool Me Down
-03. Hollywood
-04. There Must Be More Than Blood(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:22
+CD1:
+01. Cynical
+02. Bored To Death
+03. She's Out Her Mind(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 01:20:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFF5D3FA5BE1EA5619D8FD8DED113B624C579B9E
+magnet:?xt=urn:btih:2C4D4391E9385DC7A45A8776AE3702B4BF7BAD95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004922   (836165) от 07.04.2016
+###  Публикация: 1029060   (684047) от 25.06.2016
 
-Deftones - Gore (2016) [MP3|320 кб/с] <Alternative Metal, Post-Metal, Experimental Rock>
+Blink-182 - California (2016) [MP3|320 кб/с] <Pop Punk, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836165.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prayers / Triangles
- 02. Acid Hologram
- 03. Doomed User
- 04. Geometric Headdress(   Читать дальше...   )Жанр: Alternative Metal, Post-Metal, Experimental RockПродолжительность: 00:48:08
+01. Cynical
+02. Bored To Death
+03. She's Out Of Her Mind
+04. Los Angeles(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 00:42:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD0B5F7B1579A978BD5480DC42233DD896FAED9D
+magnet:?xt=urn:btih:516044E12C3CFC4B6D4F0BED2748F55F5B34EE7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -750,26 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 879356   (834710) от 19.03.2015
+###  Публикация: 1135121   (682905) от 18.05.2017
 
-Green Day - 25 Albums (1989-2014) [MP3|320 кб/с]<Punk Rock, Altenative Rock, Pop Punk>
+Gideon - 4 альбома (2011-2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834710.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Green Day (первод на русский “Зелёный день” – на американском сленге означает день “дуракаваляния”, проведенный за курением марихуаны) — это американская рок-группа. Она состоит из трёх участников: Билли Джо Армстронга (вокал, гитара), Майка Дёрнта (бас гитара, бэк вокал), Тре Кула (ударные).
-Green Day изначально были частью панк-рок среды, сформировавшейся вокруг (   Читать дальше...   )Производство: Lookout, RepriseЖанр: Punk Rock, Altenative Rock, Pop PunkПродолжительность: 18:18:52
+01. Gutter
+02. Bad Blood
+03. No Acceptance
+04. Overthrow(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 02:10:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DB5E3AAE5913BB9851CBA382608D2EBC0E8F060
+magnet:?xt=urn:btih:7AF59E1EFD8309CE8C4960B24C97853B11C1700A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1066957   (408022) от 28.10.2016
+
+Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before
+ 02. High And Low
+ 03. Two Vines
+ 04. Friends(   Читать дальше...   )Жанр: Electropop, New WaveПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E72F0768CE115608D2366A052DF83419387CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573492   (407539) от 03.09.2022
 
 Laserdance - Future Generation (1987) [OGG Vorbis|485 Kbps] <Synthpop, Electronic>
@@ -717,35 +746,6 @@ Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4665806A037E1CF7F482F507301E3AEFD24A11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580929   (328984) от 03.10.2022
-
-Macrocosm - First Mission (2002) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Universe
-02. Magic Miles
-03. Virtual Voltage
-04. Silent Warriors(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594A7FDB383BBA7CF80F6C067310ECB6BD8D9226
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1322757   (905359) от 28.08.2021
+
+Tracey Thorn - Full Studio Discography (1982-2018) [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen (4:17)
+02. Air (3:03)
+03. Guitar (2:33)
+04. Smoke (4:11)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159A3CE28E0EF68F7E9F682455695E60ECB9B104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369190   (903812) от 23.03.2020
+
+Bosson - Best of 11-Twelve (2013) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel (3:40)
+02. Every Single Time (3:58)
+03. Baby I Believe In You (3:44)
+04. Loveshock (3:21)(   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ADDCDB4244FB215D23CFACC4224D2A96B75414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369274   (903293) от 23.03.2020
+
+Dua Lipa - Future Nostalgia (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Future Nostalgia (03:04)
+2. Don't Start Now (03:03)
+3. Cool
+4. Physical (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE3F7E234D2366E2414F29BBE36539F9D8646DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992194   (902719) от 01.03.2016
+
+VA - Tulum Za Dusu Vol.9 - U Konobi (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver - Nadalina (4:47)
+02. Tomislav, Dani I Vedran - Pisme Iz Konobe (3:17)
+03. Novi Fosili - Diridonda (3:07)
+04. Trio Gust - Sve Su Koke Poludile (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC6335368C2C0B47216A4D50FA4A6C74EB19288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369516   (901507) от 24.03.2020
 
 The Weeknd - After Hours (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
@@ -625,122 +741,6 @@ Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994469   (889641) от 08.03.2016
-
-VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haiducii - Dragostea Din Tei (3:33)
-02. Bellini - Samba de Janeiro (2:48)
-03. Loona - Bailando (3:34)
-04. Mr. President - Coco Jamboo (3:38)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994555   (889631) от 08.03.2016
-
-Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Between The Eyes
-02. Hear No Evil
-03. Shadows Of Love
-04. Marie Claire(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918AC800E3B72FA53F27D652573DA4650C01597E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494461   (888980) от 07.09.2021
-
-Halsey - If I Can’t Have Love, I Want Power (Target Exclusive) (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tradition (3:46)
-02. Bells in Santa Fe (3:38)
-03. Easier than Lying (3:26)
-04. Lilith (2:47)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2134632F541CA88BF590CDFAA3B462DC3839E22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494363   (888828) от 07.09.2021
-
-VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Senza Una Donna (Original Italian Version) (04:27)
-02. Gianluca Grignani - La Mia Storia Tra Le Dita (05:09)
-03. Vasco Rossi - E... (Remastered 2017) (03:29)
-04. Franco Battiato - Centro Di Gravità Permanente (Remastered) (03:59)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A734CF6B099792E042AB71804C1D770380C70751
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1443283   (1034891) от 31.01.2021
+
+FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC|Lossless|tracks] <Folk, Electronic, Pop, Dance>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская музыкальная группа, выступающая на стыке электронной и фолк-музыки. Группа FOLKBEAT была образована студентками музыкального училища Гнесиных Аленой Минулиной, отвечающей за вокал, битбокс, loop station и вокалистками Светланой Шестопаловой, Светланой Ивановой, Марией Зибровой. Музыканты выступают как с собственными произведениями, так и с народными песнями.Коллекция содержит 2 альбома, 3 EP, 6 Синглов
+2015 - In Mixt
+2016 - Светлая встреча
+2015 - Порушка(   Читать дальше...   )Жанр: Folk, Electronic, Pop, DanceПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD53192941B07951A6C3DC18B348C2805FFE05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617377   (1034797) от 08.03.2023
+
+Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless|tracks] <Relax, Chillout, Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Days (3:20)
+02. Better Future (3:07)
+03. Prepare Great Meal (3:33)
+04. Melancholy Mood (3:02)(   Читать дальше...   )Жанр: Relax, Chillout, JazzПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2686958339FB11848402843BB62C226840CFCB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617498   (1034731) от 08.03.2023
+
+VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Electric Lover
+02. Interface - Strange Touch
+03. Dancing Fantasy - Voodoo Jammin (The Eros Mix)
+04. Software - Present Voice(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617225   (1034538) от 09.03.2023
 
 VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
@@ -656,93 +743,6 @@ VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257665   (1030590) от 18.02.2021
-
-VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Cumparasita - Julio Cortazon Orchestra 	(03:20)
-02. Adios Muchachos - Julio Cortazon Orchestra 	(01:39)
-03. El Choclo - Alle Gould Orchestra 		(02:18)
-04. Rio De La Plata - Armand Frydman & Deni Hekimian 		(02:20)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354958   (1030589) от 18.02.2021
-
-Валерий Приказчиков - 2 альбома (2004, 2008) [FLAC|Lossless|image + .cue, tracks] <Surf, Beat>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебют квартета «Электрон» состоялся в 1963 году в эфире популярной в то время радиостанции «Юность». Участники «Электрона» в разное время учились в музыкальных школах, В. Приказчиков и Е. Гусев занимались в музыкальном училище при Московской консерватории по классу гитары. Но настоящую школу они получили в художественной самодеятельности, в ансамбле гитаристов, которым (   Читать дальше...   )01. Электрон - Вернись 			  (1965) (02:33)
-02. Электрон - Мелодия из к-ф 'Бум' 	  (1965) (02:37)
-03. Электрон - Солнечные часы 		  (1966) (02:35)
-04. Электрон - Веселые туристы 		  (1966) (02:02)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295442   (1030584) от 18.02.2021
-
-Оркестр Вермишель - 5 альбомов (1996 - 2010) [FLAC|Lossless|tracks + .cue, image + .cue] <Instrumental, Ethno-Art-Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030584.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Оркестр Вермишель» («Vermicelli Orchestra») — российский инструментальный ансамбль, этно-арт-рок проект. Основатель коллектива и основной автор музыки — Сергей Щураков. Группа образована в 1996 году, состав группы менялся несколько раз и окончательно сформировался к 2000 году. В составе группы играли Илья Порхунов, Виталий Семенов, Наиль Кадыров, Всеволод Гаккель, (   Читать дальше...   )Список альбомов:
-1996 (2001) - Anabasis
-1999 - Византия
-2005 - Марк Аврелий(   Читать дальше...   )Жанр: Instrumental, Ethno-Art-RockПродолжительность: 03:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

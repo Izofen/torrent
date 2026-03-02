@@ -1,3 +1,61 @@
+###  Публикация: 1253114   (387904) от 07.10.2018
+
+Pulatova - Рой (2018) [MP3|320 Kbps] <Post-Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокалистка Flёur Ольга Пулатова представила первый альбом своего сольного проекта Pulatova: "Рой".1. Падение
+2. Сердце покоя
+3. Норадреналин
+4. Ящер(   Читать дальше...   )Жанр: Post-Rock, Indie RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EDB0449AFAA802D02B0560D0FB03C1D488FC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414138   (387872) от 07.10.2020
+
+Molly Hatchet - Battleground (2019) 2xCD Live [MP3|320 Kbps] <Hard Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387872.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Bounty Hunter (Live) (03:11)
+ 02. Whiskey Man (Live) (03:46)
+ 03. Why Woun't You Take Me Home (Live) (03:20)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC17A6EF1E99F41965DC34E3595D74A8E0EFEB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574555   (385708) от 05.09.2022
 
 The Butterfly Effect - IV (2022) [MP3|320 Kbps] <Alt.Rock, Progressive Rock>
@@ -694,64 +752,6 @@ Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C570A4DE9E892EB884D12A6A2D822CC073317FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949384   (377416) от 23.10.2015
-
-VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Grant - Two Of Us (Lennon/McCartney)
-02. Dennis Locorriere - Dig A Pony (Lennon/McCartney)
-03. Phosphorescent - Across The Universe (Lennon/McCartney)
-04. Beth Orton - I Me Mine (Harrison)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A7E95683263B973AB7534130578D9765D1D25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949553   (377338) от 23.10.2015
-
-VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]<Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gallops - Speak To Me
-02. Our Broken Garden - Breathe
-03. The Oscillation - On The Run
-04. Wolf People - Time(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F1AFE78412B9D9022E81A75692E7128CCAAD40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1008120   (816868) от 17.04.2016
+
+Пресеты - VideoHive - The Ultimate Glitch + 70 Presets Pack [FFX, AEP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816868.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Ultimate Glitch + 70 Presets Pack - набор глюковых пресетов для видео и текста. Добавьте изюминку в ваши проекты, используя уникальные переходы и эффекты, созданные без применения плагинов.Формат: FFX, AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35219752D31227F84DC66300CE002F57D35F3D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 117244   (816758) от 06.01.2018
 
 Стили - Styles Collection for Photoshop 56 [ASL]
@@ -668,34 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E595594824F50504822759DDF2CF3E5D58A18B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196647   (815507) от 07.01.2018
-
-Векторный клипарт - Ornamental Vintage Labels 55 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные винтажные этикетки
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1153B9D8783F7FDCA92371F6F2D0B6D3F7A64300
 ```
 
 https://mybot314.ru/tekegram_catalog/

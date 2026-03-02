@@ -1,3 +1,218 @@
+###  Публикация: 920445   (579998) от 22.07.2015
+
+VA - (Score) Sonic The Hedgehog 4 Episode I & II (2012) [MP3|320 кб/с]<Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип собранный из Lossless качества01. Sylvania Castle Zone Act 3
+02. White Park Zone Act 1
+03. White Park Zone Act 2
+04. White Park Zone Act 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A05E5EF48C0CE1C62915DA8DB02A5A63C78092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360339   (579914) от 08.07.2011
+
+VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360448   (579912) от 08.07.2011
+
+VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Holland feat. Yana Kay - Tears In The Rain (Alex M.O.R.P.H B2b Woody Van Eyden Remix) (8:17)
+02. Ava Mea - In The End (Original Mix) (9:25)
+03. Jarah Damial - Incognata (Original Mix) (9:06)
+04. Rihanna - S & M (Dave Aude Club) (7:28)
+05. Calvin West - Children (5:32)
+06. Bassmonkeys Feat. Natasha Anderson - I 'll Show You Love (Bassmonkeys Club Mix) (6:56)
+07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) (7:26)
+08. J Latif- I Wanna Go There (Stonebridge Club Mix) (6:21)
+09. DJ Danila ft Gosha - Let The Music (Belocca Remix) (7:02)
+10. Filo & Peri vs Ronski Speed - Propane (Original Mix) (6:33)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360693   (579911) от 08.07.2011
+
+VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albin Myers - Faking Love (Sebastien Drums & Rob Adans Remix) (6:03)
+02. Alice Deejay - Better Off Alone (Laidback Luke Remix) (5:03)
+03. Antoine Clamaran feat. Laurent Pautrat - Somebody Scream (Original Mix) (7:03)
+04. Armin Van Buuren feat. Nadia Ali - Feels So Good (Armin Van Buuren Club Mix) (6:26)
+05. Bella - Nobody Loves Me (Hardwell Remix) (6:03)
+06. Belmond & Parker - On The Move 2k11 (Club Mix) (6:17)
+07. Ben Preston feat. Max Fredrikson - Glorious 2011 (Cliff Coenraad Remix) (7:15)
+08. Cahill feat. Joel Edwards - In Case I Fall (Club Mix) (6:56)
+09. Cobra Starship Ft. Sabi - You Make Me Feel (Disco Fries Extended Mix) (5:31)
+10. Craig Connelly - Absolute Electric (Tritonal Club Mix) (7:50)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553627   (579876) от 28.05.2022
+
+VA - Deep Night Deep House 3 (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eelke Kleijn feat. Nathan Nicholson - Taking Flight (4:47)
+02. Eldar Stuff, Tim Cosmos - Morning (5:43)
+03. Rusez1 - Just Thoughts (3:16)
+04. dndm - In My Dreams (5:07)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C354141FA01CF722785728DA9A99CA7783BDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360318   (579874) от 08.07.2011
+
+VA - Жаркие Хиты Лета (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBC2240CAEAE2D3244612F62D8C132184227E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358630   (579828) от 08.07.2011
+
+Сборник - Союз 48 + Союз "Дебют" (2011) [MP3|320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Георгий Белов - Эрос 3:27
+2 JONI BEK - Песни для любимой 2:49
+3 Максим Бурматов - Мимо проходи (remix) 3:15
+4 The Stokes - Под куполом небес 3:34
+5 Алексей День - Быть с тобой 3:31
+6 Крестные братья - Чарли Буба 3:18
+7 VERBA - Научись летать 3:16
+8 Глебова Елена - Я не та 3:28
+9 Павлычева Алиса - Нашу любовь не вернуть 3:24
+10 Александр Яковлев - Батя 4:03(   Читать дальше...)Жанр: PopПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63931412E6D0C6805F0ABB2217C8FD60D5B7F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042108   (579678) от 12.08.2016
 
 VA - Electro House Session (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
@@ -542,203 +757,6 @@ VA- Cafe Lychee  Volume 1 (2010) [MP3|320 kbps]<Trance, Vocal Trance, Uplifting 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A2334C9169238420CFB9D5CCBC2928575827F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360881   (578766) от 09.07.2011
-
-VA - Летний бум хитов (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3C2E45376933A10021C25CA4FF436FC55EF7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360643   (578749) от 09.07.2011
-
-VA - Superchart Радио Record Часть 4 (2011) [MP3|256 kbps]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ClubПродолжительность: 12:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8864891FF5FF757CA6FA76C64CCF7B8F644C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361002   (578748) от 09.07.2011
-
-VA - Love: I Land  Listening 27: On walks the Night (2010) [MP3|320 kbps]<Erotic Downtempo, Easy Listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapsody ft. Angelique Kidjo & David Whitley - A child is born
-02. 4 To The Bar - Ain't No Sunshine, When She's Gone
-03. Alan De Laniere ft. Gladys Tacita - Hey Listen
-04. Connie Price & The Keystones - Sucker Punch
-05. General Levy - Indian Pearl
-06. Prince Alec - Fade Away
-07. The Peter Malick Group Ft. Norah Jones - Strange Trasmissions (DJ Strobe Bossanova Remix)
-08. Infusion - Daylight Hours
-09. Tape Five - ...Quero Te A Sambar
-10. Jesse Cook - On Walks The Night(   Читать дальше...   )Жанр: Erotic Downtempo, Easy ListeningПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D5F92F023715E8E018684A739A5162C86CB568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360848   (578710) от 09.07.2011
-
-VA - Дискотека ВКонтакте №1 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E89963447F1F9FB7320A2BF8984A538F17C90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204664   (578704) от 29.05.2022
-
-VA - Админские песни (1998-2010) [MP3|64-192 kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578704.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. PR, MEX - Админ (3:42)
-01. Админ (3:29)
-02. Админы (1:37)
-03. Давай за... (SkyNet Tribute) (3:16)(   Читать дальше...   )Жанр: OtherПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AF4AE27FBFF4F167605898A8ACB9CE22DD8AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920710   (578676) от 23.07.2015
-
-VA - Top 300 Russian Hits (2015) [MP3|320 кб/с]<Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лицей - Где-то
-002. Юрий Третьяк - Париж
-003. Доминик Джокер - Лишь небо знает
-004. Bahh Tee - Перекрёстки(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 18:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC047CBCADABDC14B002383AE4FB1E80930C1F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359421   (578589) от 09.07.2011
-
-VA - France Hits 100% (2008) [MP3|256 kbps]<Pop | Dance | Лирика>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop | Dance | ЛирикаПродолжительность: 06:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BF1BD48D65CC344CFCED2A275DA027A7A71F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

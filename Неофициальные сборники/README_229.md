@@ -1,3 +1,206 @@
+###  Публикация: 1127747   (731145) от 22.04.2017
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Громова - Не Хочется 2:58
+002. Mike Perry Feat. Casso - Inside The Lines 3:25
+003. Катерина Sky - Мне Тебя Не Хватает 3:21
+004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127755   (731144) от 22.04.2017
+
+VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731144.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Швец - Фиолент 2:27
+002. Тина Кароль - Lost In The Rain 3:18
+003. Ольга Бузова - Привыкаю 3:49
+004. Катерина Корс - Так Близко 3:49(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127764   (731138) от 22.04.2017
+
+VA - Высшая лига. Весна выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731138.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Непара - Половинки 3:44
+002. Nina Ann - Ты Спросишь Однажды 3:30
+003. Лена Семенова - Уверен Ли Ты 3:46
+004. Лаурита - Пока Пока 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1825A9F4ECD0281FDD0393D96D56A1A98D13BD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127757   (731136) от 22.04.2017
+
+VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Пающие Трусы - Давай Туси 3:01
+002. Леля - Грешная 3:43
+003. Ваня Чебанов - Ты №1 3:41
+004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127798   (731131) от 22.04.2017
+
+VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731131.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claptone Ft. George Kranz - The Drums (Din Daa Daa) 3:26
+002. Nalin & Kane - Beachball 2017 (Sebastien Remix) 2:58
+003. DJ Higheffect Ft. Silvia Dias - Sweet Dreams 3:35
+004. Tujamo - Make U Love Me 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946CA398AE0B2F5E51ED000C2E2FEB26861B4598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127776   (731130) от 22.04.2017
+
+VA - Весенний хит-парад на радио Шансон выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - В Мире Грез 4:25
+002. Валерий Лукашевский - Я Не Касался Губ Твоих 3:31
+003. Сергей Трунов - Старый Дом 3:28
+004. Владимир Ворон - Пой Моя Гитара 3:32(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE9B48B007E9FC902724DED70155D2034813EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127785   (731129) от 22.04.2017
+
+VA - Любимые песни шансона. Выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Прянов & Наталья Сколубович - Не Исчезай 3:38
+002. Ирина Рибейро - Кофе В Постель 3:26
+003. Владимир Захаров - Я Не Пойму 3:26
+004. Семен Канада - Как В Кино 3:50(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D876607A0E78CE0D1CD7A27EBB4A7E93C3831495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127742   (731124) от 22.04.2017
 
 VA - Положительный заряд от Хит FM. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -542,212 +745,6 @@ VA - German Top 100 Single Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD13A2ABE494B536B28A4ACF49C31A7F7EBCA5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127646   (730850) от 22.04.2017
-
-VA - Italo Disco Hits Vol.13 (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Siberian Heat - Magic Blue Eyes (Maxi Version)  8:37
-02.  Savage - Save Me (Flashback Remix)  6:42
-03.  Digital Emotion - Get Up, Do You Wanna Funk (Special Effects Mix)  4:46
-04.  Boris Zhivago - Love Is a Memory Away (Radio Russian Mix)  5:36(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 07:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBE446E6C2ADBBCE684032D63C1E472BD65F665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530101   (730769) от 09.02.2022
-
-Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation Album) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Darkwave, Gothic Rock, Post-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalt
-02. Glimmer Og Aska
-03. Lítil Dýr
-04. Næturdætur(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Post-PunkПродолжительность: 00:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDA606581BC786DDC220419D23D0C7647B34727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127679   (730701) от 22.04.2017
-
-VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Geoff Everett Band - Lost At Sea (Feat. Mollie Marr...)  (06:29) 
-02. Brad Curtis & The SOME x 6 Band - Be Still 2017  (04:49) 
-03. Mark Selby - Back Door To My Heart  (04:01) 
-04. Dizzroxx - Nuclear Shit  (03:33) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127713   (730603) от 22.04.2017
-
-VA - Автозвук. Лучшее в Дорогу. (Sound Clinic - Bass Overdose Edition) (2017) [MP3|320 Kbps] <House, Techno, Progressive, Electro, Trance, Trap, DubStep, Chill>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Side:
-01. Audiofly, Georgia Lewis - In The (Last) Moment (Original Mix)
-02. Florian Kaltstrom - E1 (Original Mix)
-03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: House, Techno, Progressive, Electro, Trance, Trap, DubStep, ChillПродолжительность: 35:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06EC63688D6350F1B1CBA9F466F77FE442BDF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127586   (730595) от 22.04.2017
-
-VA - Hits of My Soul Vol. 26 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. A Perfect Circle - The Outside (Resident Renholder Mix) (05:27)
-02. Disturbed - The Light (04:17)
-03. KoRn - Coming Undone (03:20)
-04. Sugababes - Come With Me (06:08)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6860190FE00D3CEBA11E52EC9B7A1589693783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530112   (730527) от 09.02.2022
-
-VA - Approaches & Tribute To JJ Cale Compilation (2022) [MP3|320 Kbps] <Rock, Blues,>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loopahead - Jailer
-02. Loopahead - Lou-Easy-Ann
-03. John Mayer & Eric Clapton - Don't Wait
-04. Dixie Tabernacle - Anyway The Wind Blows(   Читать дальше...   )Жанр: Rock, Blues,Продолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEAA4EE337ABF377CAA26733A0886EC4C0F56FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283916   (730445) от 19.02.2019
-
-VA - 100% House Music: Top Dance (2019) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sione - Neptuno
-002. Iag And Omoc - Seven Days
-003. Paradigma - I Need Your Love
-004. Boss Axis - Empty Streets(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 11:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B186A275738B48FC1B914F4C7F33D515715322
 ```
 
 https://mybot314.ru/tekegram_catalog/

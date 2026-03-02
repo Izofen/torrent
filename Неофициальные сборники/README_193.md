@@ -1,3 +1,206 @@
+###  Публикация: 1012346   (778338) от 02.05.2016
+
+VA - Mega Hits Euro Top N7 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milena - One Two Three
+02. Remady & Manu-L - Another Day In Paradise
+03. Sak Noel & Luka Caro & Ruben Rider - Pinga
+04. The Avener & Kadebostany - Castle In The Snow(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE3A5C8AA1D061DFA563DB062E212464992B47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012857   (778331) от 02.05.2016
+
+VA - Супер Auto-Hit Новинки (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778331.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zion & Lennox - Embriagame
+ 002. Катя Нова & Dee Flack - Я Буду С Тобой
+003. Joyce Edwards - Обжигая Крылья
+004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A36745D01FB574D04F49E877790852F5C2089A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012760   (778328) от 02.05.2016
+
+VA - Русское радио. Веселой Пасхи! (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Агонь - Я Буду Любить Тебя
+002. Винтаж - Немного Рекламы
+003. Виталий Козловский - Отпускаю На
+004. Aisha - Сильно Сильно(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DABD94A0BD08B5D0E5E4B3C50C02A02280DE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211077   (778237) от 05.03.2018
+
+VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clouds Testers  -  Inhale The Love (Semenovb Instrumental Remix)  3:58
+02.  Jurgen Paape  -  Whisper Echo (Original Mix)  5:00
+03.  Luke Lucid  -  Black Star (Original)  5:28
+04.  Sebastian Davidson  -  Golden Age (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E6DCFD737F854D79A6B683BEA372697F6847DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211096   (778204) от 05.03.2018
+
+VA - Empire Records - Deep Disco 7 (2018) [MP3|320 Kbps] <Disco, Nu Disco, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Olej & Stereoteric feat. Kristina Tiurina  -  Trust Me (Remix)  3:01
+02.  Robert Cristian  -  My Road (Original Mix)  3:05
+03.  QRVZH  -  Sunshine (Original Mix)  5:24
+04.  Vanotek feat. Eneli  -  Tara (Andrew Brooks Remix)  5:04(   Читать дальше...   )Жанр: Disco, Nu Disco, DanceПродолжительность: 01:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FEA6C0EF30F86661692FE6AE5794A4F0966B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211123   (778154) от 05.03.2018
+
+VA - Nostalgie Chansons Francaises (2018) [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La groupie du pianiste - Michel Berger
+02. Ella, Elle L'A - France Gall
+03. Vancouver - Veronique Sanson
+04. Ce n'est rien - Julien Clerc(   Читать дальше...   )Жанр: ChansonПродолжительность: 04:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D11F3469B3E9486963BB55AD41CBBFF83BE0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211032   (778086) от 05.03.2018
+
+VA - Trance Collection Vol.68 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
+02.  Driftmoon feat. Julie Thompson  -  Only You (Extended Mix)  8:09
+03.  Ula  -  Re Zero (Jimmy Chou pres Prototype Remix)  6:07
+04.  Standerwick feat. HALIENE  -  Deep End (Club Mix)  4:52(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 10:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2446057CE97512EBB263FB95A0848C354F07267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211084   (778025) от 05.03.2018
 
 Space - Slide by Eliyev Veli (2018) Remix [MP3|256 Kbps] <Club, Dance>
@@ -541,209 +744,6 @@ VA - Зажигательный молодежный музыкайф на Europ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4C66608D90228DF2F0377F696ACF30F4DD5C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013349   (777613) от 04.05.2016
-
-VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rozalla -  Everybody's Free (To Feel Good)  3:33
-02. Crystal Waters -  100% Pure Love  3:08
-03. Faithless -  Take The Long Way Home  4:06
-04. Elton John -  Can You Feel The Love Tonight  3:59(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA310B9A2EEFC59D6388D58314E056A8D756CA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013147   (777610) от 04.05.2016
-
-VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rita Ora - Poison
-002. Джиган - Ахумилительная Туса
-003. Dushia & Bel-Mondo - Change Me
-004. Filous Feat. James Hersey - How Hard I Try(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92B21201696E2EFE9375C962F2B62CA93535698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013122   (777607) от 04.05.2016
-
-VA - Радио Шансон. Легендарные хиты №1 (2016) [MP3|219-232 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777607.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. М.Круг - Владимирский централ
-002. В.Коротин - Девчонка из Кургана
-003. И.Кучин - Человек в телогрейке
-004. Г.Кричевский - Мой номер 245(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456C9ABC7FA83E380D6CB2E9033D94E5063DFDA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013358   (777587) от 04.05.2016
-
-VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base - Cruel Summer (Yogi Nando Remix)
-02. Ace Of Base Feat Offer Nissim & Maya - All That She Wants (D-VIBE Mashup)
-03. Adele - Hello (DJ Zhukovsky Mix)
-04. Alex Kafer & Lera - Don't You Believe To Tears (Shura Cover 2016)(   Читать дальше...   )Жанр: PopПродолжительность: 07:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6912A745D15D20FB0AA3306DA47CE6AA7201228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211520   (777568) от 07.03.2018
-
-VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fog vs Chus & Ceballos - Been A Long Time (Mark Knight Remix) [08:04]
-02. Definition, Def:Play & Roland Clark - I Dream Deep (Olivier Giacomotto Remix) [07:16]
-03. Tini Garcia - Tous [06:52]
-04. The Glitz - Hook Up (Feat Fadila) [07:21](   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 08:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6987FFAF3E58A07458FFCD28323F1B10420DB1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211338   (777560) от 07.03.2018
-
-VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sou El Flotador Ft Anonimus - Maniatica (Intro Dirty) 4:13
-02. Vakero - Anaisa (Djdx) (Intro Clean) 3:05
-03. Galante El Emperador Ft Indy Flow Y Castigo El Buho - Rico (Dirty) 3:48
-04. Kelmitt Ft Lary Over Y Farruko - Recuerdos (Clean) 4:39(   Читать дальше...   )Жанр: Dembow, Salsa, ReggaetonПродолжительность: 02:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C01FBC13CEB16B008A7DBBA7A6D87F8CDED3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211484   (777550) от 07.03.2018
-
-VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777550.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Stars On 45 - Proudley Presents Star Sisters (4:00)
-002. Shorts - Comment Ca Va (3:14)
-003. Michael Jackson - Beat It (4:12)
-004. Lionel Richie - All Night Long (6:20)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

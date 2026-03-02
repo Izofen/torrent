@@ -1,32 +1,3 @@
-###  Публикация: 1619505   (1032911) от 16.03.2023
-
-Maria Daines - Little Bird (2023) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Me (7:31)
-02. The Last Bullet (5:24)
-03. Little Bird (4:34)
-04. Last Words (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B507BDD538E48DEE3F61E230CFF2F6FF5E6413C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619509   (1032905) от 16.03.2023
 
 VA - British Blues: From Skiffle to Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -745,6 +716,35 @@ Jim Oblon - I Wanna Be Loved (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C5A2BC549F0348DF8ABA707C9897B76A3CE788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620294   (1032360) от 19.03.2023
+
+PD Martin - Soulbeat Incarnate (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Me Pay (4:09)
+02. Come To Bed (3:01)
+03. Strip It Down (3:29)
+04. Burn The Witch (4:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A021E2CB2217B1223D8B622787E6B071A65A85
 ```
 
 https://mybot314.ru/tekegram_catalog/

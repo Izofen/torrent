@@ -1,238 +1,3 @@
-###  Публикация: 999585   (862520) от 23.03.2016
-
-James Brown - 10 Of The Best (2015) [MP3|320 кб/с] <Funk, Soul, R&B>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please, Please, Please
-02. Papa’s Got a Brand New Bag
-03. Cold Sweat
-04. Say It Loud – I’m Black and I’m Proud(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FAA5AA9F9858F24730B4D8BCD5D2C5E723D464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108811   (862339) от 25.02.2017
-
-Gary Moore - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Blues
-02. Always Gonna Love You
-03. Don't Believe A Word
-04. Love Me Now(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68EFC65B994ADEF18B9C9DF5369515045366518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109051   (860572) от 26.02.2017
-
-Joe Cocker - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain My Heart
-02. You  Are So Beautiful
-03. You Can Leave Your Hat On
-04. Bird On The Wire(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C0F77C657C601AB9515F92ABF2D64896FCF748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108970   (860563) от 26.02.2017
-
-ZZ Top - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Jean Blues
-02. It's So Hard
-03. Joe Blues
-04. 2000 Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6026CB333077CBAD413D4B871C34E6B076E054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109415   (858896) от 27.02.2017
-
-Janis Joplin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farewell SongЖанр: Blues, Blues RockПродолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A932503CC3AC26CC11420C662E7FA2896CC5AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647199   (858318) от 22.04.2013
-
-VA - Modern Acoustic Blues - The Best (1988-2012) [MP3|320 кб/с]<Modern Acoustic Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Buddy Guy And Junior Wells - Give Me My Coat And Shoes (3:49)
-2. Buddy Guy And Junior Wells - Sweet Black Girl (3:32)
-3. Buddy Guy And Junior Wells - Diggin' My Potatoes (4:27)
-4. Buddy Guy And Junior Wells - Don't Leave Me (3:42)
-5. Buddy Guy And Junior Wells - Rollin' And Tumblin' (4:33)
-6. Buddy Guy And Junior Wells - Wrong Doing Woman (2:59)
-7. Buddy Guy And Junior Wells - Catfish Blues (3:33)
-8. Buddy Guy - Crawlin' Kingsnake (5:17)
-9. Buddy Guy - Lucy Mae Blues (3:33)
-10. Buddy Guy - Anna Lee (4:14)(   Читать дальше...   )Жанр: Modern Acoustic BluesПродолжительность: 06:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50E9EFA983693D3A52ED0B670512C33F7ECA948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376815   (856456) от 19.04.2020
-
-VA - Whiskey Blues - Blues Soldier (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sherman Robertson - Make It Rain
-02. Aron Burton - Cold, Cold Feeling
-03. Mick Kolassa; Annika Chambers - Fever
-04. Blackbox Zero - Crossroads(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 17:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C618EE3A793069BAEFA097B0B3DAF8AD3F2A9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109988   (855403) от 01.03.2017
-
-Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long
-02. Mannish Boy
-03. Come to Me Baby
-04. Goodbye Newport Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76760E4B9785AA5C317302C983624491F1570A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109986   (855387) от 01.03.2017
 
 Koko Taylor - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -747,6 +512,238 @@ VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CEF850C96EE188B45049F5BA3FF611763449AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112746   (841222) от 09.03.2017
+
+Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Blues (With Harmonica)
+02. Voodoo Chile Blues
+03. Born Under a Bad Sign
+04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113131   (839869) от 10.03.2017
+
+Keb' Mo' - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Way
+02. That's Alright
+03. One Friend
+04. Somebody Hurt You(   Читать дальше...   )Жанр: BluesПродолжительность: 02:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB3C32A6FA046227D43257D02A5F096F0A19128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500187   (839582) от 07.10.2021
+
+Willie May - Moon Blues Positive (2009-2015) Compilation Album [MP3|320 Kbps] <Blues Rock, Country Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Legged Woman
+02. Dealin' With The Devil
+03. Greta
+04. Jason Twisted My Arm Blues(   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14B940BAA84F36C3CA884842DCDED9E365290BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112954   (839523) от 10.03.2017
+
+Joe Bonamassa - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reconsider Baby
+02. You Upset Me Baby
+03. How Many More Years
+04. Stop!(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744BF8C4EB1268ACAD6AE96EE00113DEF7808FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113508   (838078) от 11.03.2017
+
+Fleetwood Mac - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Baby (Studio Demos 1969)
+02. First Train Home
+03. If You Be My Baby
+04. Warm Ways(   Читать дальше...   )Жанр: BluesПродолжительность: 03:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B923D4B94A9D35A1F0C8DE74EF59003BE21771B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113951   (835094) от 13.03.2017
+
+Chris Bell - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Jobs
+02. Ain't Seen Nothing
+03. Cold-Hearted Woman
+04. Deli Man(   Читать дальше...   )Жанр: BluesПродолжительность: 02:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A40C66424303404EA549397902990E1065462EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501150   (835045) от 10.10.2021
+
+VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Steoples - Alas Alice
+002. Timewarp Inc - Breakbit
+003. Eunice Haze - String Around My Heart
+004. Niles Philips feat. Tonkin - Nose Dive(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 08:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114048   (834999) от 13.03.2017
+
+Blues Cousins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoochie Coochie Man
+02. Nobody Knows
+03. The Brother
+04. The thrill is gone(   Читать дальше...   )Жанр: BluesПродолжительность: 02:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A33909306A523C81046D7BFA430BF3182B950D
 ```
 
 https://mybot314.ru/tekegram_catalog/

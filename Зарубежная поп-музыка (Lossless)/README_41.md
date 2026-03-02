@@ -1,3 +1,116 @@
+###  Публикация: 909755   (626002) от 18.06.2015
+
+Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 U With Love
+02. Deja Vu (feat. Sia)
+03. Diamonds (feat. Charli XCX)
+04. Don’t Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543788   (625656) от 13.04.2022
+
+VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rakel Project - Estas En Mi CorazonЖанр: Italo-Disco, Euro-DiscoПродолжительность: 2CD, 02:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0763D64F06DDBEC16759EBDBEA56D13C4AAB97BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144668   (625359) от 23.06.2017
+
+Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retrowave, Synthpop, Dreamwave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home (Prologue)
+02. Lovers (feat. Seawaves)
+03. Come Back
+04. Waiting(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, DreamwaveПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7B6AFDCF0ABC5D14D176D7064B38C592414E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294883   (624122) от 10.04.2019
+
+Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Break Me (3:36)
+ 02. Not Over You (3:57)
+ 03. Odds Are Against Us (4:00)
+ 04. California High (4:27)(   Читать дальше...   )Жанр: Pop, Electro, DowntempoПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D487866B7F7A7C49E51F29ABC4032616A7E4F53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909994   (623296) от 19.06.2015
 
 Скрябін (Скрябин) - Дякую люди (Останній запис) (2015) 2CD Live [FLAC|image+.cue]<Pop-Rock>
@@ -629,123 +742,6 @@ VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296006   (615139) от 15.04.2019
-
-Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swear It Again
-02. If I Let You Go
-03. Flying Without Wings
-04. Fool Again(   Читать дальше...   )Жанр: Europop, BalladПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72885DDAEE61FB7AB7A318E912462A8F376222A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296001   (615132) от 15.04.2019
-
-VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental / Jess Glynne / Macklemore / Dan Caplen : These Days (feat. Jess Glynne, Macklemore & Dan Caplen) [00:03:31]
-02. Fleetwood Mac : Everywhere (2017 Remaster) [00:03:46]
-03. Dua Lipa : Be The One [00:03:22]
-04. All Saints : Pure Shores [00:04:28](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545405   (614904) от 19.04.2022
-
-Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Ask Of You (Phantom Of The Opera)
-02. Something's Coming (West Side Story)
-03. Losing My Mind (Follies)
-04. Memory (Cats)(   Читать дальше...   )Жанр: Vocal, Musical, SoundtrackПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7DDB4E98D19D197F7CB62513D2DA90D76A9158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230688   (613869) от 13.06.2018
-
-VA - Top Of The Pops '1976 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодняшним релизом продолжаю небольшую (пока) серию путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1:
-01. ABBA - Dancing Queen   (3:50)
-02. Billy Ocean - Love Really Hurts Without You   (3:00)
-03. Tavares - Don't Take Away The Music   (3:40)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 03:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFFF959756E49A42AB79F49E508DC9609E23C5CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

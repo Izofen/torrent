@@ -1,3 +1,206 @@
+###  Публикация: 990107   (912011) от 25.02.2016
+
+VA - Летят года (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Павел Филатов - Летят Года
+002. Юрий Дьяченко - Слава
+003. Сергей Сорос - Тоннеля Свет
+004. Александр Курган - Твое Хочу(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610D18C4D2652ED53A38ECECCE5FA0B346639985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990467   (912009) от 25.02.2016
+
+VA - Водила, трогай! (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Геннадий Ура - Мне Немного Фарту И Масти
+ 002. Геннадий Вяземский - Исповедь Ходока
+ 003. Лукьяновка - Сонька-Золотая Ручка
+ 004. Николай Тюханов - Водила трогай(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCD9FEEF0780988DCB08291E7FDD0DEB375FEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990355   (912002) от 25.02.2016
+
+VA - Coffee and Rhythm: Acoustic Guitar Songs to Start the Day (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincent Migliorisi - Le 3 del pomeriggio
+02. Dylan Colby, Timothy Ian Geraghty - Sweet Spot
+03. Maurizio Carlini - Smooth Sea
+04. Erba Tom, Auger Paula - Luck of the Draw(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC46C4DB3468456FB037A54C5F4FC98B81157E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990114   (911998) от 25.02.2016
+
+VA - Ultimate Drive (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911998.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Meat Loaf - Bat Out Of Hell
+02. Bonnie Tyler - Holding Out For A Hero
+03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1EF5EF5E13A00F0CB380D13EE97E73644F1970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990183   (911996) от 25.02.2016
+
+Александр Шеваловский и анс. Обертон - 12 встреча. Сонечкины именины (1979) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Необычно хлопотно в квартире
+03. Мы едем на именины
+04. К Сёмочке зашли мы по дороге(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14159E6CB7A88EAD6D570DABE439E17640EE124A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990213   (911995) от 25.02.2016
+
+Федосей - Новые и лучшие песни высшей пробы 999 (2016) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А ты попробуй.
+02. Эх,Америка
+03. С малолетства начинал
+04. Из горла за корешей(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CB876CB595E09A57A7976271A3C7B1128FAB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386076   (911788) от 24.08.2021
+
+The Rolling Stones - 100% The Rolling Stones in Blues (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honky Tonk Women
+02. Ride 'Em On Down
+03. Just Your Fool
+04. Hate To See You Go(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9215312551FE1FFE25EA6F930BF26EBE92C1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097642   (911779) от 28.01.2017
 
 VA - Enigmatic Songs (2017) 3CD [MP3|256 Kbps] <Enigmatic, New Age>
@@ -543,206 +746,6 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F678CE7E06B521811C5A8720A0AB11599DBAD38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 313266   (910131) от 19.03.2020
-
-VA - Песни подводного флота (2009) [MP3|256 kbps]<Военный шансон, Бард>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Военный шансон, БардПродолжительность: 03:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6635E23F7782C1988C7295DEADC32E55311085F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227233   (910026) от 25.08.2021
-
-The Rolling Stones & Mick Jagger - The Best of 1964-2017 Vol.1-2 (2018) [Compiled by Firstlast] [MP3|192-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пpодолжительность: 04:35:21
-01. (Get Your Kicks On) Route 66 [2:25]
-02. Now I've Got A Witness (Like Uncle Phil & Uncle Gene) [2:35]
-03. Honest I Do [2:14](   Читать дальше...   )Жанр: RockПродолжительность: 09:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E041ACB7F3C61323E85904072111B6C68345AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990769   (909937) от 26.02.2016
-
-VA - Winter Fragment: Relax Party (2016) [MP3|320 кб/с] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelika - My Surreal Dream (Ambient Mix) 02:41
-002. Ferry Corsten Feat. Temperheart - Not Alone (Chill Version) 04:51
-003. Moonnight Feat. Natune - I Need A New Love 03:44
-004. Dreamman Feat. York - Moonrise On The Beach 07:45(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 10:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AFECB473D536BFF686A1338B2063DF07593FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990792   (909922) от 26.02.2016
-
-VA - Sunrise Lovers Vol.2: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UK One - Levitate
-02. Sarah Martin - Paradise
-03. James Walden - Maria Maria
-04. Lounge Surfers - Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEBE10F93AA872249E6FC7BB2A9E14C5AD9A720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097912   (909907) от 29.01.2017
-
-ZZ Top - Greatest Hits (2017) 2CD [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharp Dressed Man
-02. Leila
-03. Poke Chop Sandwich
-04. I Need You Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC6A39B54C8A3F69BF17CD8B4055885149796A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990573   (909846) от 26.02.2016
-
-VA - Triumph Italo Disco (2015) [MP3|320 кб/с] <Disco, ItaloDisco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Azoto - Exalt - Exalt
-002. Amateon - Negative Zero
-003. Eurotix - Life As It Slips Away
-004. Fancy - A Voice In The Dark (Bringing The Light Mix)(   Читать дальше...   )Жанр: Disco, ItaloDisco, PopПродолжительность: 13:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E50256041B2FBE63AEDD93370AD2E769A37F8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990602   (909789) от 26.02.2016
-
-VA - Sentimental Watercolor: Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kenny Laakkinen & Michelle Bourve - Dein Weg
-002. Attilio Casati - Chill Your Mind
-003. Chriss De Vynal - Take Me Back to the Music
-004. Source - Framed Profile - Curt Clever Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023580228C9DB619D7CC2A4C0BCEF6F7A08EF03B
 ```
 
 https://mybot314.ru/tekegram_catalog/

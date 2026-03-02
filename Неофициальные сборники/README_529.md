@@ -1,3 +1,206 @@
+###  Публикация: 1265056   (276594) от 26.11.2018
+
+VA - Purple World: Electro Bass (2018) [MP3|320 Kbps] <Dubstep, Drum And Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jens Buchert - Gravity
+002. Amit - Cold Blood
+003. Ben Soundscape - The Upside Down
+004. Coda - Power Surge(   Читать дальше...   )Жанр: Dubstep, Drum And Bass, ElectronicПродолжительность: 11:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB3AE72F25C14E280ADD1B84F57591493F8DBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265062   (276575) от 26.11.2018
+
+VA - Options Remake Of Tracks November -C- (2018) [MP3|320 Kbps] <Electronic, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Tripwire - Beezbo (Original Mix)
+02. Gabriel Ananda - The Shadow Principle
+03. A.T.F.C. - Strong 2 Survive
+04. Felix Da Housecat Feat Jamie Principle & Clarian - Believe (Christopher Groove & Daniel Kovac Remix)(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 05:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86F5238EF8C54171C5EFF53B149E2342FB4E29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336839   (276374) от 09.11.2019
+
+VA - Wilderness: Sunsonic Psy Trance (2019) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Refractor - Omnious Lullaby
+002. Sabedoria - Red Pill
+003. Magnosis, Mazord - Black Space
+004. Virtual Light - Subatomic Sailors(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4EF45F63215863B5B0D0021DD73D2BD5CF6188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336836   (276371) от 09.11.2019
+
+VA - Rhythm Of Life: Electro House Session (2019) [MP3|320 Kbps] <Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiger Stripes - Voyage
+002. Following Light - Zing (Original Mix)
+003. James Godfrey - Heart & Soul (Original Mix)
+004. Kerri Chandler - Ye Yo Ma(   Читать дальше...   )Жанр: Electro House, DanceПродолжительность: 11:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2093E67552A2F59CDE92002BCCA74F4AC55577D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265114   (276364) от 26.11.2018
+
+VA - Top50: Tracks Deep House Ver.6 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & DJ Shah feat. Chris Jones - Going Wrong (Quba Remix) 6:52
+02. DJ Goja - You And Me (Original Mix) 3:03
+03. Maruv - Shame On You (Kolya Funk & Shnaps Remix) 4:07
+04. Stevie Wonder - I Just Called To Say I Love You (Hippocat & Fresh-Art Remix) 5:12(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 04:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC66C90CD9BBE8E4444C21A0EFAB8917FB830585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337027   (276338) от 09.11.2019
+
+VA - German Top 100 Single Charts 08.11.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Apache 207 - Wieso tust Du dir das an?
+04. Nimo - KARMA(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86084B6A6B053A9EC3CB2F4BAEFA1D3EB901427E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337225   (276332) от 09.11.2019
+
+VA - The Official UK Top 40 Singles Chart 08.11.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_276332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Dua Lipa - Don't Start Now
+03. Regard - Ride It
+04. Ed Sheeran - South of the Border(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D68FC2F1387D51FB3543958A10A40140611345E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 273064   (276296) от 21.12.2010
 
 VA - Зимние Хиты from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
@@ -527,209 +730,6 @@ VA - По волне моей памяти 2: Том25 (Compiled by Виктор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3DE4FC90A424BB3071947B2D3F4FD43AAF65169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265105   (275949) от 26.11.2018
-
-VA - Deep House Collection Vol.191 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275949.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren feat. Josh Cumbee - Sunny Days (Ryan Riback Remix) 3:40
-002. Bee Gees - Stayin Alive (Delabella Remix) 3:40
-003. Calvin Harris & Sam Smith - Promises (Illyus & Barrientos Extended Remix) 6:00
-004. R3HAB & Conor Maynard - Hold On Tight (Denis First & Reznikov Remix) 4:24(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 13:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205FF3C394B4FF345916C44768F6DC4EAA27C863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 55684   (275935) от 26.11.2018
-
-Классическая музыка в Рок обработке
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275935.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. THE VENTURES - Beethoven Five - Oh ! (Beethoven)
-2. RICHARD CLAUDERMAN & R.P.O. - Four Seasons: Spring (Vivaldy)
-3. PETER WEKERS & L.S.O. - Douce Melodie (Albinoni)
-4. JAN HOLLAND - Melody In F (A.Rubinstein)(   Читать дальше...   )Жанр: КлассикаПродолжительность: 11.21.07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4954FA11C5FF5B7D8BBA3599AA0B5D2737F8E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082926   (275924) от 14.12.2016
-
-VA - Club Music Language December (2016) [MP3|160-320 Kbps] <Nu Disco, Jersey Club, Dubstep, Electro, Urban, Mombahton, Trap, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devolve Ft Oye!!! & Devastator - Bad Man (Dirty) (Short Edit) 02:20
-02. Wellman & Lil Jon - Knuck If You Buck (All Gold Remix) (Dirty) (Extended) 04:04
-03. Tove Lo - Cool Girl (David Puentez & Mts Edit) (Dirty) (Short Edit) 02:34
-04. Peking Duk Ft Elliphant - Stranger (Clean) (Radio Edit) 03:26(   Читать дальше...   )Жанр: Nu Disco, Jersey Club, Dubstep, Electro, Urban, Mombahton, Trap, Future HouseПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C655BB0F6438980C678404E366469FC6DD71488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082573   (275920) от 14.12.2016
-
-VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Katrin Mokko - В Моем Кино 3:47
-002.Red Hot Chili Peppers - The Getaway 4:11
-003.Holy Molly & Holygunner & Anton Liss - For Ma Ma Bitch 4:16
-004.The Hardkiss - Helpless 3:38(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083112   (275913) от 14.12.2016
-
-VA - Late Night Jazz Chill: Staring At The Moon (2016) [MP3|320 Kbps] <Jazz, Chillout, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don Carlos - Be Bop 7:10
-2. Ltj Xperience - Feel Inside 7:12
-3. Dom Um Romao - House Carnival 4:00
-4. Maestro Garofalo - Sun Groove 5:00(   Читать дальше...   )Жанр: Jazz, Chillout, LoungeПродолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6517784190F9DBB5B64EBDB13BB8EDEB781A4A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083101   (275909) от 14.12.2016
-
-VA - Bass Killer 9 (2016) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Future Bass, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4B x HOLLY — JUICE (3:46)
- 02. Baauer feat. Chaki Zulu, KEPHA, JB, kZm, PETZ (YENTOWN) — Night Out (3:02)
- 03. Excision — Virus (5:31)
- 04. Excision & Space Laces — Throwin’ Elbows (Original Mix) (3:02)(   Читать дальше...   )Жанр: Dubstep, Big Room, Trap, Future Bass, ElectroПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA63341977D9BEB247E1D186B1E4A032F1DA1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330469   (275899) от 09.11.2019
-
-The Beatles - Magical Mystery Tour De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Magical Mystery Tour (02:48)
-02-The Fool On The Hill (04:25)
-03-Flying (02:16)
-04-Blue Jay Way (03:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC850AD0966FD009F255DA44E45E784A932CFE78
 ```
 
 https://mybot314.ru/tekegram_catalog/

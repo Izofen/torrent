@@ -1,3 +1,206 @@
+###  Публикация: 1087468   (144885) от 28.12.2016
+
+VA - German Top 100 Single Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Rag'n'Bone Man - Human 3:19
+002.Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
+003.Mark Forster - Chore 3:28
+004.Disturbed - The Sound Of Silence 4:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087312   (144808) от 28.12.2016
+
+VA - Зимние хиты экспресс. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144808.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
+002.Evelina - Ei Filtterii 3:08
+003.Mans Zelmerlow - Primal 3:32
+004.Alle Farben - Berlin 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92144285A93577DEEAA3D7985E01E23E5642D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087113   (144797) от 28.12.2016
+
+VA - Acoustic Covers Rewind (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Torn
+02. Portland UK - The Boxer
+03. Thom Cooper - God Only Knows
+04. Dean Dyson - Dancing in the Dark(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F55453F6DE63E57BDBE1BEED0E1A0BA04349B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087311   (144784) от 28.12.2016
+
+VA - Снегопад новинок на Hit FM. Версия 3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Наргиз - Revolution 3:31
+002.Jojo Feat. Alessia Cara - I Can Only 3:21
+003.Sigala & Digital Farm Animals - Only One 3:24
+004.Макс Барских - Туманы 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E41C1575026D2BEADDE52AF3D9C3BC9AED860B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087298   (144727) от 28.12.2016
+
+VA - Музыкальный плен Часть № 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144727.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Stevie Wonder Feat. Ariana Grande - Faith 2:41
+002.Дмитрий Недоспелов - На Экскаваторе 3:10
+003.Fallulah - Vandalain 3:50
+004.S.N.E.G Feat. Evaloras - Эйфория 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C0387B7CDF7BBEE0BB121F7DC00DA376C64B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087453   (144716) от 28.12.2016
+
+VA - German Top 50 Official Dance Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Oliver Heldens Ft. Ida Corr - Good Life 3:09
+002.Martin Solveig Ft. Ina Wroldsen - Places 3:23
+003.EDX - High On You 3:00
+004.Robin Schulz & David Guetta Ft. Cheat Codes - Shed A Light 3:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD05F51F8C9148541720F38AAE113DA3C95AEC2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087436   (144693) от 28.12.2016
+
+VA - Снежный хит-парад. 100 русских хитов (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Dj Jedy Feat. Андрей Чиж - Новогодний Корпоратив 3:32
+002.Integra - Бросить Курить 3:19
+003.Supernova - Я И Мои Девочки 3:09
+004.Вика Воронина - Мое Сердце 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDDA7C9B1D5FAA9FECB802A6D4C4CEDDC25AA1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272287   (144690) от 27.12.2018
 
 VA - Summer Ocean: Relax Party (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -542,209 +745,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9847791A3552F36EC0D2D7EBCBE5B8A17EAC60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195037   (144221) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 24) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Ромашки спрятались  4:03
-02.  Людмила Зыкина  -  Милая мама  3:31
-03.  Валентина Дворянинова  -  Как тебе служится  3:11
-04.  Иосиф Кобзон  -  В лесу прифронтовом  4:30(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348206   (144214) от 27.12.2019
-
-VA - Shazam Хит-парад Russia Top 200 Новогодний (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NILETTO - Любимка 3:40
-002. Tones And I - Dance Monkey 3:30
-003. Carla Morrison - Disfruto (Audioiko Remix) 3:18
-004. Trevor Daniel - Falling 2:39(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2B8F1D82BAD510E19413DEA9D4117EB63D872E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195104   (144186) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 26) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Эхо любви  3:39
-02.  Евгений Мартынов  -  Алёнушка  3:29
-03.  Мария Лукач  -  Я шаги твои слышу  2:46
-04.  Нина Бродская  -  С любовью встретиться  3:06(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195054   (144073) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 25) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Иосиф Кобзон  -  Где-то далеко  3:41
-02.  Марк Бернес  -  С чего начинается Родина  2:35
-03.  Тамара Миансарова  -  Ты лучше всех  2:23
-04.  Гелена Великанова  -  Не знала я  2:45(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A392F9FDDAC64C3B885A37FE090D4CBBD44FDEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325541   (144027) от 27.12.2019
-
-VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256 Kbps] <Русский Рок, Авторская Песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алиса - Посолонь
-002. Пикник - Счастливчик
-003. ХБС - Полдень
-004. 7Б - Воин-призрак(   Читать дальше...   )Жанр: Русский Рок, Авторская ПесняПродолжительность: 10:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055A8F0CFAC68EEF9DE7F65E1A29D33DD985D293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087472   (143973) от 28.12.2016
-
-VA - Deep House Collection Vol.102 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143973.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alex Spite, Olga Shilova - My Heart Is For You  (Original Mix) 5:42
-002.Alex Spite - Crazy  (Original Mix) 6:04
-003.Alex Spite - I Want You  (Original Mix) 5:28
-004.Alex Spite - One Life, One Love  (Original Mix) 6:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 12:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00818BF92B33018222C4D652F335C0C020F7C31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087490   (143946) от 28.12.2016
-
-VA - Новогодние хиты. Песни года Выпуск № 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Флорида - Дедморозная 3:35
-002.Виолетта Дядюра (Via-Летта) - Новый Год 4:26
-003.Alicia Keys & Pharrell Williams - Apple 3:47
-004.Dj Jedy Feat. Андрей Чиж - Новогодний Корпоратив 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6164035BEC807CF2F9F45DA045AC481B7816C60A
 ```
 
 https://mybot314.ru/tekegram_catalog/

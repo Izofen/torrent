@@ -1,3 +1,61 @@
+###  Публикация: 1183387   (310077) от 13.11.2017
+
+Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Piece of my Heart (Live TV Pop Show Sweden 7th April 1969) (3:44)
+02.  Summertime (Live TV Pop Show Sweden TV 7th April 1969) (4:56)
+03.  Me (Live TV Pop Show Sweden 7th April 1969) (4:13)
+04.  Work Me Lord to Love Somebody (Live TV Pop Show Sweden 7th April 1969) (7:23)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BCFF72C7670E2B04F6A7EC31FF937038B29321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260723   (309977) от 08.11.2018
+
+Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can The Can
+02. Daytona Demon
+03. All Shook Up
+04. Keep A Knockin'(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332937   (309367) от 22.10.2019
 
 Jeff Lynne's ELO - From Out Of Nowhere (2019) [MP3|320 Kbps] <Rock>
@@ -693,64 +751,6 @@ Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3DA96293232F4A92C9D858F02066EA1CC1D7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423825   (298160) от 14.11.2020
-
-Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouroboros (Prelude) (21:56)
- 02. The Eternal Fire (Ritual) (05:35)
- 03. Hurrian Hymn To Nikkal (H.6) (04:56)
- 04. Mother (Takeda Lullaby) (06:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68D24504EE97133DD7D4DDCF86F3094108540DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423611   (298083) от 14.11.2020
-
-The Wet Fish - Ready To Blow (2020) [MP3|320 Kbps] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Family Tree (02:30)
-02. Too Bad For Rock And Roll (03:14)
-03. Mean Streak (03:42)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED13D87A078B17A1FCF38BFA07B7F47CA9508F77
 ```
 
 https://mybot314.ru/tekegram_catalog/

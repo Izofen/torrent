@@ -1,3 +1,217 @@
+###  Публикация: 1091025   (944851) от 08.01.2017
+
+VA - Душевная музыка на радио Шансон. Выпуск № 6 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вадим Алленов - Шоферская 3:47
+002. Елена Ваенга - Веночек 4:24
+003. Александр Назаров - Цыганская Доля 3:29
+004. Владимир Курский - Лицемер 3:15(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E965F026426624E19CE093A4110540DCC9C9F63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362977   (944757) от 26.02.2020
+
+VA - Весна 2020. Hit Music от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944757.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DiscoVer. - Can't Get You Out Of My Head
+002. Alex Gaudino & Bottai feat. Moncrieff & Blush - Remember Me
+003. Slider & Magnit feat. KDDK - Туда
+004. Seven Lions feat. Tyler Graves - Only Now(   Читать дальше...   )Жанр: PopПродолжительность: 12:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A85A119181D2CDC6EC77DE2DE9315EA2DE0F337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091067   (944605) от 08.01.2017
+
+VA - Winter Hits. Hot Dance Continues (2016) [MP3|320 Kbps] <Dance , Hands Up , Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stamen - What I Want (Extended Mix)
+002. Zhasmin - Tri Tochki Tire (Ryan Sayers Remix)
+003. Lunar feat. Martin Silence - My World (Extended)
+004. JJ & Baz - Eternity (Original Mix)(   Читать дальше...   )Жанр: Dance , Hands Up , EurodanceПродолжительность: 05:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD23555EEA443C28F92364556A98664FF98BE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091005   (944573) от 08.01.2017
+
+VA - 100 Physical Dreams (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944573.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Physical Dreams & Ana Ruth - I Will Always Carry With Me  8:15
+002.  ReLocate - Venom (F.G. Noise Remix)  7:04
+003.  Jo Cartwright - Embrace You (Maratone Remix)  6:49
+004.  Kaimo K - Rise & Smile  7:59(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 11:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EE49C02D83EBAE9BF8A1A5DFBAF8195A684004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626475   (944559) от 05.03.2013
+
+VA - Club Dubstep №29 (2013) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gemini feat. Fabienne - 3D Romeo (Original Mix)
+02. J.Nitrous - Anywhere But Here (Original Mix)
+03. Quba ft. Daniella - Be Better (Original Mix)
+04. Infuze - Black Out
+05. Rye Rye - Boom Boom (EOS Remix).
+06. Beauty Brain, Poisound - Bullfighter
+07. Jibbs - Chain Hang Low (Crizzly & AFK Remix)
+08. Zeds Dead & Omar Linx - Crank
+09. Majai - Crumble (Klaypex Remix)Жанр: DubstepПродолжительность: 02:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CE791580E1783AB9C958A627DB44A2E6F4EB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624076   (944462) от 05.03.2013
+
+VA - Exotic. The Finest Eastern Melodies (2012) [MP3|320 кб/с]<Chill Out, Lounge, Ethnic, New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944462.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Продолжительность: 01:09:43
+
+01. Karunesh - Vishnu
+02. Wellness Pur - Die Innere Starke
+03. Blue Planet - Latin Masala
+04. Hiroshi Nagashima - Karvan
+05. Karunesh - Bollywood Delight
+06. Buddha Sounds Ft. Kantik & Shankari Lasya - Dakhenha
+07. Thievery Corporation - Indra(   Читать дальше...   )Жанр: Chill Out, Lounge, Ethnic, New AgeПродолжительность: 03:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72CF4BD87745552D5754DFD1BE5A2C84C6E60FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091015   (944372) от 08.01.2017
+
+VA - Top 100 Russian Hits (2017) [MP3|256~320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944372.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Руки Вверх - Когда Мы Были Молодыми (Kolya Dark Radio Edit)  3:15
+002.  Грибы - Копы (Vincent  Diaz Remix)  4:10
+003.  Интонация (In2nation) - Танцуй  4:26
+004.  Emin - Ты Же Не Знаешь  3:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E95C090D543D3D7C55FF94F17257911A21F9252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090587   (944317) от 08.01.2017
 
 VA - Jam Jazz: Electro Swing (2017) [MP3|320 Kbps] <Jazz Swing, Electro Jazz>
@@ -542,209 +756,6 @@ VA - Guitar Collection 2 (2016) [MP3|320 кб/с] <Instrumental, Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42D4710CFE165DFC44E321F1B3AC8ECFE9DFC05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091137   (943235) от 09.01.2017
-
-VA - Pure Trance Moments Winter (2016) [MP3|320 Kbps] <Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943235.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Moor & Michele C - We Can Be Free (Alex Ender Extended Mix) 6:28
-002. Craft Integrated & Naian - Parsec (Extended Mix) 7:43
-003. Alex Wright & Falcon - Hawkeye (Extended Mix) 7:18
-004. Johnny Yono - M87 (Extended Mix) 5:36(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 11:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51820B892C8F87983E724CC7D49DB0A7A5A28EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091373   (943230) от 09.01.2017
-
-VA - Ultimate NightClub Waves Hits (2017) [MP3|242~320 Kbps] <Future House, Tech House, Funky, Nu Disco, Tropical, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Federico Seven feat. William Tag - I Just Wanna (Instrumental Mix)  4:51
-02.  DJ Shog Vs. Aboutblank & KLC - Bright Eyed (Ddei & Estate Remix Edit)  3:35
-03.  DJ Dean & Brooklyn Bounce - Play It Hard 2K14 (Gary D's Mikrotek Remix)  5:45
-04.  Pulsedriver & Jonny Rose - Sound Of Celebration (Single Mix)  3:41(   Читать дальше...   )Жанр: Future House, Tech House, Funky, Nu Disco, Tropical, ClubПродолжительность: 05:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F5E7139B84DF1DE4057830FF750A4D496EA9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091131   (943226) от 09.01.2017
-
-VA - Top Dance Stereo Playlist (2017) [MP3|205-320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luca Debonaire Vs. Atilla Cetin - Feeling Real (Block And Crown Peaktime Mix) 6:02
-002. Reece Low - Rompa Stomp (Original) 6:08
-003. Under Break - Never (Original Mix) 5:03
-004. Mor Avrahami & Eran Hersh - Ready 4 This (Radio Edit) 3:32(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 10:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFFAD1F0D18905001C90F64F3B9062B8B29214C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091099   (943150) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (17 December) (2016) [MP3|128-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Weeknd - Party Monster 04:09
-002. The Weeknd Feat. Daft Punk - Starboy 03:50
-003. The Chainsmokers Feat. Halsey - Closer 04:06
-004. Ariana Grande Feat. Nicki Minaj - Side To Side 03:46(   Читать дальше...   )Жанр: DanceПродолжительность: 06:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35068AD9A2B8C9AC133B9FD80C75C9CFEB5BDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091472   (943146) от 09.01.2017
-
-VA - Stretching League Fitness Hits (2017) [MP3|196-320 Kbps] <Reggaeton, Trap, R&B, Dancehall, House, Latin, Twerk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virility Ex - Unwrap 05:49
-02. Zucker - Schooling 03:54
-03. Bruno Mars - Chunky (Dirty) 03:05
-04. Justice - Fire 05:32(   Читать дальше...   )Жанр: Reggaeton, Trap, R&B, Dancehall, House, Latin, TwerkПродолжительность: 07:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9EEB0224422797CE13B62684C732CF2A3322C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091090   (943142) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (31 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943142.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. The Weeknd feat. Daft Punk - Starboy 3:51
-003. The Chainsmokers feat. Halsey - Closer 4:06
-004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D5504CD4F7FF0091EE5990DEAEB9B18F63A3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091153   (943135) от 09.01.2017
-
-VA - Brand New Refreshed EDM (2017) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943135.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ralvero - U Got 2 Know (Extended Mix) 4:06
-002. Hardwell & W&W - Get Down (Clean) (Extended) 3:41
-003. Jewelz & Sparks - Crank (HWL Edit) (Clean) (Extended) 3:38
-004. Chocolate Puma & Tommie Sunshine - Take The Ride (Extended Mix) 4:42(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 08:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A670EC1BD8877E0953C1AB93B8CC86AD0B8D68
 ```
 
 https://mybot314.ru/tekegram_catalog/

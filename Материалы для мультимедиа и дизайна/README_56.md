@@ -1,3 +1,29 @@
+###  Публикация: 986919   (928536) от 15.02.2016
+
+Шрифты - Exclusive Cyrillic fonts [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивные кириллические шрифты.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992FCD5922C0977374CDFE95CA9A19195E34E3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986450   (928535) от 15.02.2016
 
 Футажи - Hearts Collection - III [MOV]
@@ -646,33 +672,6 @@ Archmodels vol. 195 включает в себя 32 профессиональн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:787EEB1AA614F068298F49D232633F06072C74A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366466   (923355) от 11.03.2020
-
-3D модели - 3DDD - Bathtub (Bathroom) - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 30 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFD61E2829CA7F6262C30EC69EF1C609C899702
 ```
 
 https://mybot314.ru/tekegram_catalog/

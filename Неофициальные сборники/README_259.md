@@ -1,3 +1,206 @@
+###  Публикация: 1027949   (694844) от 20.06.2016
+
+VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ayla - Ayla (Omar Sherif 2016 Remix) (6:49)
+02. Solis & Sean Truby - Flashlight (Original Mix) (5:37)
+03. Alex Ender - KSU (Extended Mix) (6:05)
+04. Masters & Nickson feat. Justine Suissa - Out There (Robert Nickson 2016 Extended Remix) (7:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE5DB7488C0FB37893AD3742AA6BB865A46C2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027863   (694831) от 20.06.2016
+
+VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patricia Holmberg - Lyric Piece, Book I, Op. 12: VII. Albumleaf
+02. Alastair Cameron - Gnossienne No. 2
+03. Western Horizon Productions - Piano Sonata No. 11 in A Major, K. 331: III. Turkish March
+04. Maxim Melnikov - Drei Fantasiestucke, Op. 73: III. Rasch Und Mit Feuer(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AC1CF8BB95361E416D138D5FB9CD09BB9D08F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027718   (694700) от 20.06.2016
+
+VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
+002. Era Istrefi - Bonbon
+003. Gestort aber GeiL & Two Magics - Glucklich wie die Kinder
+004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 10:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63F0D3EFDD671A76B8FAF4128F1E8B208FC15EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288628   (694303) от 12.03.2019
+
+VA - German Top 50 Party Schlager Charts 11.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB105CA128060AB281513FD89A12295D9F46CCA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027821   (694287) от 20.06.2016
+
+VA - Лето солнце жара. Популярный сборник (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694287.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Алексей Воробьёв - Счастлив Сегодня И Здесь
+02. Таня Дяченко - Пять Минут Счастья
+03. Светлана Лобода - А Может К Черту Любовь
+04. Thomas Anders - Lunatic(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC0E6790C585CB966E52B1941110FB3F6311EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403218   (694264) от 18.08.2020
+
+VA - A State Of Trance Classics Vol.14 (The Full Unmixed Versions) (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Laura V - Drowning (Avicii Extended Remix)
+02. Paul Oakenfold feat. Carla Werner - Southern Sun (Tiesto Extended Remix)
+03. Moby - Why Does My Heart Feel So Bad? (Ferry Corsten Extended Remix)
+04. Dash Berlin feat. Roxanne Emery - Shelter (Photographer Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB348DFD1BAF23FE7FC1B2348102EB333F8B16C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534344   (694245) от 02.03.2022
+
+VA - NOW Yearbook Extra 1982 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694245.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Duran Duran - Rio
+02. ABC - Poison Arrow
+03. Adam Ant - Friend Or Foe(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:21:51 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A5CCFABBCAAFCC6CA62412357BD82C6FC975D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534354   (694242) от 02.03.2022
 
 VA - NOW Yearbook Extra 1984 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
@@ -543,209 +746,6 @@ VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF63B5AE0E29F3D63577327F32309E577090C378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027833   (692568) от 21.06.2016
-
-VA - Hard'n'Heavy Collection (2016) [MP3|256 кб/с] <Hard'n'Heavy, Hardcore, Nu Metal, Black Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biohazard - Hallowed Ground
-02. Metallica - Fade To Black
-03. Merelin Menson - Coma White
-04. Anathema - Emotional Winter(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE47E1F7B43999224D307E2DDA7AC8BE17D06BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403415   (692235) от 19.08.2020
-
-VA - Beatport Deep House: Electro Sound Pack #146 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692235.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kasey - Let It Go
-002. Cco - Waiting For U In Bed
-003. Nicolas Barnes - Exposure (Original Mix)
-004. Patrick De Launay - Black Lagoon(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC2D23297E310818E853CDA654C6DEF4069692D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403341   (692226) от 19.08.2020
-
-VA - 100 Most Uplifting Songs Ever (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lily Allen - Smile
-002. Clean Bandit - Rather Be (feat. Jess Glynne)
-003. Coldplay - Viva La Vida
-004. Aretha Franklin - Respect(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E90AD836F896612E8D3B7AE208A9D4102D0DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288796   (692076) от 13.03.2019
-
-VA - Buffalo Bass Mix (2019) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692076.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Sidеs - Sрinе
-002. Clеvеlаnd Wаtkiss - Convеrsаtions
-003. Dj Qt - Who Knows
-004. Loz Contrеrаs Fеаt Trас - Lеарs And Bounds(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08 :08 :31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA7F93D9715AE8D85399343080C511D934C3255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288784   (691845) от 13.03.2019
-
-VA - Громкие новинки месяца Vol.27 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Chainz, Marsha Ambrosius - Forgiven (5:23)
-02. Adamant - Маршмелоу (3:28)
-03. ALEKSEEV - НЕ МЕД (3:32)
-04. Alesso - TIME (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91FE00A362B11FEDB2440B4E7FB99B47F55FD8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288831   (691844) от 13.03.2019
-
-VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691844.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alvin Lее - Mоving Thе Bluеs
-002. Alvin Lее - Jеnnу, Jеnnу
-003. Dаvе Evаns - Whеrе Shе Gоеs I Gо
-004. Bеn Prеstаgе - Sоmеdау Bаbу(   Читать дальше...   )Жанр: Blues Rock, Country, Rock And Roll, FolkПродолжительность: 10 :10 :48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761280981458F73BE2EF42E652A37A3E9E01BABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133951   (691660) от 14.05.2017
-
-VA - Intellectual House [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691660.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Can 7 - Uska Dara (Feat. Eartha Kitt) (Umami Remix) 6:35
-002. Joseph Westphal - Peace (Zwette Remix) 5:22
-003. Sebastian Leithold & Christoph Leithold - Deep Blue (C-ro Remix) 6:23
-004. Alessandro Cicchelli - Riviera 7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 05:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A160E9E5969AECB27C17033480A437A244D84A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

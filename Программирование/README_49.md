@@ -1,3 +1,30 @@
+###  Публикация: 1594662   (176461) от 03.12.2022
+
+John Thomas | Data Structure and Algorithms With Python: The Ultimate Guide Towards Coding (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Computers store and process data with an extra ordinary speed and accuracy. So, it is highly essential that the data is stored efficiently and can be accessed fast. Also, the processing of data should happen in the smallest possible time, but without losing the accuracy.
+Data structures deal with how the data is organised and held in the memory, when a program processes (   Читать дальше...   )Жанр: программированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667406   (176331) от 08.10.2023
 
 С. Дасгупта и др. | Алгоритмы (2014) [PDF]
@@ -660,32 +687,6 @@ Marc Loy, Patrick Niemeyer, Daniel Leuck | Learning Java, 6th Edition (2023) [PD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670069   (172187) от 19.10.2023
-
-Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172187.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете исчерпывающее описание CSS Grid, изучите как фундаментальные, так и продвинутые концепции с практическими упражнениями. Вы узнаете, как создавать отзывчивые макеты и откроете для себя лучшие практики по внедрению сеток в любой дизайн. По мере продвижения вы будете изучать динамическое взаимодействие между CSS Grid и flexbox, кульминацией которого (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E18E96A1AA2A801190BAED3300746822E0AFDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 994744   (888199) от 09.03.2016
+
+VA - Роза белая (2016) [MP3|256 кб/с] <Поп, Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888199.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Левичев Вячеслав — Роза белая
+002. Лейс Игорь — Живите сказочно
+003. Куренков Сергей — Ангел мой
+004. Романов Дмитрий и Шмель Вова — Я не буду ждать(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 06:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE067B3D150DE5E76E05E2F0FBF2783A2E43396A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994885   (888196) от 09.03.2016
+
+Mark Mikel - Collection (1993-2007) [MP3|192 - 320 кб/с] <Classic Rock, Power Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избранное Марка - бальзам на душу для тех, кто знает и помнит 60-70-ые!01. Holy Roly
+02. Deliver My Love
+03. Come Tomorrow Feel Alright
+04. Right Now(   Читать дальше...   )Жанр: Classic Rock, Power PopПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7858EDDF049B8278E3FDF9B1E5163CEC1DB3A7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994937   (888168) от 09.03.2016
+
+VA - 200 Hits America Latina (2015) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Extra Latino - 6 Am.mp3
+002. Extra Latino - Ay Vamos.mp3
+003. Extra Latino - Travesuras.mp3
+004. Extra Latino - La Nueva y la Ex.mp3(   Читать дальше...   )Жанр: DanceПродолжительность: 13:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C8AFCD0B0D034221E266159F308EA5CEEFF8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994988   (888120) от 09.03.2016
+
+Precious Wilson (ex. Eruption) - Collection (1979-1983) [OGG|438-537 кб/с] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are On The Race Track
+02. Cry To Me
+03. Video
+04. Kisuaheli(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB7BA001CB315742B194C66D8C115C357277194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371790   (888097) от 01.04.2020
+
+VA - Shazam Хит-парад Russia Top 100 Март (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Intelligency - August (3:27)
+2.El Capon - Shut Up Chicken (2:30)
+3.The Weeknd - Blinding Lights (3:21)
+4.Тайпан, Agunda - Луна не знает пути (2:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB24EF222842847D68C480CD631ED02E2C710A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994953   (888018) от 09.03.2016
+
+Михаил Звездинский - Магнитоальбом (1990) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осеннее золото
+02. Звезда Давида
+03. Все теперь против нас
+04. Я пережил и многое и многих...(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F913B292C8A113BD44DA103FEDE1B9A552660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995008   (887957) от 09.03.2016
+
+VA - Музыка хорошего настроения 3 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887957.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arseniya - Аритмия
+002. Andeeno Damassy Feat. Jimmy Dub - Dime Tu
+003. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California
+004. Rihanna - Sex With Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDCBA65BDF8F9764A318EF458E440354E5978FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371852   (887925) от 01.04.2020
 
 VA - Ремиксы 2К20 3 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
@@ -542,209 +745,6 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #44 (2020) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D46EEC4815D6656E9C9489C658B902B3D033136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103175   (887250) от 11.02.2017
-
-Newton Family - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 California Dreamin
-02 Santa Maria
-03 Adam, Almodj Csak Tovabb
-04 Hijack(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EE175E46A0086DAB998D62179A5E4AD1098BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372026   (887197) от 02.04.2020
-
-VA - Pandemic: Hardcore And Hard Rock Selection (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fists Of Time - Lifeless
-002. Elsewhere - Overwhelm
-003. No Home - Nothing Gold Can Stay
-004. Linkin Park - The Catalyst(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 08:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1750D4A82361BDC07FDF6FD344086FEAF476320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372021   (887188) от 02.04.2020
-
-VA - Beatport Progressive House: Electro Sound Pack #40 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nikochristo & Synas - Efflorescence
-002. Roma Alkhimov - Abraadabra (Original Mix)
-003. Orjan Nilsen - 1 Like You (Extended Mix)
-004. Lucius Lowe - I Like To Party(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608DB1D56491792A24FB54EF88D9402E8E015D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372020   (887145) от 02.04.2020
-
-VA - Beatport Funky House: Electro Sound #42 (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inusa Dawuda - Love Criminal (Mota Remix)
-002. Angelica Rose - Look Me In The Eyes
-003. Freddy Fader Meets Locana - Suenan
-004. French La Touche - Baby Please Don't Go(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 13:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BB55FCD0FBEB88941A639D4547560D320A3CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372024   (887128) от 02.04.2020
-
-VA - Indie Night: Pop Rock Season Alternative (2020) [MP3|320 Kbps] <Indie, Pop, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Girl Ray - Show Me More
-002. Anthony Green - You're So Dead Meat Reimagined
-003. Brightness - Dallas
-004. Kate Davis - Animals(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 08:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02026F43B23409171126F54BB70D9EA3B2AB845B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372031   (887117) от 02.04.2020
-
-VA - Spring Holiday Party: Electro House Selections (2020) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wallas - Love Reason
-002. Alek Soltirov - Check The Cables
-003. Crunchy Masters - In That World
-004. Topa - In The House (Original Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 13:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDB70160ABD5BF5EB9B672DC0943C63422C87A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372025   (887078) от 02.04.2020
-
-VA - Luxury Deep House: Beats Session (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Amnesia - 8 Below
-02. Nomura Taio - What A Man
-03. Therd Suspect - Me Seeing You
-04. Saturn 15 - Apocalypse(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4076AB2956CDCBE1691FE8F81255AD7E2DD564DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

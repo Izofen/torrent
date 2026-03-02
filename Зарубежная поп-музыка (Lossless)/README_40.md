@@ -1,3 +1,119 @@
+###  Публикация: 907487   (637744) от 12.06.2015
+
+Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Town
+02. The Original High
+03. Another Lonely Night
+04. Underground(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C98141953C809E74F81DC8701684380AFE4909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142991   (637478) от 17.06.2017
+
+Modestia Aparte - Historias sin Importancia (1991) [FLAC|Lossless|tracks + .cue] <Spanish Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dos Amigos (03:45)
+02 Tómate una Copa (03:36)
+03 Trapos Sucios, Platos Rotos y Algunas Fotos (04:24)
+04 Como te Mueves (04:15)(   Читать дальше...   )Жанр: Spanish Pop/RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3256CF9C3F1B6955AB75941BB1FA249FAA579A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542465   (636859) от 07.04.2022
+
+ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Day Before You Came
+02. Take A Chance On Me
+03. Money, Money, Money
+04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033796   (636129) от 12.07.2016
+
+VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Brown - Stop
+02. Elaine Page & Barbara Dickson - I Know Him So Well
+03. Terence Trent D'Arby - Suddenly You Crossed My Heart
+04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908044   (635959) от 13.06.2015
 
 Giorgio Moroder – Deja Vu (2015) [FLAC|Lossless|WEB-DL]<Pop>
@@ -632,119 +748,6 @@ Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909755   (626002) от 18.06.2015
-
-Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 U With Love
-02. Deja Vu (feat. Sia)
-03. Diamonds (feat. Charli XCX)
-04. Don’t Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543788   (625656) от 13.04.2022
-
-VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rakel Project - Estas En Mi CorazonЖанр: Italo-Disco, Euro-DiscoПродолжительность: 2CD, 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0763D64F06DDBEC16759EBDBEA56D13C4AAB97BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144668   (625359) от 23.06.2017
-
-Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retrowave, Synthpop, Dreamwave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home (Prologue)
-02. Lovers (feat. Seawaves)
-03. Come Back
-04. Waiting(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, DreamwaveПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7B6AFDCF0ABC5D14D176D7064B38C592414E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294883   (624122) от 10.04.2019
-
-Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Don't Break Me (3:36)
- 02. Not Over You (3:57)
- 03. Odds Are Against Us (4:00)
- 04. California High (4:27)(   Читать дальше...   )Жанр: Pop, Electro, DowntempoПродолжительность: 00:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D487866B7F7A7C49E51F29ABC4032616A7E4F53E
 ```
 
 https://mybot314.ru/tekegram_catalog/

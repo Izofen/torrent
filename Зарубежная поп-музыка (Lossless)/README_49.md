@@ -1,3 +1,119 @@
+###  Публикация: 1311652   (536310) от 02.07.2019
+
+VA - Sláger Rádió - Sláger Slágerek. Vol 2 (1999) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536310.jpg" />
+</div>
+
+
+###  Подробнее
+
+A 60-as 70-es évek legnagyobb slágerei  
+
+01. Hofi Géza - Próbálj meg lazítani (3:23)
+02. Kovács Kati - Úgy szeretném meghálálni (3:22)(   Читать дальше...   )Жанр: Pop Rock, Disco, RetroПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49435B77F307D11C829EF74CC5301A9D2FB54D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050747   (536198) от 09.09.2016
+
+Imany - The Wrong Kind Of War (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Folk, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Our Soul (3:28)
+02. No Reason, No Rhyme (4:45)
+03. You Don't Belong To Me (3:37)
+04. I Long For You (3:18)(   Читать дальше...   )Жанр: Pop, Soul, Folk, Singer-SongwriterПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EF3A54BEEF1143CCC7B53D0D417C3A30DCFE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312306   (534494) от 03.07.2019
+
+Sure Sure - What's It Like? (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friends from the Past                                                  [0:13]
+02. Good Thing                                                             [3:05]
+03. What's It Like?                                                        [3:15]
+04. Lie Lie Lie                                                            [2:32](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58503627532D4EFCC684115F39ED4B42DB204EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558183   (533765) от 19.06.2022
+
+Egil Eldoen - Welcome Into My Heart (1985) Remastered, Repress, 2021, Norske Albumklassikere [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watching Eyes (2:43)
+02. Stand By Me (3:26)
+03. Welcome Into My Heart (4:19)
+04. Desire (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA2FE6ECAB2FB8A041EDE58B6E41EC8431DA9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926563   (533419) от 10.08.2015
 
 Sandra - Mirrors / Paintings In Yellow (2000) [FLAC|image+.cue]<Pop>
@@ -636,122 +752,6 @@ Supermax - Dont Stop The Music (1976) Remastered, 2005, CD-Maximum <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBED198A8B507183DCF4F63E9D69709EFD4D57A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053075   (526649) от 16.09.2016
-
-Maxi Dance Pool - Musikladen Eurotops (1988) [FLAC|Lossless|tracks + .cue] <Pop House, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Almond - Tears Run Rings (The Justin Strauss Remix) (7:12)
-02. Coldcut - Stop This Crazy Thing (7:33)
-03. Bomb The Bass - Don't Make Me Wait (12'' Version) (6:38)
-04. Deborah Sasson & MCL -   (6:28)(   Читать дальше...   )Жанр: Pop House, DiscoПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D72FB33C65732C02A7C4E1F1A159C5F3072D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053510   (525958) от 17.09.2016
-
-Kygo - Cloud Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:09)
-02. Stole The Show (feat. Parson James) (3:43)
-03. Fiction (feat. Tom Odell) (4:04)
-04. Ringing (feat. Kodaline) (3:44)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AB1EE8569D566BA37D05F34810B0FB2B62FE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157301   (525157) от 12.08.2017
-
-Kesha - Rainbow (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bastards (03:52)
-2. Let 'Em Talk (feat. Eagles of Death Metal) (03:06)
-3. Woman (feat. The Dap-Kings Horns) (03:16)
-4. Hymn (03:25)(   Читать дальше...   )Жанр: Dance-Pop, ElectropopПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD637D327A3F87299390B77A27322EAACBB12E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240466   (524526) от 12.08.2018
-
-Giusy Ferreri - Hits (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volevo te (2:50)
-02. Come un'ora fa (2:55)
-03. Prometto di sbagliare (3:23)
-04. Roma - Bangkok (feat. Baby K) (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFF54BFB3E75865701F05A0F4329673650EF626
 ```
 
 https://mybot314.ru/tekegram_catalog/

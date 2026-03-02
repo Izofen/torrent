@@ -1,3 +1,206 @@
+###  Публикация: 1482077   (1007777) от 07.07.2021
+
+VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco House, Jackin House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elektromekanik - Over You
+002. Jonk & Spook - Get Down
+003. True2life - Bomb Jack 3
+004. Paul Parsons - We Know The Groove(   Читать дальше...   )Жанр: Funky, Disco House, Jackin HouseПродолжительность: 08:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AEAFBA5EA62BD166998274B66311B38703BE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482070   (1007767) от 07.07.2021
+
+VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Counts - Mbodiene
+02. DJ Razor Dotcoza - Wena Wedwa
+03. Mahfoud - Fuji
+04. Gianni Romano - Woroko Kumba(   Читать дальше...   )Жанр: Ethnic house, electroПродолжительность: 06:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C871E80209A70DBF0035A4BFF409F3D6514C0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482050   (1007763) от 07.07.2021
+
+VA - The Music Pie: Pop-Rock Indie (2CD) (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007763.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Bartees Strange - Far
+002. Pj Harvey - This Mess We're In(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 12:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790FE77A964467DE4829940F08BCC5A227EA27F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482051   (1007745) от 07.07.2021
+
+VA - National Pop Dance Music (Vol.21) (2021) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klee - Club Der Liebenden
+002. Ross Antony - Himbeereis
+003. Arjon Oostrom - Het Is Een Nacht
+004. Vicky Leandros - Theo, Wir Fahr'n Nach Lodz(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 09:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CAB47EF4679205D73C7FF9529560ADD6D92719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482164   (1007722) от 07.07.2021
+
+VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smiths - How Soon Is Now? (2008 Remaster)
+02. Joy Division - Love Will Tear Us Apart (2010 Remaster)
+03. Pixies - Monkey Gone to Heaven
+04. New Order - Blue Monday(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482080   (1007715) от 07.07.2021
+
+VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nirvana - The Man Who Sold The World (4:21)
+02. Frank Carter & The Rattlesnakes - Nothing Breaks Like a Heart (3:30)
+03. Jeff Beck, Johnny Depp - Isolation (5:14)
+04. Halestorm - Get Lucky (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 06:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482509   (1007618) от 08.07.2021
+
+VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007618.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Har.Art - The Last Goodbye
+002. Blue Mood - Morning Light
+003. Philip Ropero - Deep Blue Sea
+004. Monoscope - Au Revoir(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 08:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482521   (1007614) от 08.07.2021
 
 VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Electro>
@@ -542,209 +745,6 @@ VA - Громкие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE96EFC43E4831CBE434C8004A76A348321CF6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484309   (1006116) от 19.07.2021
-
-VA - Record Super Chart 17.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Markul, Джарахов - Я в моменте (2:06)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C5BEA4B54B02613927134D0B6F79DCF4B62167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484115   (1006092) от 19.07.2021
-
-VA - Зайцев.нет Лучшие новинки Июля (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bogdan Vand - Под покровом ночи (3:06)
-02. Kessy Black, Melis Treat, Snilex - Ignore (3:32)
-03. NLO, Анет Сай - Выходи (1:48)
-04. Ербол Хамза & Айжан Сейтенова - С тобою (3:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06590AB750C7C84ED5F1E2440AD11576937A2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484270   (1006081) от 19.07.2021
-
-VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006081.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pearl Jam - Release (9:06)
-002. Green Day - Jesus of Suburbia (9:08)
-003. Guns N' Roses - November Rain (8:57)
-004. Green Day - Holiday Boulevard of Broken Dreams (8:13)(   Читать дальше...   )Жанр: RockПродолжительность: 25:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91D6A9964C252C7AF5EB2E638CF3F7F6D863412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484815   (1005696) от 23.07.2021
-
-VA - Music News vol.117 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sonya - Парень (03:39)
- 002. Alchemist Project - Waiting For (02:53)
- 003. Alexander Oscar - Sunlight (03:19)
- 004. Alina Baraz - Alone With You (03:46)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8419FB80276CDA830BBA94D4522905386B3A7103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484852   (1005681) от 23.07.2021
-
-VA - Blues live concert (2021) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Guy - First Time I Met the Blues (Live)
-02. Delta Moon - Stuck in Carolina (Live)
-03. Eric Clapton/Steve Winwood - Georgia on My Mind (Live from Madison Square Garden)
-04. Johnny Winter - Leland Mississippi Blues (Live at The Woodstock Music & Art Fair, August 17, 1969)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 17:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F725112EA58D2C1272A4CA53E7162F96FA8D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485304   (1005442) от 25.07.2021
-
-VA - Record Super Chart 24.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Markul, Джарахов - Я в моменте (2:06)
-03. Nessa Barrett feat. jxdn - la di die (3:15)
-04. Inna - Flashbacks (2:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B3473D5F65FB1BCAFE5EC75D2455625CD6C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485263   (1005365) от 25.07.2021
-
-VA - The Official UK Top 100 Singles Chart 23.07.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Bad Habits
-02. The Kid Laroi, Justin Bieber - STAY
-03. Galantis, David Guetta, Little Mix - Heartbreak Anthem
-04. Jonasu - Black Magic(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3B2BA876DEE778E09BC545F56D47F1F6B93FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

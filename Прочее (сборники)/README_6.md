@@ -1,3 +1,148 @@
+###  Публикация: 1447679   (1031631) от 14.02.2021
+
+VA - Music News vol.72 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сплин - Вирус (04:39)
+ 02. 3OH!3 - Tattooed Heart (03:28)
+ 03. DJ Dark & DJ Iljano - Sugar (03:35)
+ 04. Eskin - Улица (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53F1AC11ABD8A51EE87597D1452784C347448CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447633   (1031629) от 14.02.2021
+
+VA - The Official UK Top 40 Singles Chart 12.02.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031629.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olivia Rodrigo - drivers license
+002. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+003. The Kid Laroi - WITHOUT YOU
+004. Anne-Marie - Don't Play(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EB2CCAC1109C82685121A6A5C4CBF7F63E77D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447719   (1031593) от 14.02.2021
+
+VA - Neo Traditional Country (2021) [MP3|320 Kbps] <Country, Folk Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Neo Traditional Country" придётся по душе большинству любителей народной музыки, и в частности тем слушателям, которым нравится мягкая, раздумчивая и иногда даже плавная музыка, но не лишенная характера и американской изюминки.001. Luke Bryan - Where Are We Goin'
+002. Steve Earle - The Mine
+003. Eileen Rose - She's Gone
+004. Kane Brown - Bfe(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 09:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5156EB598E3AB89F716828E0DDA7554D1C0AF99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447512   (1031460) от 14.02.2021
+
+VA - Дискотека 2021 Dance Club Vol. 207 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. DJ JEDY feat Lana Sun - My Power (3:17)
+02. Ahmed Helmy - Astro (5:42)
+03. Alan Walker feat. Isak - Sorry (2:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 21:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B56D8EB4D07C8160A04EBD1F66D8EE8F93C58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448110   (1031136) от 16.02.2021
+
+VA - Classic Italian Songs (2021) [MP3|320 Kbps] <Classic, Vocal, Retro, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка и песни этого сборника переносят в теплую, гостеприимную Италию, заряжают вкусом к жизни и помогают ощутить её в самых тончайших оттенках. Послушайте сочные итальянские голоса, смакуйте яркие итальянские мелодии, насладитесь живыми мотивами итальянской музыки! Почувствуйте Италию душой!01. Edoardo Vianello - Guarda Come Dondolo
+02. Giuni Russo - L'addio
+03. Mina - Il Cielo In Una Stanza
+04. Sandro Giacobbe - Signora Mia(   Читать дальше...   )Жанр: Classic, Vocal, Retro, PopПродолжительность: 04:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C9CC762A4E5D3BDC2D24ED715CE07EB31FB768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448346   (1030920) от 17.02.2021
 
 VA - Music News vol.73 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -600,151 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 05.03.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4536676966E51870ADAB714121F2044E1E383562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451924   (1027863) от 05.03.2021
-
-VA - CarMusic for man (2021) [MP3|320 Kbps] <Club, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soda - Pullin Up (1:55)
-02. Giorgio Gee - Car Party (2:06)
-03. Darrell Story - Bella Ciao (2:07)
-04. MNEX - Sad (2:12)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 04:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0570F25DBD38AA115F0C53F0A89F35EDC67D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452415   (1027717) от 06.03.2021
-
-VA - Music News vol.78 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lidia Buble - Intens (03:19)
- 02. Alex Parker feat. Bastien - I Need You (Fullpoy Remix) (02:18)
- 03. Alle Farben & Fools Garden - Lemon Tree (Alle Farben & FRDY VIP Mix) (03:09)
- 04. Alvaro Soler - Magia (03:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83BB7B6CF34512DBFC8162698E31C3D77D538B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452432   (1027715) от 06.03.2021
-
-VA - Music News vol.79 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NK - Девочки Рулят (02:32)
- 02. Andre TAY - Потанцуй Со Мной (04:37)
- 03. Ben & Tan - Iron Heart (02:59)
- 04. Bruno Mars & Anderson .Paak feat. Silk Sonic - Leave The Door Open (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BF36141F5420A9D0F4AC9DC3C04C7A97F6B4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452793   (1027356) от 08.03.2021
-
-VA - Музыка на 8 марта (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyosha - Sweet People (3:00)
-02. Chuck Loeb - The Girl From Ipanema (4:55)
-03. Esther Phillips - I'm A Bad, Bad Girl (2:55)
-04. Manizha - Мама (5:48)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39901526957448B4E4750B28DDA0904181421F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452689   (1027346) от 08.03.2021
-
-VA - Love Songs 80s 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura Poles - Thank You (3:10)
-02. Shania Twain - You're Still The One (3:14)
-03. Tamara & Diego Grande - Up Where We Belong (3:24)
-04. Simply Red - If You Don't Know Me by Now - 2008 Remaster (3:26)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F4C020A057997A88158FC90C599E56B6415425
 ```
 
 https://mybot314.ru/tekegram_catalog/

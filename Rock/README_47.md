@@ -1,3 +1,61 @@
+###  Публикация: 1240467   (524255) от 12.08.2018
+
+VA - Classic Road Trip (2018) [MP3|320 Kbps] <Blues, Psychedelic Rock, Folk, Blue-eyed Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524255.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+  1. The Rolling Stones - Start Me Up
+  2. Cream - Sunshine Of Your Love
+  3. The Who - Who Are You(   Читать дальше...   )Жанр: Blues, Psychedelic Rock, Folk, Blue-eyed SoulПродолжительность: 03:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF80E08F71407A16B69E7A20F924155FC5D0CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927791   (524124) от 14.08.2015
+
+The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб/с]<Goth Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Generals (3:26)
+02.  Dozen girls (4:36)
+03.  Disguise (3:30)
+04.  Take that (2:51)(   Читать дальше...   )Жанр: Goth Rock, PunkПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE12859D05E0841DE2D29E45B833D79A58D84183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927560   (524123) от 14.08.2015
 
 Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб/с]<Rock>
@@ -698,64 +756,6 @@ Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DB7A390572B842775091ABB5288C43ED0DEA21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929665   (518508) от 20.08.2015
-
-Ideal Zero - In Perfect Darkness (2014) [MP3|320 кб/с]<Alternative Rock , Heavy, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before We Drown
-02. Little Blue Man
-03. Don't Give Up
-04. Walls(   Читать дальше...   )Жанр: Alternative Rock , Heavy, Female VocalПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5B7574D7B7AF2BDE01522265906E38A9AF69FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560395   (517803) от 02.07.2022
-
-Lobate Scarp - You Have It All (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conduit (7:00)
-02. Nothing Wrong (6:17)
-03. In The Night I (0:55)
-04. Life-Line (5:55)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB49CFF8681B42CBFF27C28A7230358766035789
 ```
 
 https://mybot314.ru/tekegram_catalog/

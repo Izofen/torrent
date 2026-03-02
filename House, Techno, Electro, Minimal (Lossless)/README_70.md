@@ -1,3 +1,350 @@
+###  Публикация: 1795040   (19552) от 02.05.2025
+
+VA - Afro Beats Summer Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Alright (5:58)
+02. Cristian Ferrer - Away (Radio Edit) (4:43)
+03. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
+04. Cristian Ferrer - Deep Inside (Radio Edit) (3:11)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB064182460744FBDEF613CAE8B59007AF4A58F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795305   (19448) от 03.05.2025
+
+VA - Midnight Chills (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dellahouse - It's a promise we will keep (3:39)
+02. N.E.O.N - Alone (Radio Edit) (2:42)
+03. Fly - Secret Healing (5:20)
+04. Melecdo - Be With You (3:18)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B9AE09BAF5538803B63D1A7E9AD27A9E7CDEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795704   (19131) от 06.05.2025
+
+VA - Beach Lounge 2025 (Deep Strips Records ) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - All Better (Radio Edit) (4:04)
+02. V.O.P. - Tell Me That (2:43)
+03. Anka - Your Eyes (2:25)
+04. Jayanth Ak - I Wanna Lose Control (2:12)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F014EFCD5E33D9D0C11FE69B32483BF7ED4B49DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797058   (18296) от 14.05.2025
+
+VA - Ibiza Lounge 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Your Love (Extended Mix) (4:37)
+02. Melecdo - Be With You (3:18)
+03. N.E.O.N - Think Twice (4:19)
+04. Anup4m - Deeper (3:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8458F5E766278AA6E7420C1F43C781C38D3CBD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797465   (18094) от 16.05.2025
+
+Avicii - Avicii Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Me Up (Radio Edit) (04:09)
+02. Levels (Radio Edit) (03:21)
+03. Let's Ride Away (02:53)
+04. The Nights (02:56)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528AEB23D7250CD6F7EBE8F8B15CC32EBC1613DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649491   (17872) от 18.05.2025
+
+John Beltran - Serendipia, Serendipia Remixed (2023, 2024) [FLAC|Lossless|WEB-DL|tracks] <House, Electro Pop, Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Serendipia
+2024 - Serendipia RemixedЖанр: House, Electro Pop, Organic House, DowntempoПродолжительность: 2 CD, 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66C103D846929450CECBF53B50E8C2ADA0B875A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810233   (17561) от 03.08.2025
+
+Groove Armada - Black Light 15th Anniversary (2010) 2025 15th Anniversary Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electronica, House, Big beat, Trip hop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Me In the Eye Sister
+02. Fall Silent
+03. Just For Tonight
+04. Not Forgotten(   Читать дальше...   )Жанр: Electronica, House, Big beat, Trip hopПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA2094953F36889257A2F8BDBAADF1B33E93F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799019   (16969) от 25.05.2025
+
+VA - Arabtronica 2025 - The Best Eastern Rhythms [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imad Saad - Sweet day (4:49)
+02. Morad Abu - Aïcha (4:38)
+03. Khaled Youssef - Strugglin' (5:22)
+04. Mo-Omar - Ya Tabtab Wa Dallaa (5:24)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A252B344BA217C883D2F8DC190DC66829A422B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810721   (16897) от 06.08.2025
+
+Rudy's Midnight Machine - The Reception (2008) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Reception (Part 1) 4:47
+02 The Reception (Part 2) 5:14
+03 The Reception (Part 3) 5:19
+04 The Reception (Part 4) 4:32Жанр: House, Nu DiscoПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DFF3B7B86E6E67FA75CABED2CBB42C8C42C505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800241   (15834) от 02.06.2025
+
+Jennifer Lopez - On the 6 (1999) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Funk / Soul, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Had My Love    [0:04:25.55]
+02. Should’ve Never    [0:06:14.25]
+03. Too Late    [0:04:27.32]
+04. Feelin’ So Good    [0:05:27.23](   Читать дальше...   )Жанр: Electronic, Latin, Funk / Soul, PopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A0354D3762261EECFE2CA9959A8AD91BB26A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800412   (15832) от 02.06.2025
+
+State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno, Ambient, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cobalt (6:03)
+02. Erbium (6:29)
+03. Zinc (7:08)
+04. Iridium (5:33)(   Читать дальше...   )Жанр: Techno, Ambient, DowntempoПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1388AF2A19F6D47F8A7AB33935FA484CA170CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800311   (15831) от 02.06.2025
+
+VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-Sta - Highend Fashion (Original Mix) [5:20]
+02. Filizola - Get Me (Original Mix) [5:47]
+03. Goodman & T-Mark - Fading Lights (Original Mix) [4:31]
+04. Mike D' Jais - We Touch The Sky (Original Mix) [3:09](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9066A12A3888F4ACAE6030217392BD83B7D83CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800439   (15730) от 03.06.2025
 
 VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -392,236 +739,6 @@ VA - Summer Beach Music 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158E021FE04082674D05E0FEE3232EF78CB69A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813924   (6452) от 22.08.2025
-
-VA - Ibiza Nights (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kmoba - For You (4:17)
-02. Jayanth Ak - Dream Again (2:11)
-03. DeepTurco - The Lake (3:32)
-04. N.E.O.N - One Day (4:16)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65DD912C114E7E5D638B706F745D2A992920E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814628   (5955) от 25.08.2025
-
-VA - Milk & Sugar Beach Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Kurt - Let It Run (Momo Khani & Meindel Remake) (5:43)
-02. T.Markakis - A Beautiful Day (Extended Mix) (4:51)
-03. ColorJaxx - In Unity (Extended Mix) (6:10)
-04. Casanovy - I Need Your Lovin' (Momo Khani & Meindel Remake) (7:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4716BEB974C56796D1E286538C848CB855E1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814694   (5814) от 26.08.2025
-
-VA - Dance 360 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - Hey Mama (feat. Nicki Minaj, Bebe Rexha & Afrojack) (3:17)
-02. Nathan Dawe - 21 Reasons (feat. Ella Henderson) (2:35)
-03. Dua Lipa - Dance The Night (2:56)
-04. Fred again.. - adore u (3:40)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EEB708BB75782F0DECCB7E05952714B8EEABFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815024   (5521) от 28.08.2025
-
-VA - Buddha Luxury 2025 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Oriental House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Johny Luv - Palinka (Original Mix) (7:32)
-03. Mikaël Is Love - Zawadi (Original Mix) (8:58)
-04. Ivan Suvorov - Orchard (Original Mix) (5:43)(   Читать дальше...   )Жанр: Oriental HouseПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B316415A4D628124BAD502A205FF1B5E180D6598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815153   (5486) от 28.08.2025
-
-Peter Tha Zouk & Bruno Marciano - Kashmira (2001) [FLAC|Lossless|tracks] <Progressive House, Tribal House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kashmira (Original Mix) 8:55
-02 Kashmira (Oriental Revenge Mix) 8:07
-03 Kashmira (Paul Jays Remix) 9:25Жанр: Progressive House, Tribal HouseПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89DB2363B4BCE1AB55FBCD529C9E813C9FAEF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817042   (3724) от 08.09.2025
-
-VA - Summertime Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Feel So Good (7:10)
-02. Sharapov - Don't Cry (Toly Braun Remix) (3:21)
-03. Elegant Ape - Cheater (2:59)
-04. Abee Sash - When I First Saw You (Mant Deep Remix) (4:44)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481283F4AA89ED9E3014162BBEDE90AD3919965C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817203   (3559) от 09.09.2025
-
-Soul Central ft. Abigail Bailey - Time After Time (2007) [FLAC|Lossless|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Time After Time (Soul Central Vocal Mix) 9:40
-02 Time After Time (Yoruba Soul Mix) 6:39
-03 Time After Time (Yoruba Soul Dub) 5:23Жанр: Deep HouseПродолжительность: 00:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923C1B8099F5CCD45A9ECE8A696DA32B5255A728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819909   (974) от 25.09.2025
-
-Meute - Jubel (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rej [00:05:31]
-02. You & Me [00:05:06]
-03. Hey Hey [00:05:28]
-04. Gula [00:06:56](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686990AD9A876C28A2C75D79F6ABB0A6C2F616DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

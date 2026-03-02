@@ -1,3 +1,32 @@
+###  Публикация: 1602550   (204393) от 06.01.2023
+
+VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Йорш - Половинки (3:25)
+002. Nagart - Сирена (4:15)
+003. Эпидемия - Письмо Ведьмаку (5:37)
+004. 25/17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356395   (204243) от 10.01.2023
 
 Wildways (ex-Sarah Where Is My Tea) - Коллекция (Дискография) (9 альбомов) (2009-2022) [MP3|128-320 Kbps] <Металкор, Постхардкор, Рок>
@@ -713,35 +742,6 @@ VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4A9D01E69CA3FDC83852D56882ABC8B3E250C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427691   (181411) от 30.11.2020
-
-VA - Instrumental Rock Classic (2020) [MP3|192-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sammy Boller - Dark Night Of The Soul
-002. Covet - Falkor
-003. Brave The Waters - Out Of Nowhere
-004. The Ascent - Secret Truth(   Читать дальше...   )Жанр: RockПродолжительность: 08:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455A3B9201EDFD823F3E471A6234B4CCAAF93CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

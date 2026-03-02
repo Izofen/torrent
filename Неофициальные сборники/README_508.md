@@ -1,3 +1,206 @@
+###  Публикация: 1332876   (309123) от 22.10.2019
+
+VA - Planet Pop: Summertime Selection (2019) [MP3|320 Kbps] <Pop, Europop, Rnb>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matteo Cetinski - Vjerujem
+002. Inna - La Vida
+003. Careless - Right There
+004. Sarsa - Nie Rob Nic(   Читать дальше...   )Жанр: Pop, Europop, RnbПродолжительность: 08:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586C1DD9B5264AE4FDC8AA5D2B338245BA469B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076750   (309076) от 27.11.2016
+
+VA - UNKLE  - Best275z (1998 - 2011) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rabbit In Your Headlights 06:23
+02 Lonely Soul 08:57
+03 Unreal 05:13
+04 Bloodstain 05:59(   Читать дальше...   )Жанр: ElectronicПродолжительность: 05:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030F3333F1EBF4303F5A35DC3BDE8AF0A68BB546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077264   (309063) от 27.11.2016
+
+Gamma - Аnthology (1979-1982) [MP3|320 Kbps] <Hard & Heavy Progressive>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm alive
+02. What's Gone Is Gone
+03. Ready for Action
+04. Wish I was(   Читать дальше...   )Жанр: Hard Progressive RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EBC3E3A83130FCD11ED1FD161C04FF30CAF046E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076982   (308867) от 27.11.2016
+
+VA - Smooth Jazz Music Collection (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Piano Music Zone - Smooth Jazz Music (Accordion, Guitar & Piano)
+02. Sexual Piano Jazz Collection - Sexy Sax and Piano Bar (Romantic Dinner)
+03. Jazz Music Collection - After Midnight (Trombone, Cello and Piano)
+04. Amazing Chill Out Jazz Paradise - Memories (Best Love Song)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB808662CC7B78C02F98115B878368DF5ECD95A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077044   (308865) от 27.11.2016
+
+VA - Ibiza 2016. Best of Funky-House and Disco-House [Compiled by Mistik] (2016) [MP3|320 Kbps] <Funky House, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) (8:10)
+02. Kevin McKay - What U Want (J Paul Getto Classic mix) (7:12)
+03. Antonio Giacca & Fort Arkansas - What U Know (Original Mix) (5:19)
+04. Micky More & Andy Tee - I'm Another Man (Right To Life Remix) (6:14)(   Читать дальше...   )Жанр: Funky House, Disco HouseПродолжительность: 06:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A91D43D8855A5DB6FD3870387ABB018729CD1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422575   (308696) от 09.11.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #197 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solar Walker - Shapeshifter
+002. Lost & Found - Hands (Remix)
+003. Atomizers - Is There A Future
+004. Visua - Atomic Gathering(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEADB62323CFE6E0427210B2724D7EEEBDE9A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422573   (308694) от 09.11.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #199 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308694.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Fresh - Gold Dust
+002. Ben Soundscape - Sentimental Journey
+003. No Concept - Falling
+004. Kre And Basshoven - With You(   Читать дальше...   )Жанр: Drum & Bass, Bassline, DubstepПродолжительность: 08:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367F34A4D8A44CB569FA4A417BB6BADAD700C02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422572   (308688) от 09.11.2020
 
 VA - Beatport Dancehall: Sound Pack #198 (2020) [MP3|320 Kbps] <Dancehall, Riddim, Reggaeton>
@@ -564,209 +767,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 022 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9E684606F54BFCAE96E861D65CD2D09B4EF42CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183642   (307782) от 14.11.2017
-
-VA - Dяgilev Proжект - Residents (2007) [MP3|204-320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VOL.1 / CD1 DJ Mendez (19 треков / 1:16:18)
-02. VOL.1 / CD2 DJ Vini (15 треков / 1:11:12)
-03. VOL.1 / CD3 DJ Max (14 треков / 1:15:02)
-04. VOL.1 / CD4 DJ Паша Кореец (12 треков / 1:07:34)(   Читать дальше...   )Жанр: HouseПродолжительность: 23:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418D7E99AA91E2D026C6D4DC6FED0D8DD6EFD5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183614   (307780) от 14.11.2017
-
-VA - Disco Swing (2017) [MP3|320 Kbps] <Swing, Jazz, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Pony, Deladap - Ali Baba
-02. Fat Magic - Hola Rey (Remix)
-03. The Electric Swing Circus - Mr Magpie
-04. Swing Republic - Crazy In Love(   Читать дальше...   )Жанр: Swing, Jazz, HouseПродолжительность: 04:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01898D15419B62A04F9302FC0A1610D38CEF7274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960422   (307729) от 28.11.2015
-
-VA - Дискотека забытых хитов (зарубежная) - 19 (2015) [MP3|160 - 320 кб/с]<Pop, Disco, Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attack - Special Love (06:54)
-02. Righeira - Disco Volante (04:49)
-03. E.G.Daily - Love In The Shadows - Remix (08:46)
-04. Hot Cold - I Can Hear Your Voice (Vocal Version) (05:30)(   Читать дальше...   )Жанр: Pop, Disco, Italo DiscoПродолжительность: 04:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA189773E929F94612DD723DDC38B54FEC93980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960394   (307724) от 28.11.2015
-
-VA - Жаркие осенние хиты (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джокеры - Милая-Любимая (Vixus Remix)
-02. Алексия - Буду Танцевать
-03. Дмитрий Каминский - Согреет
-04. Потап и Настя feat. Бьянка - Стиль Собачки(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32A0AC71F9607F6564C39E20162C3660FDA4B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960659   (307723) от 28.11.2015
-
-VA - Memory Of Newness (5CD) (2015) [MP3|320 кб/с]<Neoclassic, New Age, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307723.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. Digitonal - We Three 06:13
-02. Olafur Arnalds & Alice Sara Ott - Nocturne in C Sharp Minor 04:25(   Читать дальше...   )Жанр: Neoclassic, New Age, AmbientПродолжительность: 11:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7957F40FF68A8D18429811D5463449D2DB2ABB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960398   (307712) от 28.11.2015
-
-VA - Opera Metal Voices (2011) [MP3|256-320 кб/с]<Symphonic, Power, Gothic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amberian Dawn - Incubus
-02. Liva - Rosa Marcet Oriens
-03. Diablo Swing Orchestra - A Rancid Romance
-04. Almora - Candle In The Night(   Читать дальше...   )Жанр: Symphonic, Power, Gothic MetalПродолжительность: 01:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDA153325CA9418D2F5C96CBAC976E7A9473352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260647   (307693) от 09.11.2018
-
-VA - Frozen Beats (2018) [MP3|320 Kbps] <Bass, Drum and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bcee - Surfacing
-002. Fox Stevenson - Bruises
-003. Carlito & Addiction - Rumours (Original Mix)
-004. Enta - Warped(   Читать дальше...   )Жанр: Bass, Drum and Bass, DubstepПродолжительность: 08:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34661DAF1560D57E9A04ECD446A4202020FA285D
 ```
 
 https://mybot314.ru/tekegram_catalog/

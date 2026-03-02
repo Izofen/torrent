@@ -1,3 +1,32 @@
+###  Публикация: 1597632   (165942) от 15.12.2022
+
+Thermal Noise - 7 Albums (2018-2022) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - NEMESIS
+2019 - Horizon
+2019 - Intruder(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 7 CD, 05:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55773E5A15EFD2719B1108831E1E4D62E31DFC2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600204   (159041) от 26.12.2022
 
 NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
@@ -716,35 +745,6 @@ Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9C57AE5FDC390A2DB9858E4091A24EA7EBDF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697480   (118767) от 07.02.2024
-
-Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enemy On Earth (Vocoder Mix)
-02.  Land Of Nowhere
-03.  Fire On Ice
-04.  Hypermagic(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42A44BD66E077A2B7FD920869B2A4EABCD78373
 ```
 
 https://mybot314.ru/tekegram_catalog/

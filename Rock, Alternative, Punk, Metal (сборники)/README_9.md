@@ -1,3 +1,32 @@
+###  Публикация: 1376391   (860156) от 17.04.2020
+
+Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great American Success Story
+02. Caught in a Dream
+03. Under My Wheels
+04. School's Out(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46706EA4F3AC18FEE84A4A809B7274A849E13CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497921   (859653) от 25.09.2021
 
 VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:783872455387AB898ADBC613B75854136ECC3EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377770   (849576) от 23.04.2020
-
-Marilyn Manson - 100% Marilyn Manson (2020) 2CD [MP3|320 Kbps] <Rock, Industrial>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (Are Made Of This) (Album Version)
-02. The Beautiful People (Album Version)
-03. KILL4ME
-04. Tainted Love(   Читать дальше...   )Жанр: Rock, IndustrialПродолжительность: 07:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4A27913CFED92A573617CF34206661BA6AFAF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

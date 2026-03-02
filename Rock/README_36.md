@@ -1,3 +1,61 @@
+###  Публикация: 1292772   (643201) от 31.03.2019
+
+Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diggin' the scene (03:09)
+02. A touch of blue (03:46)
+03. Aila (feat. Heidi Kaarto, Esa Pulliainen) (04:21)
+04. Muddy the water (03:36)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C0B9C1EECF608A148403E88474EB1BD79BC748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541102   (642990) от 04.04.2022
+
+Gleb Kolyadin - Gleb Kolyadin (Expanded Edition) (2018) Reissue, 2021, Kscope [MP3|320 Kbps] <Progressive Rock, Neo Classical, Piano Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширенное переиздание выпущенного на британском лейбле Кsсоре одноимённого сольного альбома российского музыканта Глеба Колядина - пианиста, композитора, выпускника Санкт-Петербургской консерватории им. Н.А.Римского-Корсакова, лауреата международных фортепианных конкурсов. Альбом тяготеет к прог-року благодаря вкладу приглашенных именитых музыкантов: Гэвин Харрисон (   Читать дальше...   )01. Insight (instr.)
+02. Аstrаl Аrсhitесturе
+03. Whitе Dаwn (instr.)
+04. Каlеidоsсоре(   Читать дальше...   )Жанр: Progressive Rock, Neo Classical, Piano RockПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4BBFBC6CE711E00EE03CA57DBBFA9DFC440752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033128   (642108) от 09.07.2016
 
 Rockin' Horse - Yes It Is (1971) [MP3|320 Kbps] <Rock, Pop Rock>
@@ -701,64 +759,6 @@ Joe Satriani - The Elephants Of Mars (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED1A57AC2149DF1025EA3F3F5519EF5A90053B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908011   (636258) от 13.06.2015
-
-Upsilon Acrux - Sun Square Dialect (2015) [MP3|320 кб/с]<Avant-Prog, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitch Mountain: Maps (06:17)
-02. Death Before Disharmonic (06:26)
-03. Smells Kline (04:04)
-04. Never Don't Give Up (03:47)(   Читать дальше...   )Жанр: Avant-Prog, Math RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BB55B9EDE72165A80012CADBAA9C6FD36E6FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907665   (636159) от 13.06.2015
-
-Rancid - All the Moon Stomper's (2015) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Time Bomb
-02 Daly City Train
-03 Old Friend
-04 Brixton(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B439DB6FAA739A7D565EC1E5446C3F3FAA7D9A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

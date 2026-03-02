@@ -1,3 +1,206 @@
+###  Публикация: 1212024   (776501) от 10.03.2018
+
+VA - 100 Hits DJ Trance Mastermix (2018) [MP3|320 Kbps] <Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elypsis & Fenna Day - Who You Are (Extended Mix)
+002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
+003. Cern - The Message (Northern Mix)
+004. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 10:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3030277AEFD5BE0D69FC3F472136F4F565B41946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014319   (776445) от 07.05.2016
+
+VA - Дискотека бездна удовольствий 1100 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776445.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Наташа Королева - Я Устала (02:54)
+002 Anouk - Run Away Together (03:34)
+003 Алексей Кудрявцев - Не Было Тебя (03:32)
+004 Randi - Dansam (03:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98947B82C813BB1C7F2464EA5D854621A5BC377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212170   (776432) от 10.03.2018
+
+VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 14 (2018) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ahzee - We Got This (Radio Edit) [2:53]
+02.	Alok & Liu feat. Stonefox - All I Want [3:03]
+03.	ASDEK - Imperial (Original Mix) [4:44]
+04.	Bazzi - Mine [2:14](   Читать дальше...   )Жанр: Electro, Deep, Techno, House, TranceПродолжительность: 06:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDE9797E80C50CF9CB802EB9EBE190C694A97F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212120   (776262) от 10.03.2018
+
+VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ya Rick Ft. Addie Nicole - Follow My Destiny (Original Mix) 03:17
+002. Vinicius Nape, Jonathas Noronha - Explore (Original Mix) 06:12
+003. Tyron Hapi, Mimoza - Anyway (Majestic Remix) 02:34
+004. Thomas Mengel Ft. Isotobia Forrest - Invincible (Mike Shiver Extended Mix) 04:44(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 07:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014480   (776207) от 08.05.2016
+
+VA - Trance Maniacs Party - Melody Of Heartbeat #163 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essonita feat. Irina Makosh - Letter To Angel (Original Mix) 6:27
+02. Beat Service - Not This Time - Original 5:55
+03. Squarz Kamel, Love Dimension - Say Me (Original Mix) 6:29
+04. Eminence Ft. Holly Drummond - Ultraviolet (Cold Rush Remix) 7:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E1686D1E5C38099CFB1C3ABFB974BDEB13CD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014716   (776206) от 08.05.2016
+
+VA - Floating Beings - Psy Trance Mix (2016) [MP3|320 кб/с] <Psy Trance, Psyhodelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense - Floating Beings 7:12
+02. U-Recken - Carol Of The Bells (Talamasca Remix) 7:49
+03. Gravedad cero - Above the Storm 8:29
+04. Major7 vs. Reality Test - Seduction 7:55(   Читать дальше...   )Жанр: Psy Trance, Psyhodelic, Goa TranceПродолжительность: 08:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38A84050321E277C0E466A85C233A87BCD525E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014454   (776205) от 08.05.2016
+
+VA - Beach Workout DJ Power (2016) [MP3|320 кб/с] <House, Progressve, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Val Entin, Gaetan Durand - Do It Hard (Club Mix) 5:38
+002. Samee - Close Yet Far (Original Mix) 7:38
+003. Phatt-B - Hesitation (Radio Edit) 3:24
+004. Pulsedriver - Do You Want It Right Now (Bounce Mix) 4:02(   Читать дальше...   )Жанр: House, Progressve, ClubПродолжительность: 10:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EE75854C851501661DBC83CAB1697587D94471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014545   (776204) от 08.05.2016
 
 VA - Holiday Atmosphere: Beach Trance Progressive (2016) [MP3|320 кб/с] <Progressive Trance>
@@ -542,209 +745,6 @@ VA - Танцевальная весна (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D90395D22813BA0760DAB157655796FF00F16A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212281   (776017) от 11.03.2018
-
-VA - Popular Italian Songs: Classic Collection 80s (2018) [MP3|320 Kbps] <Pop, Disco, Italian>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Toto Cutugno - L'italiano
-002. Raffaella Carra' - A Far L'Amore Comincia Tu
-003. Brunella - Mambo Italiano
-004. Adriano Celentano - L'Estate E Gia Qua(   Читать дальше...   )Жанр: Pop, Disco, ItalianПродолжительность: 07:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026D8FEDF90D80513E013A606B0FBFED3099180D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212263   (776015) от 11.03.2018
-
-VA - Философия Весны от Авторадио (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776015.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Воробьев - Я Тебя Люблю
-002. Emin & А-Студио - Если Ты Рядом
-003. Alisher - Грешник
-004. Планка - Это Было Больно(   Читать дальше...   )Жанр: PopПродолжительность: 12:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4175E48F47F8AB3E89DB8F11184B407B2AD80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212433   (776009) от 11.03.2018
-
-VA - Зарубежные Хиты (Март) (2018) [MP3|320 Kbps] <Dance, Pop, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776009.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 30 Seconds To Mars - Dangerous Night
-002. 247 - Tu Guerrero
-003. Adam Cola - Be Free
-004. Adelen - Go Home(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 05:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F25B29898A5CEBDCE75EB21A40F1B0A4AB8EE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212354   (776007) от 11.03.2018
-
-VA - Women Blues (2000-2016) (2018) 2CD  [MP3|320 Kbps] <Blues, Blues-Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana & Milton Popovic - Did Somebody Make A Fool Out Of You (4:36)
-02. Sarah Brown - Good Fella Robert (3:15)
-03. Maria Muldaur - I Done Made It Up In My Mind (4:10)
-04. Peter Karp & Sue Foley - Fine Love (2:59)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 02:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1A27FBB4F8CF6D6F9267DBEDB5EF2CC6572BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212344   (776005) от 11.03.2018
-
-VA - Instrumental Piano: Neo Classical Collection (2018) [MP3|320 Kbps] <Instrumental, Neoclassical, Piano>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Music Lab Collective  -  7 Years (Lukas Graham)  2:44
-002.  Phil Collins  -  Another Day In Paradise (Piano Cover)  5:08
-003.  Gregory Aigersson  -  De-Stress  3:15
-004.  Rick Wakeman  -  Life On Mars (David Bowie)  3:23(   Читать дальше...   )Жанр: Instrumental, Neoclassical, PianoПродолжительность: 07:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE080B5E00C2A550C493B37F147C777F14101AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014980   (775853) от 09.05.2016
-
-VA - Sexy Deep Chilling (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Hit Your Deadline
-02. Circuito Zeta - Stomp
-03. Chillelektro - Vitt
-04. Unexpected Marvel - Spread the Rumor(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B494D332C8D03EEBDA6549549493CA6ED5221A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014921   (775846) от 09.05.2016
-
-VA - 40 Top Hits DJ Boom (2016) [MP3|320 кб/с] <House, Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrick - Ardent (Original Mix) 5:23
-02. Gordey Tsukanov - Flight To Infinity (Digital X Remix) 4:39
-03. Husman - Destiny (Extended Mix) 4:25
-04. Crystal Lake & DJ Isaac - Pirates (Extended Mix) 3:58(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4302883C54EE5A8BBC6F5859A47141340EFE727
 ```
 
 https://mybot314.ru/tekegram_catalog/

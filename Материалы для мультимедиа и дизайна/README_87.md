@@ -1,3 +1,29 @@
+###  Публикация: 1199453   (801028) от 16.01.2018
+
+Растровый клипарт - Fotolia - Apricot [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абрикос с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3254x4700-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13949AC987B8BBC87DBC174C77D783DDB596784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199452   (801023) от 16.01.2018
 
 Растровый клипарт - Different Cargo Transport 21 [JPG]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2364FB42B6221C890264289074E5DC200A0024AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507608   (798205) от 05.11.2021
-
-Пресеты - Creative Market - 788 Cyberpunk Presets LUTs - 5883096 [XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите этот колоссальный набор из 788 пресетов и LUT, чтобы создавать потрясающие образы в стиле киберпанк.Формат: XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A0C8A4E7D950216B2A29299001FCC5D2EB727E
 ```
 
 https://mybot314.ru/tekegram_catalog/

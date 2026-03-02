@@ -1,3 +1,61 @@
+###  Публикация: 992971   (898631) от 03.03.2016
+
+Линда - Ворона (1996) [FLAC|Lossless|image + .cue] <Electronic, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Холод 	01:51
+02. 	Северный Ветер 	05:37
+03. 	Никогда 	04:30
+04. 	Ворона 	05:32(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C3C97F941BCD56290BE2B464706AE0AF4B1B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101589   (894573) от 07.02.2017
+
+Сурганова и Оркестр - Как я провёл этот Летник (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые люди
+02. Вот и ты
+03. Цветы и звёзды
+04. Путник милый(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926D950D544A8E878F700FF70938089DBD0A597C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493518   (892446) от 05.09.2021
 
 Аспид - Кровоизлияние (1992) Limited Edition, Reissue, 2021,  Metal Race [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB7AADB67C2C23AC487C687CC5D95F34A46D1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374640   (873158) от 10.04.2020
-
-Аркона - Жизнь Во Славу... (2006) [FLAC|Lossless|image + .cue] <Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (Коломыйка) 1:30
-02. Сквозь туман веков 5:23
-03. По сырой земле 7:47
-04. Масленица 3:29(   Читать дальше...   )Жанр: Pagan MetalПродолжительность: 01:13;29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3A737E1953AF3D99DDCE9FA052D82B9A8B0DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997546   (873098) от 17.03.2016
-
-Сектор Газа - Сектор Газа (1989) 1997, GALA Records [FLAC|Lossless|tracks + .cue] <Punk>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сектор газа (3:39)
-02. Ангел секса (3:10)
-03. Авто-мат (3:16)
-04. Я мочился в ночь (2:11)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCFDE9AA82C7D734A825EC6E8CCF7C8A69CBCFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

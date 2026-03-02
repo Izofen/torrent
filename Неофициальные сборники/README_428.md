@@ -1,3 +1,203 @@
+###  Публикация: 944203   (442505) от 06.10.2015
+
+Joe Dassin - Good Songs (2015) [MP3|320 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bip Bip (1965-1969)
+002. Guantanamera (1965-1969)
+003. Je change un peu de vent (1965-1969)
+004. Il a plu (1965-1969)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 05:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BD5904E9515AD11B3F8BD6D7596A4F932EE243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062402   (442463) от 13.10.2016
+
+VA - Lucid Moments Vol 7 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Trip-Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klartraum & Thalstroem - Flight To BerlinЖанр: Chillout, Downtempo, Trip-HopПродолжительность: 05:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B2C818B2F552C7A1402F401B844D6E3822D2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322923   (442412) от 01.09.2019
+
+VA - Record Super Chart 602 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+02. C-BooL - Catch You 3:13
+03. Billie Eilish - Bad Guy 3:14
+04. Aaron Smith - Dancin (Krono Remix) 4:16(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2285841C68772561C8C50208A6AB4EAF464D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248508   (442388) от 20.09.2018
+
+VA - Indie Pop Rock: Select Party Essentials (2018) [MP3|320 Kbps] <Pop, Rock, Independ>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stone Roses - Stone
+02. Guerilla Toss - Green Apple
+03. Conner Youngblood - Los Angeles
+04. The Holydrug Couple - Waterfalls(   Читать дальше...   )Жанр: Pop, Rock, IndependПродолжительность: 05:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22553EE40520F58E9AD00075AED83C357BA1EA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062194   (442310) от 13.10.2016
+
+VA - Best Of Lounge Ambient and Chill Out Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamhunter - Easy Times
+02. Anemine - Adams
+03. Alex Greenhouse - Winter
+04. Michael E. - It's Like Floating(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F560D73CB2187DDB13B3A9D97907391667FA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061520   (442162) от 13.10.2016
+
+VA - Best Chillout Vol.17 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2X2A - Skin (Original mix) (02:42)
+002.4by4 - I Don't Think I Care (Original mix) (03:48)
+003.Adrian Barrie - Everything Machine (Original mix) (03:18)
+004.al l bo - Around The World (laszlo Nikulin Remix) (04:52)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E19CC45E3EFB7060EF44AA0C3AAA12A509B0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062259   (442156) от 13.10.2016
+
+VA - Billboard Hot 100 Singles Chart 22.10. (2016) [MP3|128-320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442156.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chainsmokers Feat Halsey - Closer
+002. Twenty One Pilots - Heathens
+003. The Weeknd Feat Daft Punk - Starboy
+004. Major Lazer Feat Justin Bieber And Mo - Cold Water(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 06:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9CA255BE875A936DE174BEEFFE035E1530C8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062410   (442154) от 13.10.2016
 
 VA - Любимая волна от Европы Плюс. Сборник 4 (2016) [MP3|256 Kbps] <Pop>
@@ -560,209 +760,6 @@ VA - Recognition Of The Heart (2015) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A8AD17E1D81D2AACD617DB96FE011EEA02E5633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944304   (440231) от 07.10.2015
-
-VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mellow Cafe and Jazz Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Piano Music Ensemble - Calming Piano Music
-02. Relaxing Piano Jazz Music Ensemble - Piano Lounge (SPA Music)
-03. Sad Instrumental Piano Music Zone - Jazz Piano Music (Relaxing Jazz)
-04. Piano Jazz Calming Music Academy - Relaxing Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944258   (440224) от 07.10.2015
-
-Toto Cutugno - Good Songs (2015) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440224.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A... Rio
-002. Adulele
-003. Aeroplani
-004. Aeroporto Kennedy(   Читать дальше...   )Жанр: PopПродолжительность: 12:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C1F682F4ECC1BD2C3443C949AA214A18157D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248356   (440030) от 21.09.2018
-
-VA - Quality Dance Selector (2018) [MP3|320 Kbps] <Hard House, Club, Eurodance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivo Zeekar - Pump it
-02. Filinskiy - Smash It (Original Mix)
-03. Disclosure - Love Can Be So Hard (Original Mix)
-04. Marlo Morales and Zona feat. Mary Palmer - We Own The Night (Mariano Remix)(   Читать дальше...   )Жанр: Hard House, Club, EurodanceПродолжительность: 04:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A9009D0B744906E5274DD869031C3C7CA6FE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248785   (440020) от 21.09.2018
-
-VA - Now Electronic (2018) [MP3|320 Kbps] <Electronic, Synthetic, New Wave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Discrete Circuit - Control Zero
-002. Frederick And Kusse - Gully Queen (Original Mix)
-003. The Astro Music - Never Bend
-004. C.P.Smith - Needle To The Groove(   Читать дальше...   )Жанр: Electronic, Synthetic, New WaveПродолжительность: 09:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D0F218FF5D419C52392DF670437D4E0C7369D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248701   (439815) от 21.09.2018
-
-VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439815.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. House of lords - One touch
-002. Outloud - Out in the night
-003. Treat - Paper tiger
-004. Freedom hawk - Deep inside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE580A21C814A56B238029E8754ED79243F7CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164665   (439688) от 10.09.2017
-
-VA - Empire Records – Kiddy House (2017) [MP3|287-320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bakermat – Baby
-02. Julian Jordan & SJ – Say Love
-03. Martin Solveig, Alma – All Stars (Original Mix)
-04. Sam F x Yntendo, Lizzy Land – All We Got(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BA717CFCC5008DF97AA0BBDA12F54F21BD3BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164726   (439687) от 10.09.2017
-
-VA - Empire Records - Chill Out 13 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gushi And Raffunk - In Me
-02. Pimpi Arroyo - Smells Like Teen Spirit
-03. Katun - Shout
-04. Miper - Lose It All (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B870DD7870E1F49904868642CF9215DBE84B5502
 ```
 
 https://mybot314.ru/tekegram_catalog/

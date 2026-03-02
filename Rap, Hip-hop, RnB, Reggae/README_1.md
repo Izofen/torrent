@@ -1,3 +1,90 @@
+###  Публикация: 1446611   (1032744) от 09.02.2021
+
+Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTBA Intro (0:30)
+02. Riot (2:50)
+03. 1994 (2:23)
+04. GPT (4:35)(   Читать дальше...   )Производство: Beatrock MusicЖанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488E464D0B054C6C636E8E6BFE570737FC3E0067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849406   (1032720) от 09.02.2021
+
+Odessa Kane - Cuetes And Balisongs (2012) EP [FLAC|Lossless|WEB-DL] <Hip-Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  -  Chapter 6 Verse 19 (1:54)
+02  -  Payback (2:52)
+03  -  Anastacio (2:43)
+04  -  Nino de la Tierra (3:42)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF2C5AEF45458BD99171F157A7709DA5D25434E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620219   (1032350) от 19.03.2023
+
+VA - Chillhop Essentials Winter (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dotlights – Come In And Stay (3:00)
+02. Bao, Broken Transient – Mantilla (2:24)
+03. Poldoore – Warmer Days (2:35)
+04. The Doppelgangaz – Dole Out (2:56)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84AF64683D71A75612CA87A7AEE732F387F6110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447195   (1032040) от 12.02.2021
 
 Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -652,93 +739,6 @@ HammAli & Navai - Когда хорошему человеку плохо (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90BAF76EA32B1B1A426AF566D27CE0E93EF2942C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459758   (1022823) от 04.04.2021
-
-ST1M - Сьерра-Леоне (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сьерра-Леоне [03:17]
-02. Иллюзион [02:43]
-03. Р.И.П.К.И.П. [03:23]
-04. теRAPия [02:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B143AE2D90BECEB7A24556777460BDD0A91BFD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459768   (1022819) от 04.04.2021
-
-Horus - Герои вашего времени (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Туман [02:50]
-02. Когда уже? [03:18]
-03. Макабр (feat. ATL) [03:37]
-04. Убить дракона (feat. Ка тет) [03:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AAFC1A04F2B75231D2CBFCDB26E36EDBF09E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459761   (1022816) от 04.04.2021
-
-ST1M - Окна (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Окна (Original Soundtrack "Аль-Капотня") (feat. Макс Лоренс) [02:56]
-02. Светофоры [03:38]
-03. Буррито [03:13]
-04. Хватит [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C179D4BA86E5346A9D1D8AF67E8FBD25ACABE51
 ```
 
 https://mybot314.ru/tekegram_catalog/

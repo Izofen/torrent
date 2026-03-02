@@ -1,3 +1,29 @@
+###  Публикация: 773716   (832482) от 04.04.2014
+
+Сборник - Супергерои / Superheroes [JPEG,EPS,AI,CDR,PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супергерои, не совсем супер и совсем не героиФормат: JPEG,EPS,AI,CDR,PSDРазрешение файлов: ~4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D69A4D4BE0BFDF62C6B334830144EF1729AF0B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502348   (827876) от 14.10.2021
 
 Сборник - Creative Market - 16300 in 1 - GRAPHIC GIANT BUNDLE - 2281951 [OTF, WOFF, WOFF2, TTF, PNG, AI, EPS, JPG]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F87B4ADC09C32C2E957849D07F06B8CCBFEE414B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902726   (658568) от 30.05.2015
-
-Сборник - European Capital Landmarks [PSD, AI, EPS, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейские столицы. Самые известные здания и сооружения.Формат: PSD, AI, EPS, SVG, CSH, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5522DC213B20A2DD3899AA894CD2C5B6FFCD1014
 ```
 
 https://mybot314.ru/tekegram_catalog/

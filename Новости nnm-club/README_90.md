@@ -1,3 +1,29 @@
+###  Публикация: 1019303   (751175) от 22.05.2016
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [USA] 3.55 [PSN / DLC] [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan - это классический кооперативный экшен про черепашек ниндзя по сюжету автора комиксов Тома Вальца. Игрокам доступны кооператив для 2-4 человек и онлайновый мультиплеер с несколькими режимами. Боритесь вместе со своими братьями-черепашками в канализации, подземке и на улицах Нью-Йорка, для того чтобы победить Шредера (   Читать дальше...   )Тип издания: PSNРазработчик: Platinum GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2264B81CD69FFA9971CEECA7481E0CD92799DE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019248   (751174) от 22.05.2016
 
 Act of Aggression - Reboot Edition (2015) [En/Multi] (260000390) Repack Other s
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:930B8DF8541478A6FF7287026A4C8C0F509FDF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889535   (747297) от 18.04.2015
-
-KMSAuto Lite 1.1.7 Portable [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747297.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Lite - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013. Возможна активация Office 2010 VL на Windows XP. Переключатели открывают доступ к установке GVLK ключей и настройке планировщика задач. Программе НЕ требуются никакие версии .NET Framework.Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E9333EDF8CCC1A7D6D258CC45A0C6E9DB3C716
 ```
 
 https://mybot314.ru/tekegram_catalog/

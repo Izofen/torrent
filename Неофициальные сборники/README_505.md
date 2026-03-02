@@ -1,3 +1,232 @@
+###  Публикация: 583644   (313946) от 02.12.2012
+
+Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313946.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Afrojack – Rock The House (Original Mix)
+2.Afrojack – Replica (Original Mix)
+3.Afrojack – Pacha On Acid (Original Mix)
+4.Afrojack – Montreal (Original Mix)
+5.Afrojack – Doing It Right (Original Mix)
+6.Afrojack feat. Eva Simons – Take Over Control (Original Mix)
+7.Afrojack – Lionheart (Original mix)
+8.Afrojack – Fatility (Original Mix)
+9.David Guetta & Afrojack – Lunar (Original Mix)Жанр: house / electro house / progressiveПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582638   (313791) от 02.12.2012
+
+VA - Радио Шторм - Русский Шторм - 81 (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 23 45 - Моя Любовь
+2. Artik feat. Asti - До Утра
+3. Di-Key - Потерялись feat Dj Amor
+4. Dj HaLF &/Женя Юдина - Мечты
+5. Hi-Fi - Начнём Всё Сначала
+6. Hi-Fi -  Радиоволна
+7. INDI - Кристаллы
+8. MMDance - Лавию
+9. NK (Эн-Кей) - Ты И Я
+10. SERPO - Подарю тебеЖанр: Pop, DanceПродолжительность: 02:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A90BA5F196A3D8D4B63651D1D110B07B7C9F34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583540   (313721) от 02.12.2012
+
+The End Of 2012 - mix by dj Ivan Frost (2012) [MP3|320 кб/с]<house / club house / vocal house / electro house / progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313721.jpg" />
+</div>
+
+
+###  Подробнее
+
+N\AЖанр: house / club house / vocal house / electro house / progressiveПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1654A26906667A2B1460161741F13F8D4BB395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583127   (313709) от 02.12.2012
+
+VA - DeepEmotions - Car Dubstep Vol.10 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alximo - Sol Invictus
+02. Don Diablo - Silent Shadows
+03. DVBBS - DRVGS (Spol Remix)
+04. Joho - Disaster (MING + 2Beeps Remix)
+05. Savoy ft. Heather Bright - We Are The Sun  (Savoy Remix)
+06. James Egbert ft. Brittany Egbert - In The Beginning (Dubstep Remix)
+07. Delta Heavy - Get By
+08. Dada & Mat Frost - Make You Feel (Continuum Remix)
+09. Sway feat. Kelsey McHugh - Level Up (Sigma Full Vocal Mix)
+10. Justin Lassen  - Insecticide (LabRat Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F212A3F6428CBEAFA242A7E9318969BC5B48D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076242   (313691) от 25.11.2016
+
+VA - Intimate Jazz (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Newman - Skylark
+02. John Lewis - Smoke Gets In Your Eyes
+03. Antфnio Carlos Jobim - Ligia
+04. Jack Wilson - Sometime Ago(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EC0593E950506DD469E0417464A17ED7C2FD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583812   (313561) от 02.12.2012
+
+VA - Русская Морозная дискотека (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ar4i - В Моих Руках
+02. Artik feat. Asti - До Утра
+03. Artik pres. Asti - Сладкий Сон
+04. Bel Suono & DJ Magic Finger - Любовь Бесконечна
+05. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
+06. Hi-F - Hi-Fi - Начнём Всё Сначала
+07. Lira (Та Сторона), MC 77, Архитектор - Спрятано Сердце
+08. MMDance - Р. Artik - Где Ты Был
+09. Oksi - Новогодняя
+10. RiDer - Побуду Один(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F267CF2EE868D7EFDFBE93AF6F04C29E2EE6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582684   (313550) от 02.12.2012
+
+Digitally Imported - the best (2012) [MP3|64-320 кб/с]<Ambient,PsyAmbient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Into The Dawn-Accadia
+002-Further Out-Alpha Wave Movement
+003-Nighttime-Arbre Noir
+004-Inside The Harmony-AstroPilot
+005-walking-dead-Bear McCreary
+006-Field and Void-Between Interval
+007-Journey To The Centre Of The-Biosphere and Deathprod
+008-Desire-Blank & Jones
+009-Arcana-Bryan El
+010-World Of Sleepers-Carbon Based Lifeforms(   Читать дальше...   )Жанр: Ambient,PsyAmbientПродолжительность: 06:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD0B728FE6B2654C5E1A730660C8B5F905B9766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259971   (313468) от 06.11.2018
 
 Mayah - Feel for Real (2016) Remix [MP3|256 Kbps] <Deep House>
@@ -556,215 +785,6 @@ VA - German Top 50 Official Dance Charts 25.11. (2016) [MP3|256 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1A91A609D41B43866E782DA90EFD9D351552A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076463   (312033) от 26.11.2016
-
-VA - Автомобильный №5 (2016) [MP3|256-320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312033.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Дадали и Алексанр Дюмин - За Сто Причин Его Морщин.mp3
-002. Виктор Петлюра - Последний Рейс.mp3
-003. Сборная Союза - Мама Я Женюсь.mp3
-004. Юрий Дьяченко - Слава.mp3(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7816FB80472F1D2E5226A79C945411CDEE9588F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076491   (312027) от 26.11.2016
-
-VA - Любимая волна на Europa Plus 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Fileum Feat. Kalle Johansson - My Father Said 3:21
-002.Andy Rey - Любви Ноль 3:52
-003.Frans - Young Like Us 3:32
-004.Анита Цой - Без Вещей 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6CA0921E50B42769B52819DB0A4A4DE4488B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583707   (311952) от 02.12.2012
-
-The Prodigy - The Fat Of The Land (15th Anniversary Edition) (2012) [MP3|320 кб/с]<Breakbeat, Dubstep, Electro Punk, Other Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311952.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (00:56:26)
-01. Smack My Bitch Up
- 02. Breathe
- 03. Diesel Power
- 04. Funky Shit
- 05. Serila Thrilla
- 06. Mindfields
- 07. Narayan
- 08. Firestarter
- 09. Climbatize(   Читать дальше...   )Жанр: Breakbeat, Dubstep, Electro Punk, Other ElectronicПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE4AFA5FEE04D4D4B8A5F32C342D1F20CC0BFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183105   (311908) от 12.11.2017
-
-VA - Blues Collection 13 (The End) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Lonely Boys - Orale  (03:46) 
-02. The Harpoonist & The Axe Murderer - Father's Son  (03:19) 
-03. Gonzales Tino & Los Reyes - Cloak Of Misery  (06:46) 
-04. Jon Amor - In The Devil's Back Yard  (04:15) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03617B8C9E4526DC3659456EFF979CED5839B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076467   (311898) от 26.11.2016
-
-VA - Убойные Хиты На Радио Шансон 2 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311898.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Иван Кучин - Верба 3:38
-002.Бумеr - Новая Жизнь 4:30
-003.Аркадиас - Автомагистраль 3:22
-004.Александр Бычков - Ясноглазая 3:27(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC99DDC0EACD0DDC580096D1B42938EF76FBCC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076477   (311891) от 26.11.2016
-
-VA - Высшая Лига Хитов Радио Шансон 6 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Оксана Орлова (Башинская) - Наливай 3:23
-002.Стас Михайлов - Белая Река 3:47
-003.Сборная Союза - Имена 4:14
-004.Виктор Дорин - Белым Снегом 3:24(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A695CECDDDC2E188BEA1B3277CC4029A5282C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076473   (311883) от 26.11.2016
-
-VA - Лучший Хит. Дорога Дальняя (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311883.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Сергей Сорокин - Цепи 3:45
-002.Андрей Карат - Ты Мое Сокровище 4:28
-003.Сергей Куренков - Сочи 3:17
-004.Никита Хазановкий - Осень Наступила 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708918A8D1C6321977103E4D6D1EDC747217C422
 ```
 
 https://mybot314.ru/tekegram_catalog/

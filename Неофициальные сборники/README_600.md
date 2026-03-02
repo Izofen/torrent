@@ -1,3 +1,206 @@
+###  Публикация: 1270168   (157699) от 19.12.2018
+
+VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+02. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Calvin Harris, Sam Smith - Promises (David Guetta Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270505   (157696) от 19.12.2018
+
+VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aamir Et Mdjad - Demande Marabout
+002. Jahmiel - A Better Tomorrow
+003. Cali P - Nuh Business (Original Mix)
+004. Chaka Demus - Teach Them(   Читать дальше...   )Жанр: Dancehall, Dance, LatinПродолжительность: 08:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346605   (157673) от 20.12.2019
+
+VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157673.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Melii - Here We Go Again
+002. Ego Ella May - Being Loved
+003. Sinead Harnett - All That You Are
+004. Gallant - Panasonic(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203AFE88C7B25B1FDFD09838009872D0BD52AD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194361   (157668) от 24.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 9) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Иосиф Кобзон  -  Мгновения  3:05
+02.  Валерий Ободзинский  -  Прощальный вальс  2:58
+03.  Нина Дорда  -  Синие сумерки  3:21
+04.  Мария Пахоменко  -  Опять плывут куда-то корабли  3:57(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573F5474CE6D1A089070421FC1D641D3A95DCD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194245   (157651) от 24.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 7) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Иосиф Кобзон  -  Летят перелетные птицы  3:10
+02.  Евгений Мартынов  -  Отчий дом  4:34
+03.  Михаил Ножкин  -  На рассвете  3:20
+04.  Анна Литвиненко  -  Огней так много золотых  2:45(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8122EA3454894C63F9EF97024DC199AD34EAA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194284   (157614) от 24.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 8) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Лев Лещенко  -  Соловьиная роща  4:20
+02.  Иосиф Кобзон  -  Майский вальс  3:41
+03.  Людмила Зыкина  -  Засиделась одна  4:16
+04.  Анна Литвиненко и Тамара Мушта  -  И кто его знает  3:21(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AB340B2584BCD475B941C77348DDA10CE972E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194384   (157600) от 24.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 10) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_157600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Михаил Ножкин  -  Последний бой  3:30
+02.  Евгений Мартынов  -  Я тебе весь мир подарю  3:45
+03.  Нина Дорда  -  Улетают летчики  2:49
+04.  Валентина Толкунова  -  Поговори со мною мама  3:43(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99C105EA8D1ADF7727C56C602D037F1F422E74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270161   (157562) от 19.12.2018
 
 VA - German Top 40 DBC Deutsche Black Charts 14.12.2018 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -548,209 +751,6 @@ VA - Новогодний народный хит (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC1DDA9184B5F88F21EFC5B45466F83B0B2A08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433607   (156904) от 21.12.2020
-
-VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156904.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yuko - Можна, Да Можна (04:22)
- 002. Akira - Остаться С Тобой (02:33)
- 003. Alesya feat. Виталий Гогунский & DJ Vini - Город (03:52)
- 004. Alexandros Tsopozidis - Расскажи (02:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968187   (156854) от 23.12.2015
-
-VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Electro, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Willy William – Ego (#Ash Simons Bangerz) (Ft. Sleepy Tom)
-02 – Laurent H Ft. Maxxy Dready – Fear (Original Vocal Mix)
-03 – Ridsa – La C’est Die (Dj Florum Club Mix)
-04 – Keen V – Un Monde Meilleur (Club Mix)(   Читать дальше...   )Жанр: Dance, Club 40, Electro, RemixesПродолжительность: 04:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A428255D685927994657A1233DADF5BBAB6A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433663   (156736) от 21.12.2020
-
-VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NK (Настя Каменских) - Vibe (Dance Version Remix) (02:51)
- 002. Adamant & На-На - Фаина 2.0 (02:55)
- 003. Alicia Keys feat. Diamond Platnumz & Kaash Paige - Wasted Energy (04:38)
- 004. Alok feat. Mc Don Juan & DJ GBR - Liberdade (Quando o Grave Bate Forte) (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20538B6034E7A02929FDBFC928E0302A2A298294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085635   (156692) от 22.12.2016
-
-VA - Latin Favourites Baila Conmigo (2016) [MP3|320 Kbps] <Urban, Reggaeton, Dembow>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jory Boy - Detras De Ti (Dj Fuerte Acapella Starter) (Extended) 02:45
-02. Kanales - Feliciano (Clean) 03:19
-03. J Balvin Ft Yandel - Acercate (Djdx Remix) (Extended) (Unofficial) 02:48
-04. Feid Ft J Balvin - Que Raro (Djdx) (Intro Clean) 04:05(   Читать дальше...   )Жанр: Urban, Reggaeton, DembowПродолжительность: 03:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48163FD606DD8E4A1CE81B1FF654768A2D03E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968417   (156595) от 23.12.2015
-
-VA - Tomorrow Never Dies (2015) [MP3|320 кб/с] <Altrnative, Indie Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myka Relocate - Hide the Truth
-002. Siamese - Tomorrow Never Dies
-003. All That Remains - Victory Lap
-004. Mellowtoy - Destroy Yourself(   Читать дальше...   )Жанр: Altrnative, Indie RockПродолжительность: 08:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699959217529FAF527BB152A8B7B3DE6A612ECC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085601   (156544) от 22.12.2016
-
-VA - Dance Paradise: December Party (2016) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156544.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye
-002. Hands Up Freaks - Waiting for Love (Original Mix)
-003. Addicted Craze feat. Kevin Kelly - Renegade
-004. Lady GaGa - Perfect Illusion(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 08:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD0876F4E0527828F284D8A802BB93CCBED8AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194241   (156523) от 24.12.2017
-
-VA - Музыка На Новогодний Корпоратив От Зайцев.Нет (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eurythmics  -  Sweet Dreams (Steve Angello & Sebastian Ingrosso Remix)  6:10
-02.  Don Omar  -  Danza Kuduro (feat. Lucenzo)  3:19
-03.  Afric Simone  -  Hafanana  2:53
-04.  Самоцветы  -  Всё, что в жизни есть у меня (DJ Nejtrino & DJ Baur Remix)  4:36(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563AD66F8FA50BA3DB3FDC6127B1F2A37AAFDE38
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1200101   (796972) от 19.01.2018
+
+Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depths, Pt. I (02:50)
+02. Persephone (04:33)
+03. December (03:55)
+04. Half Hour (03:39)(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Indie Pop, Synth PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F449DC556E25F2723B6D63317C04C53D20B46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200129   (796946) от 19.01.2018
+
+Charlotte Gainsbourg - IRM (2009) Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master's Hand (2:49)
+ 02. Irm (2:35)
+ 04. In The End (2:00)
+ 05. Heaven Can Wait (2:41)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CC754DD081866DD8C24A44597AFFDE111AA1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508634   (796859) от 09.11.2021
+
+Nik Kershaw - The Works (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Step Ahead
+02. Elisabeth's Eyes
+03. Take My Place
+04. Wounded Knee(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4219C17C4441EF350106B2D1011E01D51035626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508717   (796804) от 09.11.2021
+
+Adriano Celentano - 24.000 Baci (1987) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24.000 Baci	2:15
+02. Nata Per Me	2:46
+03. Non Esiste L'Amor 2:12
+04. Il Ribelle 2:20(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298D29640D059DCA851B66A85764B5D562B1FFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200315   (796373) от 20.01.2018
 
 Laura Wilde - Es ist nie zu spat (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387480   (791109) от 02.06.2020
-
-Michael Jackson - Discography (1967-2009) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Джексон – легендарный американский музыкант, самый успешный исполнитель поп-музыки в мировой истории, танцор, актер, автор песен. В мире был продан 1 миллиард копий записей Джексона, включая альбомы, синглы и сборники. Музыкант 25 раз попадал в «Книгу рекордов Гиннесса» и только премий «Грэмми» он получил 15, а другие музыкальные награды исчисляются сотнями. (   Читать дальше...   )1972 - Ben {Motown 530 163-2}
-1972 - Got To Be There {Motown 530 162-2}
-1973 - Music and Me {Spectrum 550 078-2}
-1975 - Forever, Michael {Motown 530 280-2}(   Читать дальше...   )Жанр: PopПродолжительность: 80:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAC991AD55E13F2871B332D911653652FD7C932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387805   (790674) от 03.06.2020
-
-Hitmasters - Hey Sexy Lady (2003) [FLAC|Lossless|image + .cue] <Pop, Parody>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Steuersong (Lass Kanzlern) (3:10)
-02. Ein Rudi Völler (3:14)
-03. Everytime (3:02)
-04. Can't Get You Out Of My Head (3:50)(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F21D52D343C6BC73017CF9D92222BF6D78F79B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387800   (790673) от 03.06.2020
-
-VA - The Non-Stop Party Album (2000) [FLAC|Lossless|image + .cue] <Disco, Euro House, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shout - Lulu (2:55)
-02. Back to the 60s Vol. 1- Dancing in the Street- (I Can't Get No) - Tight Fit (3:56)
-03. Stars on 45 Vol. 1-The Beatles Medley- Stars on 45-Venus-Sugar Sugar - Starsound Orchestra (4:30)
-04. You Sexy Thing - Hot Chocolate (3:55)(   Читать дальше...   )Жанр: Disco, Euro House, CoverПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C032BF42FD44A7ECBA5C9A3D9781B9EAB63EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202353   (790534) от 28.01.2018
-
-DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DNCE
-02. Body Moves
-03. Cake by the Ocean
-04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

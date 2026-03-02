@@ -1,32 +1,3 @@
-###  Публикация: 1616434   (1036428) от 02.03.2023
-
-Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever Lola Wants
-02. Misty
-03. Bewitched, Botheered ad Bewildered
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C317AD318D3BB75446701DD4F3792D793099D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616275   (1036411) от 02.03.2023
 
 Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Listening>
@@ -745,6 +716,35 @@ Mary Lou Williams - Conversation (1940-e) 2002, Past Perfect [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38B5135466FDA185A99D11B766095F9983BDAF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617341   (1035362) от 06.03.2023
+
+Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anywhere [5:31]
+02. Other Places [6:55]
+03. Mythology [7:55]
+04. For Heaven's Sake [8:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07154FBB803C87D398E43589DE34C5B3E4DE829
 ```
 
 https://mybot314.ru/tekegram_catalog/

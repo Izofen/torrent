@@ -1,3 +1,29 @@
+###  Публикация: 1278323   (772526) от 24.01.2019
+
+Space Tycoon (2019) [En/Ch] (1.0) License SKIDROW
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вселенная в полном разгаре и война на грани. В настоящее время, должны ли мы создать собственную космическую станцию и создать собственный флот, чтобы защитить себя? Можно также покупать и продавать военные корабли, чтобы заработать деньги, почему бы и нет？ Эта игра представляет собой бизнес-игру, основанную на торговле подержанными кораблями.Тип издания: LicenseРазработчик: Space DriverЖанр: Straregy (TBS), TacticsЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A7D1F0B1F78F19F062D91EE039258F71A69C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016724   (770102) от 14.05.2016
 
 Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.1/dlc) License GOG
@@ -644,32 +670,6 @@ Sudden Strike 4 (2017) [Ru/Multi] (1.15/dlc) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91370B66E00EF5DF894F7E6C8A11CD2DF185D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285307   (720381) от 26.02.2019
-
-The Settlers: History Collection (2018) [Ru/Multi] UplayRip R.G. Origins
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720381.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Settlers History Collection - это все семь игр из серии The Settlers, перевыпущенные под современные системы. Все игры коллекции поддерживают Windows 10, разрешение вплоть до 4К и доработанный многопользовательский режим. В честь 25-летия серии эксклюзивно для пользователей Uplay будет выпущено издание The Settlers History Collection.Тип издания: UplayRipРазработчик: Blue Byte, Red StormЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C3DF095CA39A7C78107D19C5154C83C74C7D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

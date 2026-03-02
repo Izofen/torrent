@@ -1,242 +1,24 @@
-###  Публикация: 1048664   (546431) от 02.09.2016
+###  Публикация: 1048317   (547141) от 01.09.2016
 
-Проводник (2016.09.) SATRip (выпуск 5: Одесса)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546431.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Андрей Бедняков отправляется вместе с самыми любимыми российскими звёздами в их родные края. Он объедет всю страну вдоль и поперек. Бородатый ведущий из первых уст узнает все о городах, в которых звезды нашего шоу-бизнеса родились и выросли. Где случился их первый поцелуй, как звали любимую учительницу и из-за кого пролились их первые слезы неразделенной (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-Шоу, ПутешествияСубтитры: ОтсутствуютПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D781F65E5B5AC11F832571EB90F3B1B83A3FAA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048362   (546430) от 02.09.2016
-
-Sparks - No.1 In Heaven / Whomp That Sucker (1996) Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546430.jpg" />
-</div>
-
-
-###  Подробнее
-
-No.1 In Heaven
- 01 - Tryouts For The Human Race
- 02 - Academy Award Performance
- 03 - La Dolce Vita(   Читать дальше...   )Производство: Dog Entertainment – dog 10015Жанр: Synthpop, New Wave, RockПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2013346613C922EE6C5FBC75986303F4FD37DFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048613   (546429) от 02.09.2016
-
-Экшены - GraphicRiver - Music Notes Action [ATN, ABR, GRD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Notes - экшен в стиле музыкальных нот для Вашего творчества.Формат: ATN, ABR, GRD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BDF4BC98FD5A00056DABC04CD91215ABDB552A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048704   (546428) от 02.09.2016
-
-Газета | Обереги. Спецвыпуск №8 "Спроси у домового" (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спроси у домового - Как защитить дом от бед.
-Приметы, заговоры, ворожба на счастье и многое другое.Жанр: Магия, приворот, заговор, эзотерикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B38BCF958E31875C1B75B990B6652692588531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048449   (546427) от 02.09.2016
-
-Фергюс Хьюм | Безмолвный дом (2013) [FB2]
+Вадим Денисов | Генетический взрыв (2016) [FB2]
 
 >>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546427.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любой обитатель тихого и благопристойного лондонского квартала на Женевской площади знает, что от старинного особняка, называемого Безмолвным домом, надо держаться подальше. Ведь о нем ходит дурная молва, и ни один здравомыслящий человек никогда не поселится здесь. И поэтому, когда в доме появился новый жилец, местное общество тут же начало кипеть слухами. Тем более (   Читать дальше...   )Жанр: ДетективПеревод: Л. СоловьёваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C83A11E5CBF1E293417C0C35C8E12A843A4837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048422   (546426) от 02.09.2016
-
-Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Forever
-02. Death of Love
-03. Crystallise
-04. Hush Little Voices(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F422019B00F0B2FC00A57B318142E74CB7C923F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048640   (546424) от 02.09.2016
-
-VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astralion-Black Adder
-002. Evan-Blue Lightning
-003. Grave Digger-Enola Gay
-004. Hitten-Can't Bring Me Down(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE73CAD34550EE7AADC6FEFCF81224990E82C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048599   (546423) от 02.09.2016
-
-Экшены - GraphicRiver - Music Notes Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Notes - экшен в стиле музыкальных нот для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29ED47D54F6C358DD0E0418DF806821D7D9425D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048490   (546422) от 02.09.2016
-
-Navicat Premium 11.2.14 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
+Третий роман цикла «День G».
 
-Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 августа 2016Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Испанский, Корейский и др.
+Приключения бывшего спецназовца Игоря Залётина, известного как Гарик Енисейский, продолжаются! Земная цивилизация разрушена «генетическим штормом». Выжил очень незначительный процент населения. Группой из нескольких общин, обитающих в районе Адлера и Центрального Сочи, взялся руководить Гарик. Он всегда начеку, не расстается с верным (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:188E7B879C0A9D63DCF663003FBAFB2C4C70C890
+magnet:?xt=urn:btih:162F7D2475561C9FC5C42110EA5EC458EADDD6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,25 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048624   (546421) от 02.09.2016
+###  Публикация: 1048289   (547140) от 01.09.2016
 
-Экшены - GraphicRiver - Warborn Photoshop Action [ATN, ABR]
+Книга джунглей / The Jungle Book (2016) BDRemux [H.264/1080p] [2D/3D] [ISO]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546421.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Warborn - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+Непримиримая борьба с опасным и страшным тигром Шерханом вынуждает Маугли покинуть волчью стаю и отправиться в деревню к людям. На пути мальчика ждут удивительные открытия и захватывающие приключения с пантерой Багирой, медведем Балу, питоном Каа и другими обитателями дремучих джунглей.Производство: Великобритания, США / Walt Disney PicturesЖанр: фэнтези, драма, приключения, семейныйРежиссер: Джон ФавроАктеры: Нил Сети, Билл Мюррэй, Бен Кингсли, Идрис Эльба, Лупита Нионго, Скарлетт Йоханссон, Джанкарло Эспозито, Кристофер Уокен, Гарри Шендлинг, Брайтон РоузПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский (Форсированные)Продолжительность: 01:45:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C77BAE58FB138ACB409315223AFE72D286C48A0B
+magnet:?xt=urn:btih:2ACAF468048E32B6FE81A42491255CA743BD9C88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,54 +52,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048593   (546420) от 02.09.2016
+###  Публикация: 1238239   (547139) от 29.07.2018
 
-Экшены - CreativeMarket - Music Dispersion - Ps Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Dispersion - экшен в стиле музыкальных нот для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D9464956BBFEFA52603F15534385F4E967F95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048487   (546419) от 02.09.2016
-
-Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - Money $hot (Shot) (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Rock, Experimental>
+Seance - Fornever Laid To Rest (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Galileo
-02. Agostina
-03. Grand Canyon
-04. Simultaneous(   Читать дальше...   )Жанр: Alternative, Progressive Rock, ExperimentalПродолжительность: 00:51:32
+01.Who Will Not Be Dead
+02.Reincarnage
+03.The Blessing Of Death
+04.Sin(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E043CD53127AA22946468F2F2C947D8D0D36DBC1
+magnet:?xt=urn:btih:B1FF691E632FD3C9F26A573C50EFB872774F7327
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,26 +81,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048496   (546418) от 02.09.2016
+###  Публикация: 1048297   (547138) от 01.09.2016
 
-TG Pro (Temperature Gauge Pro) 2.15 [En]
+Adobe Bridge CC 2015 6.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546418.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 сентября 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Adobe Bridge — программа для всех, кто сталкивается в своей деятельности с необходимостью работать с графическими файлами в больших количествах.
+Adobe Bridge CC предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, добавлять водяные знаки и даже централизованно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Украинский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F9061D87B32146BDB1CCA99805CE2512E442307
+magnet:?xt=urn:btih:37C09D288F19AA98BB7BE5D9FFD183E54C75CF22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -352,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048629   (546417) от 02.09.2016
+###  Публикация: 1238264   (547137) от 29.07.2018
 
-Экшены - Smoke Photoshop Action [ATN, ABR]
+Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smoke - экшен для Вашего творчества.Формат: ATN, ABR
+01.Column Of Grey
+02.The Way Of All Flesh
+03.Within The Silence
+04.Esoteric Traditions(   Читать дальше...   )Жанр: Thrash-Death MetalПродолжительность: 00:52:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E49C5393FE74C4FCC13E7CAB72DDFE2845594E8A
+magnet:?xt=urn:btih:C4881660C10212DF3DABF1A3EA12AED5ECF8E4FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,25 +137,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048395   (546416) от 02.09.2016
+###  Публикация: 1048196   (547136) от 01.09.2016
 
-Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home For Peculiar Children" Original Motion Picture) (2016) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative,  ...
+Брайан Трейси | Сила уверенности в себе (2013) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этой практической книги, которую автор написал, основываясь на опыте своей работы более чем с пятью миллионами руководителей разного уровня, вы узнаете, как выработать непоколебимую уверенность в себе и повысить самооценку, что позволит вам покинуть комфортную зону и пойти на риск, даже когда нет никаких гарантий. Рекомендации Брайана помогут вам шаг за шагом (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC6CCD115ED826EC4C9D6BB9C3A0694315FAA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238358   (547135) от 29.07.2018
+
+Модест Богданов | Мышка (1902) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5044E7C9C22B814488CC53F27FDB4CE8404B5416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047923   (547134) от 01.09.2016
+
+LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546416.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wish That You Were Here     (06:42)Жанр: Alternative, Indie PopПродолжительность: 00:06:42
+01. Muddy Waters (3:49)
+02. Lost On You (4:28)
+03. Strange (3:55)
+04. Death Valley (2:52)(   Читать дальше...   )Жанр: Alternative/Indie Rock, Pop Rock, Folk RockПродолжительность: 00:19:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE708C0C2E0A2D11358A3E22CAA61DE11230A86B
+magnet:?xt=urn:btih:0650F568CAC384877532C6BA316D24DBBA3F7B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,25 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 431043   (546404) от 29.08.2013
+###  Публикация: 1238338   (547133) от 29.07.2018
 
-Степанова памятка (1976) DVDRip
+Иван Горбунов-Посадов, Вера Лукьянская (сост.) | Друг животных. Часть 1 (1902) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546404.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам сказов Бажова "Медной горы хозяйка" и "Малахитовая шкатулка". О талантливом рудознатце Степане и его любви к хозяйке Медной горы, открывшей перед Степаном мир "души камня". Эта любовь преобразила и погубила его. Но "Степанова памятка" - дочь мастера Танюша унаследовала от отца гордый характер, талант и упорство. (   Читать дальше...   )Жанр: Сказка, семейныйРежиссер: Константин ЕршовАктеры: Лариса Чикурова, Геннадий Егоров, Ирина Губанова, Наталья Андрейченко, Игорь Костолевский, Лев Круглый, Дима Дымов, Борис Аракелов, Игорь Ефимов, Михаил Светин, Аркадий Трусов, Виктор Чекмарев, Оля ВасильеваПродолжительность: 01:20:13
+Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A01F4577CBDF3786241433257ADBAA5AA783BE94
+magnet:?xt=urn:btih:6CEC97D51B397D1078DCBF6AD1C3EB3740CF77A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 694563   (546400) от 29.08.2013
+###  Публикация: 1238376   (547132) от 29.07.2018
 
-С. Т. Аксаков и др. | Сказки русских писателей. Выпуск 2 [2008] [MP3]
+VA - Dance Solution Summer Compilation 2018 [MP3|320 Kbps] <Hard House, Hands Up, Hard Dance>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546400.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сказки русских писателей читают: народный артист России Рафаэль Клейнер, заслуженная артистка России Наталия Минаева, Наталья Воеводина, Иван Калинин.Жанр: Детская литература
+01. Ceres - You Know (Original Mix) 7:09
+02. DJ DBC - Coming Back To You (Original Mix) 4:50
+03. Head Horny's - Your House Is Mine (Original Mix) 6:30
+04. Danny Kobe - What We Wanna Do (PoKy3o FX Remix) 7:19(   Читать дальше...   )Жанр: Hard House, Hands Up, Hard DanceПродолжительность: 01:56:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F92354BA734EA6DDB9AA8A5F4F63D02209F2FE6E
+magnet:?xt=urn:btih:11FA229970A41E7108CAD07DD092232B7804AF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +273,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 694492   (546398) от 29.08.2013
+###  Публикация: 1238299   (547131) от 29.07.2018
 
-Kanye West - Yeezus (2013) [FLAC|Lossless|WEB-DL|tracks]<Hip-Hop>
+Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillotine
+02. Outsider
+03. The Last Breath I'll Take Is Yours
+04. Narcissist(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BCD883C5FB97684857B95808025C4CDF8895C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238395   (547130) от 29.07.2018
+
+VA - Pure Salinas Vol.9 [Compiled by DJ Zappi] (2018) [MP3|320 Kbps] <House, Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energy 52 - Cafe Del Mar (Dale Middleton Remix) 9:08
+02. Oliver Dollar - Go Down (Original Mix) 6:18
+03. Serge Devant & Sabb feat. Forrest - Waiting (Original Mix) 7:25
+04. Ordonez - Afternoon Sadness (Original Mix) 6:13(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 02:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F27C6BB7D8468619184C7C67D8E15AB1889C7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238429   (547129) от 29.07.2018
+
+Modd - Phangan Dreams (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phangan Dreams (Original Mix) (7:35)
+ 02. Edem (Original Mix) (6:16)
+ 03. Cyclone (Original Mix) (7:13)Жанр: Deep House, Chill HouseПродолжительность: 00:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B63D4B7E807A5C848929D02491787E736F0811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238311   (547128) от 29.07.2018
+
+Hoon & Ryuichi Sakamoto - CBL [Cd Baby Love] (2003) WEA Japan [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother Nature's Children (Original) (05:53)
+02. 夢 (04:36)
+03. 平均律クラヴィア曲集 第1部24の前奏曲とフーガ 1ハ長調 (03:04)
+04. メヌエット ト長調 (03:34)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E57AFEC14C58B8D09F77F6478F8F06E35D7A08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238442   (547127) от 29.07.2018
+
+Журнал | Elle Decoration [France] №265 (сентябрь 2018) [PDF] [Fr]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EF5AFACA5F59F04886B2C20EB843BF9C127E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238444   (547126) от 29.07.2018
+
+Журнал | House Beautiful [USA] №7-8 (июль-август 2017) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBC7E85B806801B720F3769F5F0AE9A43E8F453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238326   (547125) от 29.07.2018
+
+Abstract Elements - Join Us EP (2018) Invisible Recordings [FLAC|Lossless|WEB-DL|tracks] <IDM, Drum & Bass, Leftfield>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546398.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - On Sight
-02 - Black Skinhead
-03 - I Am A God
-04 - New Slaves(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:40:06
+01. Join Us (04:55)
+ 02. Magnitogorsk (04:15)
+ 03. Posthuman (feat. Subwave) (05:44)
+ 04. Myriapoda (05:44)(   Читать дальше...   )Жанр: IDM, Drum & Bass, LeftfieldПродолжительность: 00:30:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B7ECB3ADD234E7299B655FCFD5F05261E473667
+magnet:?xt=urn:btih:284DFE53359A44FA3F06481DC90E6C359BD475D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,25 +469,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048429   (546395) от 02.09.2016
+###  Публикация: 1238365   (547124) от 29.07.2018
 
-Журнал | Школа гастронома. Коллекция рецептов №8 (219) (2016) [PDF]
+VA - Beach Grooves Maretimo Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 
->>Журналы
->>Кулинарные журналы
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546395.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Коллекция рецептов" - специальный проект журнала "Школа гастронома", журнал пошаговых мастер-классов с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру иллюстрирован цветными фотографиями.Жанр: КулинарияФормат: PDF
+01. Phil Kinley - Partylife (Glitterpool Cut) 6:45
+02. Housework - Culture Vibes (Drumflow Cut) 6:12
+03. Clublife - Different Things (Poolside Mix) 6:17
+04. Poolwave - Seaside (Laid Back Waves Cut) 5:36(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31A5EB1C2F5A77C47F381AF7E722D2FB94AEB88A
+magnet:?xt=urn:btih:E5233BA897086968DEB09E773446AC60858A5597
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +498,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048484   (546394) от 02.09.2016
+###  Публикация: 1238317   (547121) от 29.07.2018
 
-Geekbench 4.0.0 [En]
+Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC|Lossless|tracks] <Neo-Classical, Contemporary, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 変革の世紀 — Opening (04:23)
+02. 変革の世紀 — Clarinet Duo (03:27)
+03. 変革の世紀 — Cello Duo (03:28)
+04. 変革の世紀 — Violin Duo (04:02)(   Читать дальше...   )Жанр: Neo-Classical, Contemporary, AmbientПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8266F1A353985BAA171AA17BD5CD158FBBA8EA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238366   (547120) от 29.07.2018
+
+Вильгельм Гааке | Животный мир, его быт и среда [2 книги] (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животный мир Земли.
+Для среднего и старшего школьного возраста.Жанр: Обучение и развитие детей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323E581DF8629CCF0BFE13A28CA5200212AF7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238255   (547118) от 29.07.2018
+
+Мария Ярошевская | Беседы и рассказы о природе. Часть 2 (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство с окружающим миром. Родная природа.
+Для среднего и старшего школьного возраста.Жанр: Обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8B1B4D582A017A7D9BB5B5621E521DBF6D7E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238271   (547117) от 29.07.2018
+
+Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowy Night Tale (05:34)
+ 02. Fog (04:25)
+ 03. It's Magical (04:24)
+ 04. Old Automation (05:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238313   (547112) от 29.07.2018
+
+Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [FLAC|Lossless|tracks+.cue] <Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow, Silence, Partially Sunny (37:30)Жанр: ExperimentalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0111DF531AB67F76F9082FF86718EA282A4E8070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238414   (547110) от 29.07.2018
+
+VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. El Profesor, Hugel - Bella ciao (HUGEL Remix)
+003. Clean Bandit - Solo (feat. Demi Lovato)
+004. Drake - In My Feelings(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238399   (547109) от 29.07.2018
+
+Danny Elfman - So-Lo  (1984) [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546394.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Geekbench 4 –  бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 августа 2016Разработчик: Primate Labs Inc.Поддерживаемая ОС: OS X 10.11.4 +Язык интерфейса: Английский
+01. Gratitude (Short Version) (5:15)
+02. Cool City (3:28)
+03. Go Away (4:03)
+04. Sucker For Mystery (5:19)(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:38:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B8201BB4F573007B6441E19B4CF93FB73C95711
+magnet:?xt=urn:btih:932649C20182BDA82B78A5E7C27B9616CFF93116
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,156 +694,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048682   (546393) от 02.09.2016
+###  Публикация: 1238248   (547108) от 29.07.2018
 
-Экшены - CreativeMarket - Body Layers Photoshop Actions [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Body Layers - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CFEF535C97D63C2D2F70E06A8DBC68ED252383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048228   (546392) от 02.09.2016
-
-Елена Малиновская и др. | Сборник рассказов "Ох уж этот гранит науки" (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья! Хочу всех преподавателей, учеников и студентов, а также родителей поздравить с наступлением нового учебного года! Терпения Вам всем! И новых интересных открытий!Жанр: Романтическое фэнтезиПродолжительность: 02:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37863D08EFE61ED04B9DEF3D209F51A51FB233D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048687   (546391) от 02.09.2016
-
-Голос (2016.09.02) HDTVRip (сезон 5, выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546391.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78306840F0C2082AEAA4AC9CB58E61123E1EC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048591   (546390) от 02.09.2016
-
-Как стать серийным убийцей / How to be a Serial Killer (2008) DVDRip [EN / RU, EN, FR Sub]
+Magic - White Eyes (2003) [MP3|320 Kbps] <Rap>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546390.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Черная комедия в стиле психологического треннинга успешного серийного убийцы. Мэтр нашел, казалось бы, безнадежного протеже, щуплого одинокого клерка со скучной работой, и решил научить его жить и не бояться.
-Хорошая актерская игра, интересная и творчесткая задумка вместе с оригинальнальным построением фильма, включающим разные жанры кино, вместе представляют хороший (   Читать дальше...   )Телекомпания: США, Matador Motion PicturesЖанр: КомедияПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Русский, английский, французкийПродолжительность: 01:31:18
+Эйвуд Джонсон (16.08. 1975 – 1.03. 2013), более известный под псевдонимом Magic (или Mr. Magic), был американским рэппером из Нового Орлеана, сотрудничавшим с No Limit  Records в качестве
+сольного исполнителя, в составе 504 Boyz, а также в группе Body Head Bangerz с Роем Джонсом мл. Погиб в 2013 году вместе с женой в автокатастрофе. "White Eyes" - третий (   Читать дальше...   )01. "Intro"- 0:55
+02. "War"- 4:32
+03. "Hustler"- 4:32
+04. "What U Gonna Do"- 4:15(   Читать дальше...   )Жанр: RapПродолжительность: 01:00:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EBD5993C0F1EE492A3C49474D77382577019600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048660   (546389) от 02.09.2016
-
-Проекты - VideoHive - 360 Screen [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео слайд-шоу, новостей, спорта и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D880C9543A5E4B77CDA32198E50AF0030F19DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048633   (546388) от 02.09.2016
-
-Ian’s Eyes (2016) [En/Es] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ian's Eyes - это приключенческий хоррор, в котором собака-поводырь защищает слепого мальчика Яна от нападений жутких существТип издания: LicenseРазработчик: Sindie GamesЖанр: Adventure (Horror)Язык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8133BCA6A4EE85E77296641B4202AE251646843
+magnet:?xt=urn:btih:EAE736812C5F1303D5F530EB6B17E7CA820065D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

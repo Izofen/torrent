@@ -1,3 +1,29 @@
+###  Публикация: 1785888   (24254) от 18.03.2025
+
+Сборники - Pixflow - Animated Kodak and Fuji Film Frames [PSD, AEP, MOGRT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Film Frames оживляет стили пленочных камер Kodak и Fuji в динамичном анимированном формате. Создавайте потрясающие фильмы, фотографии, презентации и многое другое без усилий с помощью этого универсального инструмента.Формат: PSD, AEP, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62277D16BC25388058B5EDF460E0123B5A69E345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786174   (24184) от 19.03.2025
 
 Пресеты - PRO EDU - Master Collection | 100 3D LUT Profiles for Adobe [XMP]
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:348050827320199EC331BF14CEF12DDB5D86B7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787601   (23458) от 26.03.2025
-
-Пресеты - PhotoWhoa - 5000+ Best Photography Lightroom Presets Bundle [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23458.jpg" />
-</div>
-
-
-###  Подробнее
-
-От эстетичных осенних красок до теплых летних ощущений — придайте своим фотографиям необходимую атмосферу с помощью этих пресетов.Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4540233EAF69E4FCC32955AACC2E0D54131837F
 ```
 
 https://mybot314.ru/tekegram_catalog/

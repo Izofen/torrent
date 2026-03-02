@@ -1,3 +1,32 @@
+###  Публикация: 1535638   (683827) от 07.03.2022
+
+3D print - Loot Studios - Welcome Pack 2.0 - DnD Miniatures [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Print awesome minis at home!
+Every month you will receive dozens of high quality minis ready to print. Click below to check this month's bundle.
+
+Get your loot(   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5F68D8AC727E45B34D428F60BC363ED97195C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222652   (683034) от 30.04.2018
 
 Текстуры - UXfree - 10 Marble Paper Textures [JPG]
@@ -669,35 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6881367B4E4C4D8A2BD91520CD7760289B432AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535706   (681909) от 08.03.2022
-
-3D print - MyMiniFactory - Jalissa - Miniature [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модель для настольных ролевых игр «Джалисса»:
-
-- версии 32 мм и 75 мм
-- одетая/топплесс/голая(   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6B94B7668C6A6A0FA6F5BA9B954CBC4992370D
 ```
 
 https://mybot314.ru/tekegram_catalog/

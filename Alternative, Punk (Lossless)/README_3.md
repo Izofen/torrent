@@ -618,76 +618,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604601   (996101) от 18.01.2013
-
-Bad Religion - True North (2013) [FLAC|Lossless]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. True North (01:56)
-02. Past Is Dead (02:39)
-03. Robin Hood In Reverse (02:53)
-04. Land Of Endless Greed (01:53)
-05. Fuck You (02:14)
-06. Dharma And The Bomb (02:00)
-07. Hello Cruel World (03:50)
-08. Vanity (01:02)
-09. In Their Hearts Is Right (01:59)
-10. Crisis Time (02:39)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D80B4BBA0752D8B6204E38B064FF9D9029EA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604939   (995853) от 19.01.2013
-
-Nina Karlsson - I Deny (2010) [FLAC|Lossless]<Alternative Jazz, Indie, Electronic, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Классическое музыкальное образование, по давно сложившейся традиции, очень редко помогает музыкальной карьере - чаще всего таковым могут похвастаться джазмены, дающие небольшие концерты в уютных клубах для своих. Нина Карлссон ухитрилась связать консерваторию с полупьяными петербургскими клубами и гламурными дефиле: в ее активе и прогулки по подиуму, и диплом композитора, и выступления в заведениях, мало приспособленных для концертов.01. Bored & Tired :: 03:15
-02. I Deny :: 03:13
-03. Good Bye :: 02:44
-04. Winds Of May :: 03:38
-05. Follow The Dancers :: 02:36
-06. Simples :: 03:12
-07. Chocolate :: 03:03
-08. Not Me :: 03:36
-09. Princess Of The Sheep :: 02:51
-10. Sweetheart :: 02:08(   Читать дальше...   )Жанр: Alternative Jazz, Indie, Electronic, ExperimentalФормат: CD, AlbumПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605422   (995438) от 20.01.2013
 
 Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FLAC|Lossless]<Post-Punk>
@@ -723,41 +653,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 607479   (994391) от 23.01.2013
-
-The Pretty Reckless - Light Me Up (2010) Japanese Edition /2011, Interscope Records/ [FLAC|Lossless]<Alt.Rock/Post-Grunge/Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. My Medicine (03:14)
-2. Since You're Gone (02:42)
-3. Make Me Wanna Die (03:56)
-4. Light Me Up (03:28)
-5. Just Tonight (02:48)
-6. Miss Nothing (03:14)
-7. Goin' Down (03:36)
-8. Nothing Left To Lose (04:12)
-9. Factory Girl (03:31)
-10. You (03:32)(   Читать дальше...   )Жанр: Alt.Rock/Post-Grunge/Female VocalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352913   (993317) от 16.01.2020
 
 Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -780,6 +675,90 @@ Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608812   (992720) от 26.01.2013
+
+Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GrungeПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353459   (991968) от 18.01.2020
+
+...And You Will Know Us by the Trail of Dead - X The Godless Void and Other Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opening Crescendo (02:54)
+02. All Who Wander (04:56)
+03. Something Like This (04:36)
+04. Into the Godless Void (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353619   (991927) от 18.01.2020
+
+Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Post Punk, Psychedelic Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Year (3:15)
+02. Dispossession (4:15)
+03. Hour Of The Furnaces (4:26)
+04. Losing Is Ours (3:44)(   Читать дальше...   )Производство: Matador RecordsЖанр: Alternative Rock, Post Punk, Experimental, Psychedelic SoulПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

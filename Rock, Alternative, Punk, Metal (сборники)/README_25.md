@@ -1,3 +1,32 @@
+###  Публикация: 1304128   (567075) от 24.05.2019
+
+VA - Rock Driving Music (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567075.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Iggy Pop - The Passenger
+2. KISS - Detroit Rock City - Edit
+3. Billy Idol - Rebel Yell - Remastered
+4. 3 Doors Down - Kryptonite(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FD5B9744353FB19465248C5DECA7BFA5D5F056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555601   (565010) от 06.06.2022
 
 Godsmack - Collection (2022) [MP3|320 Kbps] <Nu-metal>
@@ -716,35 +745,6 @@ VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048640   (546424) от 02.09.2016
-
-VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astralion-Black Adder
-002. Evan-Blue Lightning
-003. Grave Digger-Enola Gay
-004. Hitten-Can't Bring Me Down(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE73CAD34550EE7AADC6FEFCF81224990E82C688
 ```
 
 https://mybot314.ru/tekegram_catalog/

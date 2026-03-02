@@ -1,3 +1,116 @@
+###  Публикация: 1809484   (64672) от 31.07.2025
+
+Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love For All Seasons (4:17)
+02. No One On Earth (3:23)
+03. I'm Too Sexy (2:50)
+04. Do Ya Feel (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EBEDBB799D35E6967541C8E2677EE6FE819420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809917   (64608) от 02.08.2025
+
+Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Must Have Been Love (4:18)
+02. Paint (3:30)
+03. Cry (Live) (5:42)Жанр: PopПродолжительность: 00:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B62484503E0A32D9B8F2BD5462D46C74950A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809907   (64588) от 02.08.2025
+
+A-HA - Crying In The Rain (CDM) (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying In The Rain (LP Version) (4:27)
+02. (Seemingly) Nonstop July (LP Version) (2:55)
+03. Cry Wolf (LP Version) (4:06)Жанр: PopПродолжительность: 00:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AC1C039D0407157A522202846AC1C8C9CD4CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809910   (64567) от 02.08.2025
+
+Chris Isaak - Wicked Game (CDM) (1991) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wicked Game (4:07)
+02. Cool Cat Walk (3:23)
+03. Dark Spanish Symphony (String Version) (2:34)Жанр: PopПродолжительность: 00:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F029E04CBF907D1D1AFF75C58D84F7154E6BA0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809919   (64565) от 02.08.2025
 
 Shakespears Sister - Stay (CDM) (1991) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -628,122 +741,6 @@ Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732406   (52016) от 25.06.2024
-
-Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Way (Single Version) [00:03:42]
-02. Like an Angel [00:04:47]
-03. My Own Way (Night Version) [00:06:36]
-04. My Own Way (Carnival Remix; 2009 Remaster) [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DCA9CEDDAEC8D801576D4CF2A9AC276307B818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737568   (49613) от 18.07.2024
-
-Marc Almond - I'm Not Anyone (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m the Light
-02. Reflections of My Life
-03. Gone with the Wind (Is My Love)
-04. I Talk to the Wind (feat. Ian Anderson)(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D5E1E351D8ACC73CB7FD03C81591ADEB67C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738616   (49085) от 23.07.2024
-
-VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lipps Inc. - Funkytown (Single Version) (3:55)
-02. ABBA - Dancing Queen (3:52)
-03. Donna Summer - Bad Girls (Gigamesh Remix) (5:20)
-04. Jessie Ware - Pearls (4:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738854   (48875) от 25.07.2024
-
-VA - Mega Hits Sommer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OneRepublic, Leony & Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
-02. David Guetta, Billen Ted & Girl On Couch - Man In Finance (1:53)
-03. Post Malone Feat. Blake Shelton - Pour Me A Drink (3:15)
-04. Civo - Mach die Augen auf (1:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C805617CAC56924A45556D48BB0CB57A7B1E0A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1649737   (207628) от 29.07.2023
+
+In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est Si Bon (3:36)
+02. Un beau roman (Une belle histoire) (4:05)
+03. Tu le sais (with Paolo Rossini) (4:12)
+04. Tentación Al Hombre (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE00A240598F690B2D839FFECFBFF91DC300C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650266   (207519) от 31.07.2023
+
+Diana - Die Einzige (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gschüttlet oder grüärt [00:03:03]
+02. Du wenn nicht Du [00:03:20]
+03. De schneller isch de gschwinder [00:03:06]
+04. Du bist nicht mein Romeo [00:03:02](   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D37685AB92E2E67DC1617F913E2AE2EEE6D2A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612919   (207098) от 17.02.2023
+
+P!nk (Pink) - TRUSTFALL (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Get There
+02. TRUSTFALL
+03. Turbulence
+04. Long Way to Go (feat. The Lumineers)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56BD638F0F8006807C001A42ED7437EF27C483C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652605   (206441) от 12.08.2023
+
+VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Malone - Sunflower (Spider-Man: Into the Spider-Verse) (02:37)
+02. Avicii - Wake Me Up (Radio Edit) (04:06)
+03. The Weeknd - Reminder (03:38)
+04. Imagine Dragons - Demons (02:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F18FB5173D27559CA9400F7B897DADB2B2A814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653452   (206094) от 16.08.2023
 
 VA - Vintage Café - The Remixes Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
@@ -629,122 +745,6 @@ Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F3C429014CC3A202F78FE14F521B19ACCF1196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587803   (192022) от 02.11.2022
-
-VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John, Britney Spears - Hold Me Closer
-02. Calvin Harris, Justin Timberlake, Halsey, Pharrell Williams - Stay With Me
-03. Joel Corry, Becky Hill - HISTORY
-04. Luude, Mattafix - Big City Life(   Читать дальше...   )Жанр: Pop, Rock, Dance |Продолжительность: 01:17:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093F345EA1F6729C6345218EB4FA17F01C78052E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658285   (191492) от 07.09.2023
-
-Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So I
-02. Honkey Curt
-03. Smoke Is Up
-04. Reggaesizer(   Читать дальше...   )Жанр: Electronic, Pop, Soul, FunkПродолжительность: 05:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588688   (190996) от 06.11.2022
-
-Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siffler sur la colline (2:36)
-02. Dans les yeux d'Emilie (3:43)
-03. Les Champs-Elysées (2:37)
-04. Et si tu n'existais pas (3:25)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658541   (190949) от 09.09.2023
-
-Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Not To Do [00:05:02]
-02. CooCool [00:04:31]
-03. The Universe [00:04:05]
-04. Hurtz So Bad [00:04:37](   Читать дальше...   )Жанр: Electronic, Art PopПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1456650   (1024916) от 23.03.2021
+
+VA - Vintage Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Taylor - Walking Man
+02. The Doobie Brothers - The Captain and Me
+03. Seals and Crofts - Get Closer
+04. Carly Simon - One More Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730C259F06C18193DC4875E691BEC947E75ED11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456633   (1024878) от 23.03.2021
+
+Chris Rea - Platinum (1997) Compilation Unofficial Release Russia [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell - Part 1 &Part 2
+02. Josephine
+03. Let's Dance
+04. Auberge(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77A572F71D5F0F67BD9B1B02BAA1BCBD9A36EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083304   (1024725) от 24.03.2021
+
+Sweetback - Sweetback (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Jazz, Trip-Hop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaze (5:27)
+ 02. Softly Softly (4:29)
+ 03. Sensations (4:30)
+ 04. Au Natural (4:15)(   Читать дальше...   )Жанр: Electronic, Jazz, Trip-Hop, DowntempoПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29D5CB264E3B19DC6680CF648697378622E2574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457192   (1024523) от 25.03.2021
+
+Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow
+02. Champagne Problems
+03. Gold Rush
+04. ‘Tis The Damn Deason(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6176C4CC790C6708155817622524EED983DA8906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457466   (1024379) от 26.03.2021
 
 Vanessa Mai - Mai Tai (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,123 +745,6 @@ Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468783   (1016716) от 10.05.2021
-
-Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paul Julien André Mauriat (4.03.1925 – 3.11.2006) был руководителем и дирижером французского эстрадного оркестра Le Grand Orchestre de Paul Mauriat, который исполнял легкие эстрадные мелодии. Каталог звукозаписи Paul Mauriat насчитывает более 1000 названий, а его альбомы разошлись по всему миру в количестве более 40 млн копий.
-Английский лейбл Vocalion представляет (   Читать дальше...   )01. Eleanor Rigby (2:15)
-02. My Sweet Lord (3:01)
-03. Yesterday (2:34)
-04. Hey Jude (3:10)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF164839EB341E118B1717F6473C38438FF2087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469544   (1016286) от 13.05.2021
-
-Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016286.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Break My Heart Myself (feat. Travis Barker) (02:31)
-2. Sabotage (02:56)
-3. Trust Fall (02:30)
-4. Better Mistakes (02:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470920   (1015474) от 18.05.2021
-
-Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 - The World Starts Tonight
-1978 - Natural Force
-1979 - Diamond Cut
-1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471425   (1015125) от 20.05.2021
-
-St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pay Your Way In Pain [03:03]
-02. Down And Out Downtown [03:42]
-03. Daddy's Home [03:19]
-04. Live In The Dream [06:29](   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCDC010D87F94244EA442430F9482F2FC33EE5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

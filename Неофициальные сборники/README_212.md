@@ -1,3 +1,206 @@
+###  Публикация: 1018022   (759285) от 18.05.2016
+
+VA - Pure Deep Sexy (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miki Leris - Test My Lemonade
+02. Helly Larson - Plastic Dreams
+03. Rochelle Vincente Von K - One Starry Night - Deneha's Full Moon Remix
+04. Cosmic Beets - Tsaka(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BFFACA611B49ED0BE088503A341B5365773906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017957   (759274) от 18.05.2016
+
+VA - Созвездие весеннее - 7 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ladyhawke - A Love Song
+002. The Jigits - В Эту Ночь
+003. Shakira - Try Everything
+004. Артем Пивоваров - Стихия(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D433EBD7BED32F59B92E57F4B94DFD71CE4FB1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017738   (759186) от 18.05.2016
+
+VA - Chill Acoustic Jazz Playlist (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Pomeroy - Chasing Cars
+02. Meg Birch - Ain't No Sunshine
+03. Henrietta Adewole - Smile
+04. Chess Galea - At Last(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837C4830FEA63B28D8C161494FE57E03C9F7BC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017925   (759088) от 18.05.2016
+
+VA - Союз XXXL - Весенний Драйв (2016) [MP3|320 кб/с] <Pop, Dance, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yotto - Aviate (Original Mix)
+ 02. As I Am feat. Jedd Roberts - Closer (Original Mix)
+ 03. Rauschhaus - A Place Beyond Belief (Original Mix)
+ 04. m.O.N.R.O.E. - Seeing Things (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, Disco, RockПродолжительность: 07:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B95BFE637F66594C7081BFAED81698D913EA562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018002   (759017) от 18.05.2016
+
+VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred V & Grafix - Constellations
+ 02. Mona (Ex. Монокини) - Слушай Сердце
+03. Илья Гуров - Знаешь Я Скучаю
+04. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57E6E62EA4B941056E33A5D36D957F52B736E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280780   (758729) от 04.02.2019
+
+VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A$AP Twelvyy - Child's Play
+002. Aaron May - Let Go
+003. Ady Suleiman - Strange Roses
+004. AJR - 100 Bad Days(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 11:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0478BA928EC82CEA1CEE5B4DB0DE8A82393D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280754   (758721) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758721.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Grave Digger - The Commandments Of Metal (2017) (3:28)
+02. Visions of Atlantis - Winternight (2016) (5:37)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280756   (758647) от 04.02.2019
 
 VA - Heavy Metal Collections Vol. 9 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
@@ -548,209 +751,6 @@ VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CCB7DA81623FC07DEA4935F1287151AE465E391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018172   (757731) от 19.05.2016
-
-VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Diver - Selfishness
-02. Don Gorda Project - Hand In Hand
-03. Zero Feedback - Deep In The Rain Forest
-04. Don Gorda Project - Dreamscape(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018117   (757549) от 19.05.2016
-
-VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|320 кб/с] <Jazz, Bossa Nova, Instrumental, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paolo Di Sabatino, Janek Gwizdala, Peter Erskine - Driving Blues 6:58
-2. Bossa Nostra - Rain (To Lidia) 7:11
-3. Italian Secret Service - Oky Doky 4:47
-4. Sam Paglia - Strip Tease Organ 1:43(   Читать дальше...   )Жанр: Jazz, Bossa Nova, Instrumental, Easy ListeningПродолжительность: 02:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4912B0C743DA203BD03831D6947A37CAD702D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280851   (757095) от 05.02.2019
-
-VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Die Liebe Siegt Sowieso
-04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522733   (756777) от 08.01.2022
-
-Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Ever After
-02. Sweet Hel
-03. Beatnik Trip
-04. Hallelujah(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522768   (756766) от 08.01.2022
-
-VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756766.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lynnea M - Three Little Words (Syn Cole VIP Mix) (03:05)
- 002. ALIENKEY feat. NADVAMU - Чужая (03:23)
- 003. Alina Gerc - Hello (01:37)
- 004. Alison Wonderland - Fear Of Dying (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1558CD913DA8E9D3830FF783B2C57083FD80FE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522728   (756642) от 08.01.2022
-
-Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mademoiselle chante le blues
-02. Patou Blues
-03. Space In My Heart
-04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522727   (756498) от 08.01.2022
-
-Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Street
-02. The Letters
-03. Darkness
-04. The Law(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
 ```
 
 https://mybot314.ru/tekegram_catalog/

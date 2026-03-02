@@ -1,3 +1,206 @@
+###  Публикация: 1273877   (798664) от 04.01.2019
+
+Creedence Clearwater Revival - Travelin' Band (2019) 2CD, Compilation [MP3|320 Kbps] <Folk Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fortunate Son
+02. I Put a Spell on You
+03. Cotton Fields
+04. Tearin' Up The Country(   Читать дальше...   )Жанр: Folk Rock, Classic RockПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE35585094BC1583FFD7B37011428B9A87A877C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273834   (798574) от 04.01.2019
+
+VA - Deep House Collection Vol.193 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798574.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. al l bo - Vampired! (Hopeful Peace Remix)
+002. Alex Nothlich - Just That (Original Mix)
+003. Ally - Drug Talk (Original Mix)
+004. Alpha K & Joahn Dashi - When It Rains (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 13:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2445C73467CCA8F9DD6AA97ED46D319862C6F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273836   (798572) от 04.01.2019
+
+VA - Deep House Collection vol.194 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Sides Of Soul - Until You're Drunk (Original Mix)
+002. 84Bit - Vratice Se Rhodes  (Mirko & Meek Remix
+003. A. Rassevich - The Red Space  (Original Mix)
+004. Adam Rusi - EX (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 13:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87972462C7D25FE5C354B1E7A7F71CC37E0B790C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507486   (798481) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Malyari - Spaceman (5:52)
+02. StrayLight - Chasing The Light (4:28)
+03. IDEON - The World Might End Tomorrow (Gertrudda Edit) (8:10)
+04. TrialCore - Living In Cybercity (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507481   (798480) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilotpriest - Archive Seven (5:45)
+02. STARLANDER - Station 5 (5:10)
+03. Alseph - SuperNova (3:24)
+04. GUNSHIP - When You Grow Up, Your Heart Dies (5:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507507   (798474) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PYLOT - Faded Light (5:34)
+02. Maxthor - Run (4:30)
+03. AM 1984 - Euphoria (4:39)
+04. SUNSET 1986 - Out Of World (3:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9398ABA06E80F4151208F06FB7E976B5275C7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507510   (798471) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 7 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FM Attack - My Life (6:31)
+02. BMX Escape - A Date With Jody (5:16)
+03. GoodMarket - Sweet Harmony (Gertrudda Edit) (7:18)
+04. Пропаганда - Белое платье (Shreds Owl Remix) (4:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 03:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AC0C2DA716F75A90EE63AEF2345C70CB456D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507477   (798470) от 04.11.2021
 
 VA - A Synthwave Panorama Vol. 3 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -545,209 +748,6 @@ VA - Music News vol.7 (2020) [MP3|320 Kbps] <Rock, Pop, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13208BFE3C7DB33FBADD03A5EA187D50EA7EA092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385277   (797812) от 24.05.2020
-
-VA - Record Super Chart 637 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Capon - Shut Up Chicken 2:31
-02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-03. Topic & A7S - Breaking Me 2:47
-04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB1DF87FE913C98CA068F483A0DE08FA7A7BCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385474   (797779) от 24.05.2020
-
-Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Wing (Live)
-02. The Revolution Will Be Televised
-03. Angel (Footsteps)
-04. Never Alone(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 05:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78443305B1A1453D54BCE645D99D035B9064DB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385286   (797769) от 24.05.2020
-
-VA - Slow Rock Songs 70s 80s 90s (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad English - When I See You Smile
-02. Extreme - More Than Words
-03. Mr. Big - To Be With You
-04. 4 Non Blondes - What's Up?(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 03:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C424836DF44B3F0E19C10EA15DCA7B3B4BA86BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385350   (797766) от 24.05.2020
-
-VA - Rap NNM 2020 (Русский Выпуск) [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797766.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 10AGE - Зацелую (3:25)
-2. BoValigura & Alexander Kurilov - На Блоке (2:28)
-3. Caramel - Baby (2:53)
-4. ChipaChip - Терапия (3:34)(   Читать дальше...   )Жанр: RapПродолжительность: 04:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671396A1B2420AF033C1352A70CE41FAE312C913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385358   (797760) от 24.05.2020
-
-VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797760.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Future State - Heliosphere
-002. Sunmote - Melancholy
-003. Ex-S & Escobar - Spiritual Dimension
-004. Sunny Lax - Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 13:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645ED1B912C43C97F2D458C5B8DAF24CB907ADB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011095   (797706) от 26.04.2016
-
-VA - Future Trance Energy 003 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ledo -  Morning Light (Eryon Stocker Rmx)  7:33
-02. Derek Aether -  Celestial  6:11
-03. Omniks And Eufonica -  Adelia (R3dub Rmx)  7:49
-04. Gateway 88 -  Dark Brotherhood (Aldo Henrycho Remix)  7:21(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C91D16BFA7AAF7A446EBE5166866F2497ADB28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010857   (797699) от 26.04.2016
-
-VA - Future Trance Energy 002 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Horizon -  Invincible (Original Mix) 8:05
-02. Raphael Mayers & Ragevision -  Destination (Original Mix) 6:22
-03. Kaimo K & Neev Kennedy -  Afraid (Original Mix) 7:04
-04. Mike Saint-Jules & Amy Kirkpatrick -  Galaxy (A.R.D.I. Remix) 6:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDDD839AF866B320A17D323308BB4D14E64694A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

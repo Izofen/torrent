@@ -1,3 +1,31 @@
+###  Публикация: 1192293   (263151) от 17.12.2017
+
+Векторный клипарт - Vector City Streets Collection #1 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Городские улочки
+25 Ai +Jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A4649E9DDFD31D2715C755F3A6AD34846E9C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192288   (263144) от 17.12.2017
 
 Векторный клипарт - Different Snowflakes Set 2 [AI]
@@ -666,34 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F122FEC3634BF469328FBD92EA96FB9CAFEE28A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193170   (262203) от 20.12.2017
-
-Векторный клипарт - Christmas & New Year Vector Bundle [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Рождественский и Новогодний векторный набор
-68 EPS + JPGФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516B4602C8F941447CAA8D7010A96840C5DA7A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

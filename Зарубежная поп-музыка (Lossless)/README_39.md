@@ -1,3 +1,116 @@
+###  Публикация: 1141745   (648497) от 11.06.2017
+
+Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. İsyancı
+2. Baba Evi
+3. İhanetten Geri Kalan
+4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541291   (646938) от 02.04.2022
+
+Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Bury Me 3:55
+02. Wouldn't That Be Lovely 1:39
+03. We All Fall Down 2:22
+04. Tonight 0:31(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292458   (646920) от 29.03.2019
+
+Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas in L.A. (feat. The Tinseltown Tabernacle Choir) (4:15)Жанр: PopПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541151   (646852) от 02.04.2022
+
+Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Womanizer
+02. Circus
+03. Out From Under
+04. Kill The Lights(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAEEDE1C98C1897368BAE0B6894A1A02A8DB7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541137   (646754) от 02.04.2022
 
 Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
@@ -629,122 +742,6 @@ Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907487   (637744) от 12.06.2015
-
-Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Town
-02. The Original High
-03. Another Lonely Night
-04. Underground(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C98141953C809E74F81DC8701684380AFE4909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142991   (637478) от 17.06.2017
-
-Modestia Aparte - Historias sin Importancia (1991) [FLAC|Lossless|tracks + .cue] <Spanish Pop/Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dos Amigos (03:45)
-02 Tómate una Copa (03:36)
-03 Trapos Sucios, Platos Rotos y Algunas Fotos (04:24)
-04 Como te Mueves (04:15)(   Читать дальше...   )Жанр: Spanish Pop/RockПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3256CF9C3F1B6955AB75941BB1FA249FAA579A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542465   (636859) от 07.04.2022
-
-ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Day Before You Came
-02. Take A Chance On Me
-03. Money, Money, Money
-04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033796   (636129) от 12.07.2016
-
-VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Brown - Stop
-02. Elaine Page & Barbara Dickson - I Know Him So Well
-03. Terence Trent D'Arby - Suddenly You Crossed My Heart
-04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
 ```
 
 https://mybot314.ru/tekegram_catalog/

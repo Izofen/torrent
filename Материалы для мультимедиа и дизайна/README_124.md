@@ -1,3 +1,29 @@
+###  Публикация: 1282681   (743392) от 13.02.2019
+
+Шрифты - Creative Market - BLACKHAWK Brush Font - 772377 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743392.jpg" />
+</div>
+
+
+###  Подробнее
+
+BLACKHAWK - это стильный уличный шрифт насыщенный энергией. Идеально подходит для логотипов, надписей на одежды, упаковок продуктов, флаеров и так далее.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3228A29FFE457D061572073E5B3960D7140A02FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020969   (743218) от 27.05.2016
 
 Экшены - GraphicRiver -  Realistic Painting Action [ATN]
@@ -666,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05310B90A86AA4F2C3202FC9A70EB3D3A2ECD7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021074   (741959) от 28.05.2016
-
-Экшены - GraphicRiver - Polygons Exposure [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polygons Exposure - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B910083FEA8875402D323235303918B8084998
 ```
 
 https://mybot314.ru/tekegram_catalog/

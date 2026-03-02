@@ -1,3 +1,206 @@
+###  Публикация: 1703793   (114695) от 02.03.2024
+
+VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muvi - Impossible
+02. Adik - No Smoke
+03. Hamidshax - Better Off Alone
+04. Adik - One Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703202   (114692) от 02.03.2024
+
+VA - Straight to the Heart (Buddha-Bar) (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114692.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buddha Bar, VS Prjct - A Night in Napoli [03:56]
+002. Craig Armstrong - Weather Storm [06:04]
+003. Ravin, Gosha, Tomash - Vira v Peremogu [04:45]
+004. Sina Vodjani - Straight to the Heart [07:27](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 10:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703989   (114670) от 02.03.2024
+
+VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114670.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. I Am Your God - Shotgun (00:03:11)
+002. Danicide - Stronger (00:02:41)
+003. Evile - Out Of Sight (00:02:57)
+004. Tarja - Frosty The Snowman (00:03:07)(   Читать дальше...   )Жанр: Metal, Hard, RockПродолжительность: 09:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A980B273C7D5E475767EF5B022FAE6A4E3FBF644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704166   (114576) от 03.03.2024
+
+VA - Крутые пушки Весна 2024 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Stoll Vs. Gustavo Mota, Volac - Girls Drop That Thang Low Vs. Like Dis (VLLV Club MashUp) (2:34)
+02. Culture Beat - Mr. Vain (Silichev Remix) (3:04)
+03. Xassa, BODIEV - Самолёт (Andy Shik x EVGL Remix) (Radio Edit) (3:20)
+04. La Bouche - Be My Lover (Jenia Smile & Ser Twister Remix) (2:39)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454D8F143FF814A4A8E4F44C71FB1B207FE6E8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704068   (114523) от 03.03.2024
+
+The Lachy Doley Group - Compiliation 2013-2019 (2024) [MP3|320 Kbps] <Hammond, Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Woman [04:02]
+02. Betcha I'll Getcha [02:42]
+03. Conviction (Live at Blues on Broadbeach 2016) [07:23]
+04. Love Blinded Fool [03:44](   Читать дальше...   )Жанр: Hammond, Blues, Blues RockПродолжительность: 05:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12650F8530C6B7857F684371F0AE0B66540F960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704292   (114362) от 04.03.2024
+
+VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neuron - Run Back to You
+02. Adik - Our Secret
+03. Neuron - Night Light
+04. Adik - See You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40E51F22B0476AFCD11F02FDB6ADC52A201B04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704597   (114221) от 05.03.2024
+
+VA - Music News vol.348 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114221.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ana Mena - Madrid City Remix (Gallery Session Version) (02:54)
+ 002. 52Ghz - Всеми Забытый (02:04)
+ 003. 52Ghz - Пополам (02:35)
+ 004. 84 - Падай На Меня (02:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB4B425A6C0BC69C0135CDCECA592BC74475255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706618   (113608) от 13.03.2024
 
 VA - Music News vol.351 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:269E82F1FF5423CE62825C69C4F756F80315B9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715957   (111502) от 13.04.2024
-
-VA - Instrumental Jazz Variations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111502.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xavier Richardeau - Linea Oceanica (00:03:35)
-002. Arnold Klos Trio - Whisper Not (00:05:07)
-003. Massimo Faraò - Blue And Blues (00:10:29)
-004. Mongo Santamaria - Song For You (00:07:30)(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20C97D9DC7DAEA7D33580844F62516FAAE70F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715946   (111491) от 13.04.2024
-
-VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steel Rhino - In Rhino We Trust (00:05:15)
-002. Draconicon - Drowned (00:04:09)
-003. Somewhere In Nowhere - Lake Of Sorrow (00:07:17)
-004. Ignition - Betrayal (00:05:33)(   Читать дальше...   )Жанр: Metal, Death, Black, Heavy, TrashПродолжительность: 11:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717020   (111222) от 20.04.2024
-
-VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, New Age, World>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Copy Art - Ly-O-Lay A Le Loya [05:38]
-02. Tetouze - The New Shamans [03:07]
-03. Moonlight Benjamin - Wayo [04:38]
-04. Wakan Tanka - Reality [03:22](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 03:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6580757FDC86A1E769B2C0D7D0075DEB0A5F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716327   (111214) от 20.04.2024
-
-VA - Feel Good Soul & Funk (2024) [MP3|320 Kbps] <Pop, Soul, Funk>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. James Brown, The Original J.B.s - Get Up I Feel Like Being Like A Sex Machine, Pts. 1 & 2 [05:16]
-002. Marvin Gaye - Let's Get It On [04:51]
-003. Selah Sue - When It All Falls Down [02:27]
-004. Bruno Mars - Finesse [03:11](   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 10:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3D6D48A3F043A09193C26E6BE0E14E7C84F8F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718188   (110775) от 27.04.2024
-
-Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Checking Out While I Was Checking In
- 02.  Devil Woman
- 03.  Don't Cry Those Tears
- 04.  Don't Let the Devil Know When I'm Gone(   Читать дальше...   )Жанр: Rock, Blues Rock, SoulПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EE62BE508A4DE34598D4348DC301DB48FD5A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718600   (110683) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whispers - And The Beat Goes On (Dario Caminita Revibe) (6:09)
-02. Delegation - Put A Little Love On Me (Dario Caminita Revibe) (5:55)
-03. Chic feat. Sugarhill Gang - Good Times (Dario Caminita Revibe) (8:37)
-04. Lipps Inc. - Funkytown (Dario Caminita Revibe) (5:47)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718365   (110677) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvester - You Make Me Feel (Dario Caminita Revibe) (5:19)
-02. Earth, Wind & Fire - September (Dario Caminita Revibe) (5:00)
-03. Bee Gees - You Should Be Dancing (Dario Caminita Revibe) (5:08)
-04. Kool & The Gang - Celebration (Dario Caminita Revibe) (4:56)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

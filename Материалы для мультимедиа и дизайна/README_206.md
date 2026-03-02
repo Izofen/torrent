@@ -1,3 +1,29 @@
+###  Публикация: 537604   (511194) от 21.08.2012
+
+Кисти - 1000 brushes for Adobe Photoshop CS4 (only) [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный архив кисточек для Adobe Photoshop, около 1000 штук. Незнаю нужен ли кому такой архив или нет… просто поделюсь ссылкой.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA220C3A60DEAC1314ECA85CCFFC327A346340D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315811   (510850) от 22.07.2019
 
 Звуковые библиотеки - ProjectSAM - Symphobia Colours Animator v1.3 [Kontakt, OGG]
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43AFFAC0873607DD26E3B2271C761C2ECC2F6969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935032   (500122) от 07.09.2015
-
-Шаблоны - Фотокнига - Мы приехали на море [PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейная морская фотокнига.
-Автор: krot82Формат: PSD, JPGРазрешение файлов: 7205 x 3602 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876753ADD16AA53428A6297225C00AEBFF2478B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,48 @@
-###  Публикация: 612761   (986264) от 02.02.2013
+###  Публикация: 1354749   (987037) от 23.01.2020
 
-Butterfly - Favorite Colors Episode 069 (02.02.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
+Сэм Байер и др. | Мифы со всего света для детей (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редакция «Вилли Винки» представляет! Откуда появилась Луна? И что случилось, когда великан бродил по свету? И что случилось с самой жадной лягушкой на свете? Перед тобой настоящая коллекция мифов, сказок и историй со всего света. Истории из этой книги были придуманы тысячи лет назад. Люди пересказывали их друг другу задолго до торжества науки, когда все вокруг верили (   Читать дальше...   )Жанр: Проза для детей, сказкиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4F09531A35A35CE111FD9DF3F8ABCEF5C9462D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354608   (987036) от 23.01.2020
+
+E-Trophee Andros. Сезон 2019-2020. Этап 4. Serre Chevalier. Гонка 1-2 (18-19.01.2020) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986264.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Johann Johannsson -  Theme (Intro Original Mix)
-02. Naden -  Murmuration (Original Mix)
-03. Tiago Starr -  Beyond (Original Mix)
-04. Mike Danis -  Stay Forever (Original Mix)
-05. Sou Kanai -  Child (Kamil Esten Remix)
-06. Steve Brian & Cressida -  Casablanca (Original Mix)
-07. Denis Kenzo feat. Sveta B. -  Lullaby Lonely (Cold Rush Bootleg)
-08. Hazem Beltagui & Allan V -  We Are (Original Mix)
-09. RAM & XB -  Symphonik (Original mix)
-10. Armin van Buuren & Markus Schulz -  The Expedition (Original Mix)Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:00:44
+E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 01:33:13 + 01:56:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DCAAA346382E44CE491A4232AAB8731A1BDD90A
+magnet:?xt=urn:btih:4BA5666DABCD480C6E08E2350A6C80795216CFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +50,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 612732   (986261) от 02.02.2013
+###  Публикация: 1354593   (987035) от 23.01.2020
 
-Global Collective - Aboriginal Magic: Red Sands Dreaming (2006) [MP3|320 кб/с]<Australian Ethno Fusion>
+Сатисъ (изд.) | Святой преподобный Серафим Саровский. Наставления и чудеса (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2003 году Русская Православная Церковь торжественно отметила 100-летие канонизации преподобного Серафима Саровского. Данный сборник составлен на основе книги «Житие старца Серафима, Саровской обители иеромонаха, пустынножителя и затворника» (Москва, 1901). В сборник включены наставления старца и описание многочисленных чудес, явленных и при жизни, и по кончине (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F0C7607D458F3DEDE6317734887B74D10EFC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354688   (987034) от 23.01.2020
+
+Blocs 3.4.3 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986261.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marrayilyil (North Wind) 5:03
-02. Ilkaru Maru (Dark Clouds) 4:49
-03. Ipmente (Grandmothers Voice) 3:53
-04. Perentie Inma (Deep Elseg) 5:33
-05. Egwada (Creation Song) 2:13
-06. Nganampa Ngurra (This is Our Land) 6:04
-07. Three Women Prentie (Journey North) 3:37
-08. Mimi Dreamtime (Spirit Men of Arnhemland) 4:39
-09. Firedancers (Cooking of Goanna) 5:17
-10. Burfli (Hills and Land) 4:47(   Читать дальше...   )Жанр: Australian Ethno FusionПродолжительность: 00:50:53
+Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
+
+Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2020Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9BFB6E9C6CC741E3498F287D2332716376C78F0
+magnet:?xt=urn:btih:8D009EAF9FCDA95A7525AE209B5D7C7B7EF3D386
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,104 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 612588   (986259) от 02.02.2013
+###  Публикация: 1354764   (987033) от 23.01.2020
 
-VA - Enhanced Music January (2013) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estiva & Cardinal feat. Arielle Maren - Wait Forever (Estiva Mix) (06:27)
-02. Estiva - Smiley Smilesworth (Original Mix) (05:34)
-03. Ost & Meyer - Take Off (Original Mix) (07:32)
-04. Photographer - Kervansaray (Original Mix) (08:15)
-05. Sebastian Weikum - It Moves On (Original Mix) (07:22)
-06. LTN - Moments Between Us (Original Mix) (06:23)
-07. D-Mad - Must Be Together (Original Mix) (08:17)
-08. Mike Danis & Johnny Yono - Ambrosia (Original Mix) (07:30)
-09. Luigi Lusini pres. Galaxia LL - Dont Wanna Be Alone (Original Mix) (06:02)
-10. Braiman & Falcon - Serenity (Original Mix) (07:19)Жанр: TranceПродолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A325A8DD3AF8E6742B2D251AB935B1E33722AE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611011   (986257) от 02.02.2013
-
-VA - Drum and Bass Pro V.4 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hosta - When You Were Mine (VIP Mix)
-02. John B feat. Kirsty Hawkshaw - Connected (McMash Clan Remix)
-03. Netsky - I Refuse
-04. Tut Tut Child feat. Emily Underhill - Alive (Original Mix)
-05. Vospi ft. Leila - Kind Words (nClear remix)
-06. Menace & Borderline - Murky
-07. State of Mind - Azwell
-08. The Brainkiller - Follow Me (Chaos Teory Remix)
-09. Mr.Tools - What Is Your Profession (Original Mix)
-10. Brookes Brothers - The Blues(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99065549EAE4E007452C899FB3ED8B588A065993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612816   (986254) от 02.02.2013
-
-Atheist - Elements (1993) [WavPack|Lossless]<Progressive Death / Thrash Metal>
+Jorn - Heavy Rock Radio II - Executing the Classics (2020) Deluxe Edition [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986254.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Green [03:21]
-02. Water [04:27]
-03. Samba Briza [01:57]
-04. Air [05:32]
-05. Displacement [01:23]
-06. Animal [04:10]
-07. Mineral [04:32]
-08. Fire [04:36]
-09. Fractal Point [00:43]
-10. Earth [03:52](   Читать дальше...   )Жанр: Progressive Death / Thrash MetalПродолжительность: 00:41:29
+01. Lonely Nights
+02. Winning
+03. New York Minute
+04. Needles and Pins(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:13
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:072FD79E9A80A40B15241C1E0CC7BD1F5A505310
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -173,133 +133,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 612752   (986253) от 02.02.2013
+###  Публикация: 1354644   (987032) от 23.01.2020
 
-Twistex - The Best (2013) [MP3|256 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powerdrive (Original Mix)
- 02. Signs Of Time (Original Mix)
- 03. Teaser Upcoming Songs 2012
- 04. This Is Stupid (Original Mix)
- 05. Time Warp (Original Mix)
- 06. Tricky Finger (Original Mix)
- 07. Twee
- 08.Twistex Feat. Gunslinger Jones - To The Beach (Savant Remix)
- 09.Twistex Feat. Skepsis - Over The River (Original Mix)
- 10.Twistex Feat. Skepsis - Ozeriah Beach (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 02:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD67C323AB040B4E195C07A5BA50EA3A7F86815C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612823   (986252) от 02.02.2013
-
-Attica Rage - Road Dog (2011) [WavPack|Lossless]<Heavy Metal / Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 36 Insane [03:22]
-02. Hacked For Vanity [04:06]
-03. Road Dog Forever [04:14]
-04. Through The Inner Eye [05:01]
-05. Contradictions [03:55]
-06. Ashamed [03:36]
-07. High [04:43]
-08. Lost [06:00]
-09. Altea [02:28]
-10. Altered Reality [04:05](   Читать дальше...   )Жанр: Heavy Metal / Thrash MetalПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612744   (986249) от 02.02.2013
-
-Manilla Road - Mysterium (2013) [MP3|320 кб/с]<Epic Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grey God Passes (4:05)
-02. Stand Your Ground (2:58)
-03. The Battle of Bonchester Bridge (4:29)
-04. Hermitage (6:02)
-05. Do What Thou Will (4:09)
-06. Only The Brave (3:37)
-07. Hallowed Be Thy Grave (4:37)
-08. The Fountain (4:28)
-09. The Calling (4:01)
-10. Mysterium (11:21)Жанр: Epic Heavy MetalПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7B98DE906B07FC2E9049607074187B2572436A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612686   (986247) от 02.02.2013
-
-Оксиdерика - Step To Darkness (2013) [MP3|320 кб/с]<Symphonic Metal, Female Vocal>
+Mammoth Mammoth - 4 albums, 2 EP (2008-2019) [FLAC|Lossless|image + .cue | tracks + .cue ] <Heavy Rock, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986247.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Край
-2. Ворон
-3. Шаг Во Тьму
-4. Демон(   Читать дальше...   )Жанр: Symphonic Metal  |Продолжительность: 00:28:36
+Mammoth Mammoth (стилизовано как MAMMOTH MAMMOTH) австралийская группа, играющая hard rock/stoner rock, образована в 2007 году в Мельбурне. Группа становилась все более известной благодаря своим лайв-выступлениям, где фронтмэн Майки Такер не знает границ. Согласно интервью в блоге Riff Media, Такер упал через стеклянное окно в The Tote Hotel, ударив его головой, (   Читать дальше...   )Список альбомов:
+2008 | Mammoth Mammoth (Volume I) (EP)
+2012 | Volume III: Hell's Likely
+2015 | Volume IV: Hammered Again(   Читать дальше...   )Жанр: Heavy Rock, Stoner |Продолжительность: 03:51:36 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A6987950796495D1199036F2105B746858C9469
+magnet:?xt=urn:btih:C226C08709ABE6F36075140D186DA0AD67E8FB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,25 +162,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 434298   (986233) от 10.01.2012
+###  Публикация: 1354760   (987031) от 23.01.2020
 
-Соломенные псы / Straw Dogs (2011) [H.264/720p-LQ] BDRip
+Temperance - Viridian (2020) [MP3|320 Kbps] <Melodic Modern Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986233.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дэвид и Эми — молодая благополучная пара, которая переезжает в маленький провинциальный городок, где безмятежная идиллия скоро оборачивается настоящим адом. На поверхность выходят страшные секреты прошлого, и смертоносные страсти вырываются из-под контроля. Загнанные в ловушку группой «местных» во главе с безжалостным хищником, герои вынуждены провести ночь непрерывной (   Читать дальше...   )Производство: СШАЖанр: Триллер, Драма, КриминалРежиссер: Род ЛуриАктеры: Джеймс Марсден, Кейт Босворт, Александр Скарсгард, Джеймс Вудс, Доминик Пурселл, Риз Койро, Билли Луш, Лас Алонсо, Уилла Холлэнд, Уолтон ГоггинсПеревод: Дублированный (Лицензия Blu-ray)Язык субтитров: Русские, украинские, английскиеПродолжительность: 01:49:43
+01. Mission Impossible
+02. I Am the Fire
+03. Start Another Round
+04. My Demons Can't Sleep(   Читать дальше...   )Жанр: Melodic Modern MetalПродолжительность: 00:48:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FBFBB023FC8FC03CAFA8D667F51C2F84D288CE0
+magnet:?xt=urn:btih:C2432F86DDC09B78633F72C51D5D2966D3F1C5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -333,25 +191,280 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 434301   (986230) от 10.01.2012
+###  Публикация: 1354797   (987030) от 23.01.2020
 
-Ирвинг Стоун | "Биографический роман" Ирвинга Стоуна [2002 – 2009] [FB2]
+TunesKit Video Converter 1.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный видео конвертер, видеоредактор и DVD риппер, который может конвертировать любое видео в 250 форматов с 60-кратной скоростью без потери качества. Вы также можете использовать его для редактирования видео или копирования любых защищенных или коммерческих DVD-фильмов в любой формат на Mac.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FE38A5A794EC111D45C7AA59B5F52D5E7DA5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354662   (987029) от 23.01.2020
+
+Fugenn & The White Elephants - Layer Of Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peace (03:56)
+02. Magic Bullet (03:07)
+03. Sky And Sea (03:39)
+04. Izum (05:35)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BA8FBA7BB0BAEBAE462D0AE95E81D22D4A233D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354807   (987028) от 23.01.2020
+
+На-На - Вся жизнь - игра (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дождик [03:19]
+02. Любимая [03:35]
+03. Игра [03:19]
+04. В первый раз [03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF8DC933D3D10D56C7079CDE876D98A3AC10E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353906   (987027) от 23.01.2020
+
+Mono No Aware - Tatemae Honne (2012) 2CD, Limited Edition, Hands Productions [FLAC|Lossless|tracks] <Rhythmic Noise, Industrial, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987027.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Tatemae
+1. Freigaenger 	5:46
+2. Jadoo 	5:34
+3. Blackbox 	4:12(   Читать дальше...   )Жанр: Rhythmic Noise, Industrial, TechnoПродолжительность: 02:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27B292D95A8EB9FD15D3D3513252C89B6C606F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354756   (987026) от 23.01.2020
+
+Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Мужчины. Короткая программа (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
+22 января 2020, среда. 13:30 МСК
+Мужчины. Короткая программа
+Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E50EAACACD2A725E71AA114290B107AFC5141B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354668   (987025) от 23.01.2020
+
+Анна Быкова | Развивающие занятия «ленивой мамы» (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987025.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге Анна Быкова – педагог, психолог и автор бестселлера «Самостоятельный ребенок, или Как стать „ленивой мамой“» – предлагает свой взгляд на проблему развития детей. Многие родители беспокоятся: «Достаточно ли я вкладываюсь в своего ребенка? Своевременно ли? Не опоздал ли в чем-то?».
+Между тем каждая наша прогулка, каждый момент общения с детьми может стать (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 05:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DFFD6E7369C33E1D505DB458D3A46E76BA02999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354781   (987024) от 23.01.2020
+
+Фигурное катание. Чемпионат Европы 2020. Грац (Австрия). Спортивные пары. Короткая программа (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по фигурному катанию 2020 года — соревнование среди фигуристов европейских стран в сезоне 2019/2020 годов под эгидой ИСУ во втором по численности австрийском городе Граце.
+22 января 2020, среда. 21:15 МСК
+Спортивные пары. Короткая программа - 5 разминка
+Арена: Штайермаркхалле (Грац, Австрия)Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0985CA798C6E9A750A271C22F72B4F3BE1780B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354378   (987023) от 23.01.2020
+
+Drive-By Truckers - The Unraveling (2020) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosemary with a Bible and a Gun (03:29)
+02. Armageddon’s Back in Town (03:48)
+03. Slow Ride Argument (03:19)
+04. Thoughts and Prayers (05:21)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E638D5802181F3633C87A9EEA5915A68832E6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354679   (987022) от 23.01.2020
+
+Жил-был Козявин (1966) WEBRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Козявин — обычный служащий. Однажды под конец рабочего дня начальник поручает ему разыскать Сидорова, потому что пришёл кассир. Козявин покорно исполняет поручение, строго следуя назначенному маршруту и спрашивая всякого встречного, не видел ли он Сидорова. По пути он минует невообразимые препятствия, и в итоге, поскольку Земля круглая, возвращается в родное учреждение.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимация, для взрослыхРежиссер: Андрей ХржановскийСубтитры: ОтсутствуютПродолжительность: 00:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A10730A94581BAFB3C5D3B31AE0CB95C26FD5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354592   (987021) от 23.01.2020
+
+Джеффри Евгенидис | Найти виноватого (сборник) (2019) [FB2]
 
 >>Художественная литература
->>Собрания книг иностранных авторов
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986230.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ирвинг Стоун (1903-1989) - одна из самых ярких фигур американской литературы, писатель, создавший жанр "литературной биографии". Создавая произведения, посвященные жизни великих людей, писатель опирался, прежде всего, на факты, черпая сведения из достоверных источников, отвергая разного рода домыслы. Мастерское владение стилем позволило Стоуну избежать (   Читать дальше...   )Издательство: АСТ, Терра - Книжный клубФормат: FB2Качество: OCR без ошибок
+Сборник из десяти рассказов Джеффри Евгенидиса охватывает творчество писателя с 1988 по 2017 годы.
+
+В своих рассказах Евгенидис исследует человеческую природу. Его герои ищут нетрадиционные способы продолжения рода, пытаются преодолевать невзгоды и жить дальше, решают, стоит ли бороться с обстоятельствами и с самими собой или оставить все как есть. Писатель-неудачник, (   Читать дальше...   )Жанр: Современная прозаПеревод: Дарья ГорянинаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFAA8C2935FE86C114067879AA5508C4902F468D
+magnet:?xt=urn:btih:F407C31C036B671E671C9635C273CC8B1ED585EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,54 +472,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355010   (986226) от 24.01.2020
+###  Публикация: 1354595   (987020) от 23.01.2020
 
-BetterTouchTool 3 v3.230 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986226.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterTouchTool удобное приложение, которое позволяет в продвинутом режиме настроить режимы сенсорной панели, многие другие жесты, не предусмотренные инженерами Apple, но отлично распознаваемые самими устройствами. BetterTouchTool-позволяет настраивать множество различных жестов для MagicMouse и MagicTrackpad, дает возможность настраивать действия на тапы в углах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Andreas HegenbergПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1EBBAB09516800321DF919528912956E02A547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354872   (986225) от 24.01.2020
-
-Archie Shepp - Passport To Paradise 1981 (1987) West Wind [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+Sensual Chill Saxaphone Band - Sensual Jazz - Saxophone Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986225.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Man [4:14]
-02. Premier Bal [10:43]
-03. Blues for Bechet [6:29]
-04. Petite Fleur [13:29](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:44:59
+01. Jazz Sax Relax
+02. Night Time (Saxophone Instrumentals)
+03. In a Mellow Tone
+04. Intimate Moments(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:068B97313ED9BBAFA48140ABB4789FBB4D1D237D
+magnet:?xt=urn:btih:609C9BC2420AA638755C704EAA076C5452FC7CE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,57 +501,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354877   (986224) от 24.01.2020
+###  Публикация: 1354766   (987019) от 23.01.2020
 
-Tony Bennett - The Playground (1998) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Playground [3:37]
-02. Ac-Cent-Tchu-Ate the Positive [2:37]
-03. Dat Dere [3:18]
-04. Little Things (duet with Elmo) [3:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CCDADE4CE561611B3DAAD27AB39FD3FDE12360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355027   (986223) от 24.01.2020
-
-Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [WavPack|Lossless|image + .cue] <Heavy Metal, Power Metal>
+VA - Prog Rocks! Volume Three (2014) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Rock, Soft-Rock, Pop-Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986223.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Time Has Come (4:15)
-02. Die Just A Little (4:07)
-03. Radar (3:37)
-04. Where Would It Be (4:59)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:00
+Ну что ж вернемся (ссылка на остальные релизы коллекции внизу поста) к рассказу об издании, которое дало достаточно полную ретроспективу прог-рока. Сегодня уже многие забыли о такой группе как Aphrodite's Child и только Вики услужливо подскажет, что главным голосом группы был Демис Руссос. А между тем, целый ряд композиций группы стали вехами для других прог-рок (   Читать дальше...   )CD1:
+01. Aphrodite's Child - The Four Horsemen  (5:55)
+02. Barclay James Harvest - Hymn  (5:07)
+03. Be Bop Deluxe - Ships in the Night  (4:04)(   Читать дальше...   )Релиз состоялся: 28 февраля 2014 годаЖанр: Rock, Soft-Rock, Pop-RockПродолжительность: 02:27:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:755427736596242E28CDAC8BF86DD2AAD84C780C
+magnet:?xt=urn:btih:8F360267C9B97522EF3F078E286B3E4AC441A863
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +530,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354874   (986222) от 24.01.2020
+###  Публикация: 1354770   (987018) от 23.01.2020
 
-Paul Desmond - The Ballad of Paul Desmond 1961 - 1965 (1996) BMG [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+Валерий Гундоров | Байки у костра (S.T.A.L.K.E.R.) (2019) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986222.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Night Has a Thousand Eyes [4:46]
-02. Samba de Orfeu [4:21]
-03. Take Ten [3:08]
-04. Curacao Doloroso [4:30](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:12:32
+Порой грустные, порой веселые. Порой ... мудрые. Порой жизненные. Но такие родные и такие ностальжичные рассказы по миру Сталкера. Эх... как давно это было. Сколько воды утекло с того времени. Как молоды мы были ))) Слушаем и ностальгируем )Жанр: ФантастикаПродолжительность: 07:22:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:521DD3D651180B6FEA6B8CF9067A8C2D55415EC8
+magnet:?xt=urn:btih:55271670E6A5CA225394BD1B91D889A577D4B778
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,26 +556,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355024   (986221) от 24.01.2020
+###  Публикация: 1354418   (987017) от 23.01.2020
 
-Наталья Маркелова | Такие разные бабушки (2019) [EPUB]
+Брайан Дейли | Хэн Соло в Звёздном тупике (2019) [M4B|AAC]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Аудио и Видео
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986221.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В детстве мы мечтаем стать врачами, моряками или космонавтами. А вот Леночка мечтает стать бабушкой, ведь её бабушка – настоящая добрая фея! Какие ещё бывают бабушки и что за волшебство они хранят у себя в карманах – в книге Натальи Маркеловой «Такие разные бабушки».
-Тёплые и солнечные иллюстрации Марии Коротаевой.Жанр: Проза для детей, повести, рассказыФормат: EPUB
+Давным-давно в далекой Галактике… Эпоха возникновения Альянса за восстановление Республики. Вооруженные силы повстанцев борются с Империей, но на окраинах Галактики никто об этом даже и не слышал. Империя далеко, Альянс неведом, а бывший имперский офицер и контрабандист Хэн Соло вместе со своим другом вуки Чубаккой мечтают лишь об одном — нескучно прожить отпущенные (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 08:38:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E9D600413B9E56D99990968230498EFB8A8E1B2
+magnet:?xt=urn:btih:BCCCCB5063C7A0BBD122F34221063F6F92F2187C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,54 +582,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354925   (986220) от 24.01.2020
+###  Публикация: 1354758   (987016) от 23.01.2020
 
-Image Crop 1.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрезайте, конвертируйте и переименуйте тысячи файлов изображений в пакетном режиме с помощью Image Crop. Обрезайте изображения, чтобы удалить нежелательные области или дать им конкретное соотношение сторон. Кроме того, если ваши исходные файлы изображений плохо названы, вы можете использовать Image Crop, чтобы дать им значащие имена, чтобы их легче находить и идентифицировать.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2020Разработчик: Day 1 Solutions SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812CD3177F45A677A483BF6DFDE1B3AB36D0783C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354804   (986219) от 24.01.2020
-
-Wire - Mind Hive (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
+Breaking Benjamin - Aurora (2020) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986219.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Be Like Them (03:52)
-02. Cactused (03:34)
-03. Primed And Ready (02:43)
-04. Off The Beach (02:22)(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:34:49
+1. So Cold (Aurora Version)
+2. Failure (Aurora Version)
+3. Far Away
+4. Angels Fall (Aurora Version)(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:40:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04D3767E6C75BE1A38E48647569502A4008DB2F6
+magnet:?xt=urn:btih:C003730DE485422A45E843F8FBB8B7E4C6EC23C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +611,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355023   (986218) от 24.01.2020
+###  Публикация: 1354514   (987015) от 23.01.2020
 
-Хелен Купер | Где-то там гиппопотам (2019) [EPUB]
+Одиссея Джулиана и Камиллы / Julian and Camilla's World Odyssey (2008-2009) HDTV [H.264/1080i] (сезоны 2-3, 11 серий)
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986218.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Такого диковинного письма Бен раньше не получал: оно выглядит так, будто прилетело прямиком из эпохи Шерлока Холмса, да еще и доставили его… пчелы! В конверте, запечатанном сургучом, – небольшая открытка-приглашение с подписью: «Загляни на часок». Заглянуть? В Музей Гарнер-Ги? Но Бен даже о нем не слышал! И в интернете только одно упоминание – будто музей давно закрыт. (   Читать дальше...   )Жанр: Приключения для детейФормат: EPUB
+«Мы все время были вместе, 24 часа в сутки в течение целого года», - говорит ведущий Джулиан Хантон о работе со своей напарницей Камиллой Андерсен. Представьте себе, сколько проблем, слез и курьезов сопровождало этот отважный дуэт в ходе его кругосветки. Отправившись в это, большей частью незапланированное путешествие, Джулиан и Камилла испытали на себе все взлеты (   Читать дальше...   )Производство: Великобритания, Katipo Productions, Travel Channel InternationalЖанр: Документальный, познавательный, путешествияРежиссер: Ян ХартПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:45:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6CA819A944172CB02BA3F0C483F6E3DAC423E54
+magnet:?xt=urn:btih:F0D9D0B201EC58E373B91ECC4C6291F9DAABD945
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,86 +637,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354921   (986217) от 24.01.2020
+###  Публикация: 1354791   (987014) от 23.01.2020
 
-FastScripts 2.8.1 [En]
+Mono Inc. - The Book of Fire (2020) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987014.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Book Of Fire
+2. Louder Than Hell
+3. Warriors
+4. Shining Light(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E057F498BF02227808B53C10FFD0B1D466CCD65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612087   (987011) от 01.02.2013
+
+Inno Setup 5.5.3 [Multi + Русский]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986217.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
-
-Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2020Разработчик: Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8927CD7E432C2F4F5BFCEFFD11D4F53806E6B5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612703   (986216) от 02.02.2013
-
-Реальность кусается / Reality Bites (1994) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лилайна работает ассистентом несносного телеведущего. В свободное от работы время наша героиня снимает документальный фильм о своих сверстниках, среди которых — ее лучший друг Трэй — способный, но бесцельно прожигающий время «бунтарь».
-
- После появления Майкла — амбициозного видео продюсера, Лилайна неожиданно для себя оказывается в эпицентре страстного любовного треугольника. Теперь ей предстоит выбирать между надежным, успешным Майклом и мечтательным, праздношатающимся красавцем Трэем.Жанр: Драма, Мелодрама, КомедияРежиссер: Бен СтиллерАктеры: Вайнона Райдер, Этан Хоук, Джанин Гарофало, Стив Зан, Бен Стиллер, Свузи Кёрц, Гарри О’Рейли, Сьюзэн Норфлит, Джо Дон Бейкер, Рене ЗеллвегерПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D70EA20AA243E2DE5B7ECE3016B1C42CD9B291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612388   (986210) от 02.02.2013
-
-Various Artists - Smooth Jazz for a Rainy Day (1999) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Fuentes - Slow Brew
-02. Darren Motamedy - Maybe Someday
-03. Nite Flyte - The Love I Give
-04. Duncan Millar - Lazy Days
-05. Soft Sugar - Sunset del Mar
-06. Deems - Romance Blue
-07. James Branch/Oneness - Near the Castle at Elmina
-08. Mark Hasselbach - Across the Canyon
-09. Chris Standring - Solitaire
-10. Michael Mcevoy - Cycles of Re-ElevationЖанр: Smooth JazzПродолжительность: 00:50:51
+Inno Setup - утилита для создания установочных файлов. Специальный мастер создания дистрибутива поможет настроить различные параметры установки. С помощью данной утилиты, можно создавать учетные записи в системном реестре, помещать установленную программу в автозагрузку, использовать автоматическое удаление (uninstall) и т.д. Среди других возможностей программы выбор типа установки (полная, минимальная, выборочная), деинсталлятор, установка шрифтов, поддержка многоязычных инсталляторов, 'тихая' установка и деинсталляция, установка, защищенная паролем. Программа работает со всеми версиями Windows, в том числе и с 64-битными.
+В этом релизе улучшена поддержка языков, в которых написание ведется справа налево, добавлены новые директивы VersionInfoProductName и VersionInfoProductVersion, добавлена возможность добавлять любые сообщения при деинсталляции.Название программы: Inno SetupЯзык интерфейса: Multi + Русский
 
 ## Скачать торент
 ```bash
@@ -700,87 +693,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 612649   (986208) от 02.02.2013
+###  Публикация: 611218   (987009) от 01.02.2013
 
-Эндрю Фокс | Блюз белого вампира [2006] [FB2][TXT][JAVA(jar+jad)]
+Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986208.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нью-орлеанские вампиры — надменные и стильные красавцы?!
-
- Сказки для детей младшего готского возраста!
-
- Обычные… гм… кровопийцы с обычными проблемами!
-
- Один страдает от избыточного веса!
-
- Другой тщетно мечтает об операции по перемене пола!
-(   Читать дальше...   )Формат: FB2,TXT,JAVA(jar+jad).
+Жанр: PopПродолжительность: 00:02:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A082EDFCE40695E7D1688D96B186498A74B98604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612690   (986207) от 02.02.2013
-
-Алексей Макеев | Бойцовская честь [2013] [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподаватель физики Олег Звягинцев знакомится с Викторией, красавицей из Вологды. Вскоре он сталкивается с серьезной проблемой: Вика оказывается не скромной провинциалкой, а роковой женщиной, "монстром, пожирающим деньги". Олег понимает, что содержать такую девушку на мизерную преподавательскую зарплату невозможно, и за небольшое денежное вознаграждение уступает Вику своему бывшему однокурснику, а ныне преуспевающему бизнесмену, Роману Белозерцеву...
-Ни Звягинцев, ни Белозерцев не могли и представить, к каким страшным последствиям приведет эта безобидная с первого взгляда сделка.Формат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6EB6E8D888CE408E5EA567A72460E9DDC04048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612694   (986206) от 02.02.2013
-
-Журнал | Тайны ХХ века [Украина] №4 (февраль 2013) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6915F7AAF9C59F4E58193A22281FDC4636B2FF5E
+magnet:?xt=urn:btih:6FD635E7CA6DC75C72300832B764D196632E31FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

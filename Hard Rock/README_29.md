@@ -1,32 +1,3 @@
-###  Публикация: 1269059   (223379) от 13.12.2018
-
-Cats In Boots - Kicked & Klawed (1989) Unofficial Release, EMI USA [MP3|320 Kbps] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shot Gun Sally
-02. Nine Lives (Save Me)
-03. Her Monkey
-04. Whip It Out(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B3B68D8C1F918150CFA466B515D013F4D29AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585261   (222682) от 21.10.2022
 
 Voodoo Skin - 2 Albums (2019-2022) [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -639,28 +610,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653235   (205591) от 15.08.2023
+###  Публикация: 1629289   (199333) от 26.04.2023
 
-Alter Ego - Old But Gold (2023) [MP3|320 Kbps] <Hard Rock>
+VA - Bravo Hits Party Rock (2023) 3CD, Compilation, Digipack [MP3|320 Kbps] <Hard Rock, Alternative, Heavy Metal, Britpop>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205591.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I am your rock n roll savior (04:23)
- 02. Get high (04:08)
- 03. If I could (03:34)
- 04. Rock and roll ride (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:15
+CD1
+01. Queen - Another One Bites The Dust
+02. KISS - I Was Made For Lovin' You
+03. ZZ Top - La Grange (2005 Remaster)(   Читать дальше...   )Жанр: Hard Rock, Alternative, Heavy Metal, BritpopПродолжительность: 01:26:08 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58642AAA9900493D1037D71A5B39F002991AFC4C
+magnet:?xt=urn:btih:F2F347E472172D81B449596A272C6181CE2ECB4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654671   (204928) от 22.08.2023
+###  Публикация: 1657817   (190558) от 10.09.2023
 
-Seven Ravens - After The Storm (2023) [MP3|320 Kbps] <Hard & Heavy>
+Gary Del Vecchio - Buzzin (2023) [MP3|320 Kbps] <Proto Hard, Psych, Prog, Garage, 60-70's>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204928.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deja Vu (04:59)
- 02. Letting Go (05:13)
- 03. Feels Like Home (05:24)
- 04. Nevermore (05:29)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:05:00
+01 - Buzzin [00:03:11]
+02 - Head On [00:03:56]
+03 - What You See Is What You Get [00:04:21]
+04 - Laid Back [00:03:06](   Читать дальше...   )Жанр: Proto Hard, Psych, Prog, Garage, 60-70'sПродолжительность: 00:40:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2488B94D7E65F8860DF4E4650C463DB4A436205A
+magnet:?xt=urn:btih:AEEF905177324D9B1F0A2D14A18448A0F48906FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,28 +668,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654674   (204923) от 22.08.2023
+###  Публикация: 1589930   (189328) от 12.11.2022
 
-Mountain Of Power - Volume Five (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+Guns N' Roses - Use Your Illusion (1991) 4CD, Super Deluxe, 2022, Guns N Roses P&D [MP3|320 Kbps] <Hard Glam Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204923.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Lady - All Night Long (06:13) (SCORPIONS)
- 02. Rock It To The Stars - Boxful Of Love (06:22) (DRIVER)
- 03. Hard On Me - We Got The Power (06:55) (STRIKER)
- 04. Mirrors (04:57) (ANGEL)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:17:52
+01. Nightrain (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:05:26]
+02. Mr. Brownstone (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:05:41]
+03. Live And Let Die (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:03:50]
+04. Attitude (Live In Las Vegas, Thomas & Mack Center - January 25, 1992) [00:02:01](   Читать дальше...   )Жанр: Hard Glam RockПродолжительность: 4 CD, 07:20:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:101F54A29A27F61BFDBE12E73E993CE7DB8C9190
+magnet:?xt=urn:btih:0519B7C12E14F4B727A27042302ACB317782D44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -726,28 +697,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656629   (203086) от 31.08.2023
+###  Публикация: 1591444   (186805) от 19.11.2022
 
-Sun Dweller - High Ride (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Grunge, Bluesy>
+Kiss - Creatures Of The Night (1982) 5CD, 40th Anniversary / Super Deluxe, Remastered, 2022, UMe Direct 2 [MP3|320 Kbps] <Glam Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203086.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_186805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Self Medicate [00:01:11]
-02 - High Ride [00:05:16]
-03 - A New Peak [00:06:04]
-04 - Philophobia [00:04:31](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Grunge, BluesyПродолжительность: 00:31:18
+01. Paul's Love Gun Rap (Live In Rockford, Illinois 12/31/82) [00:02:24]
+02. Love Gun (Live In Rockford, Illinois 12/31/82) [00:04:08]
+03. Paul's Guitar Solo (Live In Rockford, Illinois 12/31/82) [00:02:41]
+04. Black Diamond (Live In Houston, Texas 3/10/83) [00:06:27](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 5 CD, 05:23:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:665CA676CBD3AA9BB3D4AA4430A6EC2E84B95D22
+magnet:?xt=urn:btih:38DBBE43BD2D40527CCB88D314600DA43CADF560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664904   (183157) от 29.09.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Screamin' At The Sky [00:03:24]
+02-Nervous [00:03:15]
+03-When The Pain Comes [00:03:24]
+04-Out Of Pocket [00:03:07](   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD11E935CFDFEB5B2613FC5B5A4002846DB60F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

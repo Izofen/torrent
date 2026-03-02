@@ -1,3 +1,29 @@
+###  Публикация: 1825396   (136763) от 17.10.2025
+
+Шрифты - Creative Market - Mamylinus | Beautiful Calligraphy - 291430974 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mamylinus - красивый шрифт от Denustudios для ваших творческих задач.Формат: OTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05BF6288AFB5852339EAB2F0254D85E687E1D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825407   (136760) от 17.10.2025
 
 Звуковые библиотеки - The Sound of Machines - Monotron Madness [AIF]
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1598455003962997564EAEC6CE83755D111FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436408   (136650) от 31.12.2020
-
-Растровый клипарт - Charming female operators in headphones stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательные женщины-операторы, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4673x7000-8000x8000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE373FA1CEE607095119CCC4F57E28BFD146C8AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

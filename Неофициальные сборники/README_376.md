@@ -1,3 +1,212 @@
+###  Публикация: 1050961   (534652) от 10.09.2016
+
+VA - Танцевальная хитовая дискотека. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534652.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Good Lyfe & Vermosa Feat. Brkln - After Midnight
+002. Florrie - Real Love
+003. Robin Schulz & M-22 Feat. Aleesia - Love Me Loud
+004. Felix Jaehn Feat. Polina - Book Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050978   (534651) от 10.09.2016
+
+VA - Музыкальное Наслаждение Радио Шансон (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Трунов - Посидели-Пошумели
+002. Елена Ваенга - Невеста
+003. Жанна Прохорихина - Мастер Ао Наладке
+004. Александр Новиков - Давай Пиши(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F6BFCB8465849AF06AEAC7AA8B02CBC1A6A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532921   (534633) от 09.08.2012
+
+VA - Mega Dance Party Summer Vol.8 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534633.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 02 Without Ass (Club Mix) (5:09)
+2. Adele vs. Mike Candys & Jack Holiday - Set Fire To The Rain (Sir Art & Vivi Dj Mashup) (5:04)
+3. Anton Neumark - Benghazi (Original Mix) (9:22)
+4. Anton Neumark - Underground (Inspired Souls Remix Russian Version) (6:48)
+5. Anton Neumark, Johnny Beast - We Rock The Party (Techno Logic Remix) (5:17)
+6. Bodybangers feat. Gerald G - Set The Night On Fire (Club Mix) (5:06)
+7. Bodybangers feat. Gerald G - Set The Night On Fire (Original Mix) (5:06)
+8. Boogie Pimps - Knocking feat Darryl Pandy (Album Mix) Housesession Records (5:07)
+9. brighi feat snoop dogg-play me like a violin (radio killer extended remix) (5:05)
+10. Bryan Bax with Inusa Dawuda - What's Wrong (Stereoshock & Nas Luke WMC 2012 Vocal Remix) (5:08)Жанр: Dance, ClubПродолжительность: 04:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3549D513FC31535D6CEAF1231AF7ED718E47EBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050983   (534558) от 10.09.2016
+
+VA - Beatport Top 100 Indie Dance / Nu Disco August (2016) [MP3|320 Kbps] <Indie Dance, Nu Disco, Disco, G-House, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534558.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mart - Upside Down (Original Mix)
+002. JL & Afterman - Could You Be Loved (Club Mix)
+003. Younotus - Jump On It (Original Mix)
+004. Yvvan Back - Pick Up The Pieces (Club Mix)(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, Disco, G-House, ElectronicaПродолжительность: 10:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04ACE1A20E6B5163628CA7D084B226890382E76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050944   (534556) от 10.09.2016
+
+VA - Мега хиты хорошего настроения 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534556.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Major Lazer Feat. Justin Bieber & Mo - Cold Water
+002. Dido & Dj Mrid - Без Тебя
+003. Uppermost Feat. Jessica Gabrielle - Whisper
+004. Анжелика Пушнова - Всей Моей Нежности(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAE5C412B761429FF52E333AF2EA081C552E479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312244   (534488) от 03.07.2019
+
+VA - House Garden Music (2019) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534488.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris And Rag'n'bone Man - Giant
+002. Major Lover - Laid Back (Club Mix)
+003. Soul Fortune - Touch
+004. Nacim Ladj - Magic Mushrooms (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98F54C11541EF06FCA888470DC6B7883C8A2D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312255   (534388) от 03.07.2019
+
+VA - Erozion: Metal Collection (2019) 2CD [MP3|320 Kbps] <Death, Black Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534388.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+001. Autovoid Redemption - My Choice
+002. Brainoil - Preface To Madness
+003. Leo - Hold The Line(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 15:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773F4A39DD32FA328CF62B22491EEAEB7864C570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312303   (534293) от 03.07.2019
 
 VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock, Alternative>
@@ -548,209 +757,6 @@ VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051502   (532350) от 11.09.2016
-
-VA - Guitar Collection 7 (2016) [MP3|320 Kbps] <Blues Rock, Acoustic, Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lance Keltner - The Battle Of Lafayette     (04:30)
-02. Mad Mav - Duel Of The Queens     (05:15)
-03. The Jancee Pornick Casino - Brighton Beach     (03:02)
-04. Mad Mav - Cell O' Grief     (05:27)(   Читать дальше...   )Жанр: Blues Rock, Acoustic, MetalПродолжительность: 05:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7742D6454D9B55DC97966A91ABA15AFD72569113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558184   (531877) от 20.06.2022
-
-VA - В машине с музыкой Vol.272 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleni Foureira - Ohi
-02. Burito - Sugar
-03. Katya Tu - Доверяй
-04. Akon  - Right Now (Dj. Safiter Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:31:33 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02474D578A456233374F4CDCB80AC1282712D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558251   (531872) от 20.06.2022
-
-VA - June EDC Radio: Exclusive Mixed (2022) [MP3|320 Kbps] <EDC, Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rеnе Rоdrigеzz - Thе Stоrу Abоut Lifе
-002. Lvа - Whеn In Iроh
-003. Cоаrbу - If Yоu Wаnt Mе
-004. Dоn Diаblо - Thrоugh Thе Stоrm(   Читать дальше...   )Жанр: EDC, Dance, Club, HouseПродолжительность: 11:25:10 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DC1E0EC943AAD2ED503E7C19CAE78F49D0DCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558192   (531870) от 20.06.2022
-
-VA - В машине с музыкой Vol.274 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Hayes  - Poison Blood
-02. Indiboy  - Девочка - Драма
-03. Sickotoy - Said And Done (Vadim Adamov & Hardphol Radio Edit)
-04. Tiane  - Иллюзион(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:34:57 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD6697258EF69F382FAD7D02085ECBF95C3250A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558179   (531868) от 20.06.2022
-
-VA - В машине с музыкой Vol.271 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noris - Старшеклассница
-02. Lucas Estrada Feat. & Stevie Appleton & Solar State - Free Falling Love
-03. Астемир Апанасов  - Я Устал
-04. Ivshina Feat. & Katyaasun Zheez - Всё Переживём (Remix)(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:29:37 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A934B68B60C4CF6C260C68ADFB29B9C90CA369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558268   (531764) от 20.06.2022
-
-VA - Music News vol.196 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jennifer Lopez feat. French Montana - Same Girl (Halftime Remix) (04:21)
- 002. Akmal' - Друг (02:40)
- 003. Alex Adair - Dreams (03:17)
- 004. Alex D’Rosso feat. Vernon & Charming Horses & Rufus Palma - Crazy (02:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2456C76A950C75C34A373FEA4C114C07E98A5330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926701   (531727) от 11.08.2015
-
-VA - Comfortable Chillout & Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cesar Martinez Ensemble - Abaco
-02. Mario Pinosa Trio - La Fuente Funk
-03. Aqua Mundi - Simple Ou Double
-04. Shivana Faction - Refined(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ACA32FF6E6083E53CF5F5D07A0F14B53B6B700
 ```
 
 https://mybot314.ru/tekegram_catalog/

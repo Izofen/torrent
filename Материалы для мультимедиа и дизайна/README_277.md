@@ -1,3 +1,31 @@
+###  Публикация: 1186250   (287960) от 24.11.2017
+
+Векторный клипарт - Christmas Shiny Backgrounds [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_287960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рождественские Блестящие Фоны
+4 AI+TIFFФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B580D66E845D44780FEB4085EA39F1C89C788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186291   (287953) от 24.11.2017
 
 Растровый клипарт - Fotolia - Beautiful young woman in wintertime outdoor [JPG]
@@ -652,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D04FFCA40293E17C401FBC5A5E99CA094E488A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263886   (284202) от 21.11.2018
-
-Векторный клипарт - Fotolia - Book carpet abstract template log example flyer banner [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Абстрактные шаблоны
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63134CEAE0876487FC134844CAECB4A17FCF46E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1347496   (139361) от 30.12.2019
+
+Рыцари / Terra X - Rätsel alter Weltkulturen: Die Welt der Ritter (2014) IPTVRip [H.264] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку, они окончательно не вымерли, они живут и по сей день в кино, видеоиграх и фестивалях - рыцари. Как они пережили заговоры, распри и осады? Как они побеждали в поединках или в крупных сражениях? Зачем они сражались в турнирах? И как они вошли в легенды?Производство: Германия / Gruppe 5 Filmproduktion, Zweites Deutsches Fernsehen (ZDF), Osterreichischer Rundfunk (ORF)Жанр: Документальный, ИсторияРежиссер: Christian Feyerabend, Carsten Gutschmidt, Robert WiezorekАктеры: Till C. Hagen, Claudia Garnier, Karl-Heinz Gottert, Lucia Edwards, Herbert HeisslerПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 3 x ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3590384C713E5E873C337AA56B96A28F12F3F429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520915   (139114) от 30.12.2021
 
 Свадьба века / The Wedding of the Century (2021) Hybrid [H.265/2160p] [4K, HDR+, 10-bit, Dolby Vision]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4305EA9543DA9EF73E93522003528FCDA89339E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704233   (114399) от 04.03.2024
-
-Восход Османской империи / Rise of Empires: Ottoman (2020-2022) WEB-DL [H.264/1080p] (сезоны 1-2, серии 1-12 из 12) Jaskier
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Османский султан Мехмед II ведет эпическую кампанию по захвату Константинополя, столицы Византийской империи.Производство: США / Karga Seven Pictures, Netflix Studios, STX EntertainmentЖанр: документальный, драма, военный, историяРежиссер: Эмре СахинАктеры: Cem Yigit Uzümoglu, Туба Бюйюкюстюн, Alp Ilkman, Усхан Чакыр, Чарльз Дэнс, Томмазо Базили, Селим Байрактар, Биркан Сокуллу, Осман Сонант, Дамла СонмезПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738BAEF2CE6D5F08A5FAD8966B831EE0F872DB7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

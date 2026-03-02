@@ -1,3 +1,118 @@
+###  Публикация: 1502072   (830215) от 13.10.2021
+
+Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French Hip-Hop, Chillwave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premier (2:22)
+ 02. Neige (2:15)
+ 03. Loues (2:19)
+ 04. Magic berber (feat. Merwan) (3:45)(   Читать дальше...   )Жанр: Alternative Pop, French Hip-Hop, ChillwaveПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFA2E17F47FD82D03C26FBDD8BCD5A1948B090D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381177   (829843) от 05.05.2020
+
+Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 1960: Theme song - Shop around - He will break your heart - Stay - Chain gang - Cathy's clown - It's now or never - Let the little girl dance (9:12)
+02. Medley 1961: Please Mr. postman - Some kind of wonderful - Will you love me tomorrow - Raindrops - Ya ya - Mother-in-law - A hundred pounds of clay (7:01)
+03. Medley 1962: Zip a dee doo dah - Twist and (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DD20058D1C6E5507C32CF46C3D839AEF3D916F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381187   (829753) от 05.05.2020
+
+VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Montez - Lets Dance (2:08)
+02. Mungo Jerry - In the Summertime (3:28)
+03. Safaris - Wipe Out (2:16)
+04. Rubettes - I Can Do It (3:14)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CEBFA9805DDE543556672D021B7E84E8B58577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114835   (829704) от 16.03.2017
+
+Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. African Bood
+02. Fly With Me
+03. It Ain't Easy
+04. Ain't Gonna Feel(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13810043CC0B4A9C8AB816016ABA9E0F21005B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381200   (829668) от 05.05.2020
 
 VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, Italo-Disco>
@@ -629,123 +744,6 @@ Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008191   (817590) от 17.04.2016
-
-VA - Nostalgie - The Summer Feeling (2015) 5CD [FLAC|Lossless|tracks] <Pop, Dance, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaoma - Lambada    03:25
-02. Gusttavo Lima - Balada    03:23
-03. Paradisio - Bailando    03:47
-04. Righeira - Vamos A La Playa    03:37(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 06:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC50D3EECFFE276F1E886835B8722030E782ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882819   (817222) от 29.03.2015
-
-VA - Pure... Summer (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Dance, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не так уж много осталось до летних, жарких денёчков. Самое время вспомнить про музыкальное сопровождение летних дней.
-Смело врубайте этот бокссет и наслаждайтесь.CD1:
-01. Shakira featuring Wyclef Jean - Hips Don't Lie  (3:39)
-02. Gipsy Kings - Bamboleo  (3:24)
-03. Los Del Rio - Macarena  (3:52)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493CD75EAD08BB85B35227B99F10D0D53C841E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197074   (815681) от 07.01.2018
-
-VA - Glam Rock Party Supermix (1998) [FLAC|Lossless|image + .cue] <Glam, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hello Hello, I'm Back Again? / I'm the Leader of the Gang / Glisten Yeah / Rock and Roll / I Didn't Know I Loved You / Do You Wanna Touch Me / I Love You Love Me
-02.Blockbuster! / Teenage Rampage / Wig-Wam Bam / The Ballroom Blitz / Hell Raiser / Fox on the Run
-03.Daytona Demon / Can the Can / Devil Gate Drive / 48 Crash
-04.You, You,You / Red Dress / My Coo Ca (   Читать дальше...   )Жанр: Glam, Cover versionПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4814C5188E5CFE840283918901FD64397924BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843484   (815108) от 07.01.2018
-
-Adriano Celentano - Golden Hits (2013) 3CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buonasera Signorina (2:47)
-02. Non Esiste L'Amor (2:14)
-03. Blue Jeans Rock (2:24)
-04. Ciao Ti Diro (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4005E4ECC95F6FB8404CDF117335501FEF5D56E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

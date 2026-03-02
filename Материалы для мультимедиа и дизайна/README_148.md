@@ -1,3 +1,29 @@
+###  Публикация: 1223718   (669619) от 07.05.2018
+
+Текстуры - Dribbble - Deluxe Marble Textures - 4063404 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08530B29EDFB2FB4BDD49F75640591D93F767DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223641   (669618) от 07.05.2018
 
 Текстуры - Creative Market - Marble paint textures set - 1642971 [JPG, PDF]
@@ -651,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:898CA08C2FF8542A30FACAA8C018EF97B8F33441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224310   (667123) от 09.05.2018
-
-Текстуры - Creative Market - 20 Marble Overlay Textures - 968444 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры для наложения.
-Автор: Texture Hunters.Формат: PNGРазрешение файлов: 4500 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302356BD7F1C4B05F0263F7626A33F393BD098CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

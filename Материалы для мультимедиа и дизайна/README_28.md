@@ -1,3 +1,30 @@
+###  Публикация: 1351230   (1002391) от 09.01.2020
+
+3D модели -  Daz 3D - Leisa 8 Pro Bundle - 64959 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Leisa 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40517042B130C7C40AEE9A27E6E88B5ADFE5183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351176   (1002387) от 09.01.2020
 
 3D модели - Daz 3D - dForce Rebel Yell Outfit Textures - 62723 [DUF]
@@ -650,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E4C992E54464FCECBCB7C379863299A6659FF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488623   (1001735) от 12.08.2021
-
-Оверлеи - Design Bundles - Pink Angel Wing overlay & Photoshop overlay - 1132966 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наложение Pink Angel Wing для Photoshop: с наложениями PNG крыльями феи, косплей Fantasy Wings.Формат: PNGРазрешение файлов: 1209x2963-8688x4878
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A93A3F62B72FA28CE7A9E3DE8259692FD604643
 ```
 
 https://mybot314.ru/tekegram_catalog/

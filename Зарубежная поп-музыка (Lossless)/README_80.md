@@ -1,3 +1,119 @@
+###  Публикация: 1598012   (164057) от 17.12.2022
+
+Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Augenblick Landebahn (4:28)
+02. Sommerwind (2:35)
+03. Meine Größte Schwäche (3:40)
+04. Melatonin (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7FE6DEDA355ACA1599A7DBC01385A84D48751A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346486   (163932) от 19.12.2019
+
+Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pan Malenczuk (2:59)
+02. Czlowiek z wiekiem do trumny (3:49)
+03. Edek Leszczyk (3:03)
+04. Mani Mani (3:30)(   Читать дальше...   )Жанр: Pop/Rock, BalladПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517362   (162854) от 15.12.2021
+
+Rod Stewart - The Tears of Hercules (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (03:58)
+02. Gabriella (03:33)
+03. All My Days (03:37)
+04. Some Kind Of Wonderful (03:02)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E980F98115268D75DA8FDE1FFE0BE6B6B31740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598520   (162402) от 19.12.2022
+
+Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Dance With Somebody (Who Loves Me)
+02. Don't Cry For Me
+03. Higher Love
+04. The Greatest Love Of All(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433163   (162298) от 19.12.2020
 
 Ramon Roselly - Herzenssache (Platin Edition) (2020) [FLAC|Lossless|image + .cue] <Pop, Schlager>
@@ -635,119 +751,6 @@ VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B73783130DE5C37F89E21875BC9538E9ECBA7409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194111   (155453) от 25.12.2017
-
-Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingin' With My Eyes Closed 03:33
-02. Home Now 03:22
-03. Light Of My Life 03:37
-04. Poor Me 03:21(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C5AA90ECD5CA64726FBF431E4EAB777FDB49BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346907   (155359) от 21.12.2019
-
-VA - Het Beste Uit De Q Top 1000: Editie (2019), 6CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Mayer - New Light (03:35)
-02. Kate Bush - Wuthering Heights (04:28)
-03. Mariah Carey - Hero (04:19)
-04. Ricky Martin - Livin' La Vida Loca (04:03)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12046D204A257C3B1523413FFA4000A7D9785758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271017   (154538) от 21.12.2018
-
-Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Don't Talk To Jessica (3:43)
-02. Please Don't Talk To Jessica (Remix) (5:45)
-03. Dancing With Somebody (4:15)Жанр: Pop, EurodanceПродолжительность: 00:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6402C45945644A363B0566FAE15E5AF4BB824B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194657   (154351) от 26.12.2017
-
-Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer's Here
-02. PuppyЖанр: PopПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52D372E6EC232CB6B36F1F872C8CFFD2B80AC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

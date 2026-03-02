@@ -1,3 +1,61 @@
+###  Публикация: 1369315   (903495) от 23.03.2020
+
+Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Shook Me All Night Long
+02. T.N.T.
+03. Dirty Deeds Done Dirt Cheap
+04. Highway To Hell(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112383708EE5FB698940A3E6A1FACD62E6033316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369345   (903129) от 23.03.2020
+
+Deep Purple - Best Of (2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke On The Water
+02. Hush
+03. Woman From Tokyo
+04. Knocking At Your Back Door(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6454D8FB913741F1C87713645FF6E5E9465114B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992250   (902777) от 01.03.2016
 
 The Champs - 25 All Time Greatest Recordings (2000) [MP3|320 кб/с] <Rock, Instrumental>
@@ -688,64 +746,6 @@ Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC996F1F8F90BFED4550E06BFBEFB989DF73C156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372134   (887262) от 02.04.2020
-
-Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подих Змія (03:21)
-02. Паранормальні (04:00)
-03. Ворожіння (03:42)
-04. Сонце Небо (03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E467E237054429E279B4153BC7C08E1CA058BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995210   (886212) от 10.03.2016
-
-VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Presley – Jailhouse Rock
-02. The Yardbirds – For your Love
-03. The Rolling Stones – Honky Tonk Women
-04. The Rolling Stones – (I Can’t Get No) Satisfaction(   Читать дальше...   )Жанр: Rock, MashupПродолжительность: 00:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961EA22123F766D38BE196ADE3CDC41972D4FBF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,236 @@
+###  Публикация: 1824620   (136904) от 16.10.2025
+
+Mr Salama - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Like to Live
+ 02 - Dance Away
+ 03 - I Lost You
+ 04 - Moscow(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5FA82E36EF21425FE1F0E14124C2AD1AC2846E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436265   (136669) от 31.12.2020
+
+VA - Music News vol.60 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наташа Королева & Тарзан - Гори Гори (02:46)
+ 02. 7Б - Спасибо, Космос! (03:52)
+ 03. Afbeavers - Жми Кулак! (04:15)
+ 04. ALIB - Оставь меня (03:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4203D88EDAD4981F06A73C3C5E363A0D78473D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591197   (136287) от 20.12.2012
+
+VA - Cavalier's Club Volume One (2012) [MP3|320 кб/с]<Chillout, House, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yonderboi - Amor
+02. Moodorama - Into The Sunrise
+03. Elastic Field - Blow In Your Mind
+04. Nor Elle - Forgotten Fields
+05. Koala - Floating Pillow - Alternative Mix
+06. Ohm-G - One
+07. Acoustique Parfum - Bus Ride
+08. DJ Nob Tee aka Dugsoul - Keep On - Natural Soul Mix
+09. Yonderboi - I Am Cgi
+10. Ohm-G - Island Dream(   Читать дальше...   )Жанр: Chillout, House, DowntempoПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2B86C640EEA91F250BAACFD54689CC22E42D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591285   (136281) от 20.12.2012
+
+VA - The Club music (2012) [MP3|256 кб/с]<Сlub>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TranzLift - When A Dream Comes True (Original Mix)
+ 02. Modana & Carlprit - Hot Spot (Sasha Dith Remix Edit
+ 03. Tom Reason - Come On (Original Mix)
+ 04. Sudetis - Plastflakes (Original Mix)
+ 05. NuroGL - GHT (Original Mix)
+ 06. ATB with Dash Berlin - Apollo Road (Original Mix)
+ 07. Richard Grey - Volume At Last (Original Mix)
+ 08. The Weeknd - Twenty Eight (The SoniXx Remix)
+ 09. Kevin Carvallo - Set U Free (Radio Edit)
+ 10. Fidel Wicked - Forever (Radio Edit)(   Читать дальше...   )Жанр: СlubПродолжительность: 04:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B77952F92BB9ABB9AC3C20031C058AD3C889464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591565   (136264) от 20.12.2012
+
+VA - Exotic Wafture 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nash & Pepper feat. Rogue Raven - Am I Wrong (Mike Foyle Remix)
+02. Kyau & Albert - A Night Like This (Original Mix)
+03. Gareth Emery - Concrete Angel (Original Mix)
+04. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+05. Activa feat. Cat Martin - My Way Out (Sonic Element Remix)
+06. Cerf, Mitiska & Jaren - Another World (Shogun Remix)
+07. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix)
+08. Jordan Suckley feat. Leanne Thomas - Thunder (Original Mix)
+09. Andrew Rayel - Believe (Original Mix)
+10. Marcel Woods - Everything (Marcel Woods Treatment)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 06:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4BC6E7C5F1CB3050E1CA76901112294431E4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592062   (136243) от 20.12.2012
+
+VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Grand And Glazunov feat.Ирина Кулькова - Убегаю (Radio Mix)
+02. Dj Nikita Noskow feat Marlena - Время Настало (Radio Edit)
+03. Dj Onegin feat. Олеся Астапова - Тайна
+04. Dj Smash feat. Достучаться До Небес - Мерси Баку
+05. Gypsy - Джинсы
+06. Larson - Прости Меня Если Сможешь
+07. Lissa Wassabi - Громче
+08. MC Zali feat. Кира Лондон - Далеко
+09. MC Zali feat. Кира Лондон - Мальчик Мой
+10. Misty - Я Верю В Твою ЛюбовьЖанр: Pop, DanceПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590893   (136199) от 20.12.2012
+
+VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136199.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ady - Ai (CruciA Remix)
+2. Alexx Rave feat. Kristin Loyen - Боль В Душе (B.Exp Remix)
+3. Anggun - Buy Me Happiness (Zette Remix)
+4. Brainbug - Rain (Assault Terror Remix)
+5. Childish Gambino - Heartbeat (Proper Villains Remix)
+6. Clint Mansell - Requiem For a Dream (Discotronique Remix)
+7. Clint Mansell - Requiem For A Dream (Fast Remix)
+8. Deadmau5 - Raise Your Weapon (Noisia Remix)
+9. Diverse feat. Olly B - Proud Feeling
+10. Ed Sheeran - This (Dub Rocca Remix)(   Читать дальше...   )Жанр: Dub Step/Drum'n'BassПродолжительность: 02:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591825   (136197) от 20.12.2012
 
 VA-New Age Style - Lounge Cafe (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Easy Listening>
@@ -638,233 +871,6 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679874   (134877) от 27.11.2023
-
-VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scott Sawyer - Passing By [07:45]
-002. Brass Energy - A Walk In The Park [02:55]
-003. Jonah Yano - Always [05:23]
-004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679826   (134867) от 27.11.2023
-
-VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albin Lee Meldau Feat. & Jack Savoretti - Hold Your Head Up (03:08)
-02. Omer Balik - You Lost Me (04:05)
-03. Matvey Emerson Feat. & Able Faces - Speed of Light (03:00)
-04. Карина Догова - К Чёрту Love Story (03:56)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593960   (134864) от 24.12.2012
-
-VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control 98 - Super Sax
-02. Francesco Demegni - Don't Forget
-03. Continental Groove - Bawls of Prayer
-04. Montecarlo Dream - Del
-05. P Project - Modart
-06. Paul V - Cutdown
-07. Double T Project - Behind the Mirror
-08. Shin Elto - Deep Mundo
-09. Lounge Dam - Cap
-10. DJ Ambient P - Sweet and Sexy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592721   (134853) от 24.12.2012
-
-VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Since Yesterday
-02. Lazy Hammock - Was I Anyone to You
-03. Lemongrass - Ton Parfum
-04. Michiko - Fly Away With You
-05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
-06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
-07. Claude Chagall - Balearic Waves - Christmas Attack
-08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
-09. Marga Sol - Tocca Me
-10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593594   (134842) от 24.12.2012
-
-VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La Cream - Say Goodbye
-002. Big Time Rush - Beautiful Christmas
-003. Shakira ft. Pitbull - Get It Started
-004. Shiller & D.Vandi - Sunday
-005. Michel Delpech - Pour Un Flirt
-006. Delerium – Fallen featuring Rani
-007. Kelly Clarkson - Stronger (What Doesn't Kill You)
-008. Armin Van Buuren And Paul Van Dyk Pres DJs United - Remember Love (Original Mix)
-009. Ian Carey & Rosette (Feat. Timbaland & Brasco) - Amnesia
-010. Chris Rea - Driving Home for Christmas (Keljet Merry Christmas Remix)(   Читать дальше...   )Жанр: РорПродолжительность: 07:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BC83B85C68B1189C59EA30E5E8CF6A728188DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593896   (134832) от 24.12.2012
-
-VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инфинити - Нежно [03:40]
-02. Medina feat. Svenstrup & Vendelboe - Junkie [03:49]
-03. Нюша - Это Новый Год [03:37]
-04. Kesha - All That Matters (The Beautiful Life) [03:36]
-05. Банд'Эрос - Караоке [03:43]
-06. Alex Ferrari - Danca Do DJ (Radio Edit) [03:24]
-07. Dan Balan - Lonely [03:11]
-08. Градусы - Я Всегда Помню О Главном [03:30]
-09. Sean Kingston feat. Cher Lloyd - Rum And Raybans (Vice Radio Edit) [03:43]
-10. Misty - Я Верю В Твою Любовь [03:40]Жанр: Pop, Club, DanceПродолжительность: 04:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679752   (134831) от 27.11.2023
-
-AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Night City
-02. Juliette
-03. Starfighter
-04. From Dusk Till Dawn(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BC18B1EA3031BC80AE7EC2F02A7E81742311B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

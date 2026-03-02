@@ -1,3 +1,206 @@
+###  Публикация: 1186530   (285858) от 25.11.2017
+
+VA - По волне моей памяти 2: Том10 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Машина Времени  -  Наш Дом 3:37
+02.  Воскресение  -  Я сам из тех 3:13
+03.  Цветы  -  Честно 3:49
+04.  Форум  -  Встречайте новый год (дуэт с М.Капуро) 3:50(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D64218D28E9B8C95CC017135AE088D10982FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691916   (285820) от 10.12.2014
+
+VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dennis Sheperd & Talla 2xlc - Two Worlds (Original Mix)
+002. Markus Schulz vs. Ferry Corsten - Loops & Tings (Extended Mix)
+003. Chris Schweizer - Ultra (Original Mix)
+004. W&W - Invasion (Asot 550 Anthem) (Club Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 41:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6113D70AC84C7D1D98BA1C8D9EB1543C85D494A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963857   (285781) от 09.12.2015
+
+VA - Sweet Soul Music (2015) [MP3|320 кб/с]<Soul, Rnb, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285781.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BobWomack - How Could You Break My Heart
+002. Jacksoul - Still Believe in Love
+003. The Jacksons - Can You Feel It (Single Version)
+004. John Legend - She Don't Have to Know(   Читать дальше...   )Жанр: Soul, Rnb, FunkПродолжительность: 09:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5C5860C338C0EFA57A2C7846676879A7AC5A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080942   (285718) от 08.12.2016
+
+VA - Blues Forever vol.65 - vol.68 (2016) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Joey Gilmore Band - Night Time Is The Right Time
+02. Rossington - Shame On Me
+03. Karise Eden - Back To Black
+04. Patric Williams - Little Wing(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A834E8A0793D5A8C683D6E74D2DE501B5A91C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963749   (285474) от 09.12.2015
+
+VA - Сборник Шансона: Вавилон Обетованный (2015) [MP3|192-320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285474.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Куренков - Ангел мой
+002. М. и И. Круг - Тебе моя последняя любовь
+003. Павел Павлецов - Крылья
+004. Аркадий Дар - Женщина моя(   Читать дальше...   )Жанр: ШансонПродолжительность: 10:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95261CD93B72B3601C6844DEAFC51B6F090CFE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263646   (285431) от 20.11.2018
+
+VA - Deep House Collection Vol.190 (2018) [MP3|~ 256 - 320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 22 Weeks  - Stop Kidding  (Original Mix)
+002. 84Bit - Noe (Original Mix)
+003. A.M.R - Silver Lining  (Intro Mix)
+004. A.M.R - Silver Lining  (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2A0E236BB4E88F9E4CCF653579D33A185B45E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080754   (285395) от 08.12.2016
+
+VA - Record Russian Mix Top 100 December (07.12.) (2016) [MP3|256-320 Kbps] <Club House, Pop-Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2NICA & Maxx Play ft Aristina - Shake It (Diaz & Taspin Remix) 4:49
+002.2NICA & Maxx Play ft Aristina - Shake It (Original) 5:57
+003.4bel vs Croatia Squad - No Love (DJ Tol-Life Radio Mash-Up) 3:13
+004.50 Cent x Anton Liss - Holy Technology (Alex Milano & Yastreb Mashup) 3:39(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro HouseПродолжительность: 07:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC54D7E6E1FA62545A9181EB31D894EA3F398ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 733724   (285392) от 13.12.2013
 
 Lime - 25 Best Songs (2012) [MP3|~245 кб/с]<Disco, Hi-Nrg>
@@ -542,209 +745,6 @@ VA - 60 minutes. Old School Dance Music vol.4 (mixed by Dj V) (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44100433AE67DEA3AEDC9E9499FE30864C5A2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964118   (284135) от 10.12.2015
-
-VA - Christmas Escapades (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Life - G-Pal
-02. Love To Feel You - Calar Del Sole
-03. Tech River (Zoohacker Minimatic Chill Remake) - The Lushlife Project
-04. A Barcode - Soda Inc.(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5075540277EAD770656EBC118818D9E02417213D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964152   (284117) от 10.12.2015
-
-VA - Ethno Dub [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Ethno Dub>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaksa - Colony [04:37]
-02. Gantz - Rising [06:17]
-03. Hathor - Fluoroscope [06:30]
-04. El Mahdy Jr. - Lost Bridge [03:28](   Читать дальше...   )Жанр: Ethno DubПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D136082C6CF37A0EE5EC08CF4F8550149A1AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186758   (284046) от 26.11.2017
-
-VA - По волне моей памяти 2: Том13 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Машина времени  -  Он был старшее её 3:38
-02.  Альфа  -  Звезды нам светят 4:37
-03.  Воскресенье  -  Один взгляд назад 3:51
-04.  Лейся песня  -  Как мы любили 4:01(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA325078B7553C4696B73FE2BB532224C633E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964027   (283944) от 10.12.2015
-
-VA - Revolution Nu-disco (2015) [MP3|320 кб/с]<House, Disco,Indie Dance,Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michiel van Zundert - Bite (04:13)
-02. Al Music - The Dancefloor (feat. Ali) (03:20)
-03. Jive Ass Sleepers - Come Closer (Vocal Mix) (02:27)
-04. Michiel van Zundert - Floating By (05:01)(   Читать дальше...   )Жанр: House, Disco,Indie Dance,Nu-DiscoПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07A622860DF1A666C0E3F6FEFC838559B9C4AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964305   (283782) от 10.12.2015
-
-VA - Пацаны - Ваще Ребята! vol.22 (2015) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283782.jpg" />
-</div>
-
-
-###  Подробнее
-
-16. DJ Jedy feat. Ilaila - За Плечи (Future House Remix).
-17. Anton Mayer feat. Denis Rublev - Бьет По Глазам.
-18. Серебро - Отпусти Меня.
-19. Марсу Нужны Любовники - Её глаза (Dj Denis Rublev & Dj Anton remix).(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A608C5BFA41C5A690531BC20DBFA9461CA42576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335639   (283479) от 04.11.2019
-
-VA - Кроссфит (2019) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.55 Escape - Forever (3:08)
-2.About:blanK - Haters Gonna Hate Us (3:42)
-3.Battle Beast - Out Of Control (3:47)
-4.Big Gigantic - Get On Up (Original Mix) (5:35)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, OtherПродолжительность: 04:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A058D785D8D542EB36CF54247946557E8C41D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981084   (283357) от 26.11.2017
-
-DJ Ikonnikov - Любовь-Морковь Min Mix 1-7 (2015-2017) [MP3|320 кб/с] <EuroDisco, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самира - Южная кровь
-02. Авет Маркарян - Гуляли с тобой и были вдвоем
-03. Пропаганда & Tres - Я Ухожу От Тебя
-04. Сергей Филиппов - Мечты сбываются(   Читать дальше...   )Жанр: EuroDisco, Pop, DanceПродолжительность: 04:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B7791C52CE7446B535B65BFBDC40DC03DA228F
 ```
 
 https://mybot314.ru/tekegram_catalog/

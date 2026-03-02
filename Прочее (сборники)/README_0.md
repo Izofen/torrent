@@ -1,3 +1,177 @@
+###  Публикация: 1850221   (1054262) от 26.01.2026
+
+VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ezra Jot - Bang O Bang (03:31)
+ 002. Little Rainy - Be Closer (03:01)
+ 003. Paul B.Ny - Clouds In My Coffee (02:05)
+ 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850373   (1054160) от 27.01.2026
+
+Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening, French Deep House, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bonne Nuit
+02 - Décembre
+03 - Disparu
+04 - Noël(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850035   (1053988) от 26.01.2026
+
+Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Wasn’t Wrong (I Was)
+02 - All Your Love
+03 - You Whispered Forever
+04 - Midnight Caress    After the Lights Go Low(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7328AC30A97698F808926E3B32DC411D50BFA8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850033   (1053987) от 26.01.2026
+
+VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Adex - Broken Code
+02 - Dova Music - Fading Winter Love
+03 - Hamidshax - You Are Gone
+04 - A-Sultan - Here I Am(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7210E10252E0BF7F2FDF09A01871730FE9AAFE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850032   (1053986) от 26.01.2026
+
+VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nezon - New Horizon
+02 - Lynoria - After You
+03 - Mr Salama - Lies
+04 - Nezon - Future Love(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751C9842A9A9EB8533A1BD6AB9EC1BD6802C0B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849531   (1053841) от 23.01.2026
+
+VA - Music News For Forum vol.158 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LOBODA - Малышка на миллион (02:49)
+ 002. 3Sonn - Подруги (02:10)
+ 003. 3umph - Ренегат (02:17)
+ 004. 71degrees - Кисти (01:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7870F21D302CAC5A2C4F55971B6B8E3345A886A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849001   (1053157) от 20.01.2026
 
 VA - Music News For Forum vol.157 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -571,180 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE4321B881A160A1291079E75031225E15E5BD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844360   (1049992) от 26.12.2025
-
-Chris Rea - This is Chris Rea (2025) [MP3|320 Kbps] <Blues, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing to Fear (9:05)
-02. It's All Gone (7:27)
-03. Auberge (7:17)
-04. Curse of the Traveller (6:23)(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 03:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D41B3F4BD2244B1907DA7DBA5E85052793081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844451   (1049948) от 26.12.2025
-
-VA - Music News For Forum vol.153 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049948.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AILygoria - Надо танцевать (03:35)
- 002. 4k - Раскатали-закатал (03:15)
- 003. 5opka - Слава Боссу (03:06)
- 004. 6adman - 6 am in iran (01:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22CBE80E96E94E7DA283F1FCF3B3B4BC8EC83EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843891   (1049779) от 23.12.2025
-
-VA - Муз. 2025 by Yuridar [MP3|320 Kbps] <Rock, Pop, Blues, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alibi Music - A Perfect Night
-02. Brent Amaker & The Rodeo - Man in Charge
-03. Charley Crockett - Run Horse Run
-04. Downriver - A Sad Story(   Читать дальше...   )Жанр: Rock, Pop, Country, OtherПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AC5D30AAEE0ACE7FF2E90324A06A4812A8A342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844089   (1049745) от 24.12.2025
-
-VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simona Nae - De Craciun (02:53)
- 002. ADDA - Flori In Decembrie (02:49)
- 003. AGAV - Avis De Tempete (02:30)
- 004. AGAYAN - Механизм (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D871D95B6BB3F944CB844DAA22C6DCF66ADE3F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843691   (1049545) от 21.12.2025
-
-Dakota Lane - Favorites Collection part 3 country music (2025) [MP3|320 Kbps] <country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Yeehaw Shenanigans
-02 - Country Nights Alive
-03 - Backroads and Memories
-04 - Hometown Heartbeat(   Читать дальше...   )Жанр: country, AiПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28299F1CA52927CCAA0E2FA0534F23AE2374E62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843301   (1049543) от 21.12.2025
-
-Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Time of My Life
-02 - The Present of the Past Dub (Version)
-03 - Sensual Flare Dub (Version)
-04 - Tease Me Even More(   Читать дальше...   )Жанр: Reggae, AiПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BCBC25CBCCF7DBABBF5BCDAEC9C8CBB04322EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

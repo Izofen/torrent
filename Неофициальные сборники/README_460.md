@@ -1,3 +1,212 @@
+###  Публикация: 1414335   (385516) от 08.10.2020
+
+VA - Hyperspace: Synth Space Electronic (2020) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385516.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2qimic - Ghost Ship
+002. Tommy Vega - Blind Justice
+003. Double Reaktion - Ignition
+004. Jopon - Forester(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 11:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC8713A74A89CFA7548A6C9210E6095CE8E5FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414339   (385511) от 08.10.2020
+
+VA - Beatport Dancehall: Sound Pack #186 (2020) [MP3|320 Kbps] <Dancehall, Riddim, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Princesse Lea - Pas À Pas
+002. Matieu - Antre Nou
+003. Toxxik - Macavelli
+004. Diligent Cityboss - Big Dream(   Читать дальше...   )Жанр: Dancehall, Riddim, ReggaetonПродолжительность: 08:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7A63C2600FA872690878918A4B35822C88962F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571851   (385471) от 08.11.2012
+
+VA - Армейский Superhit (2012) [MP3|128 кб/с]<Pop, Военная песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Михаил Шелег - Вперед офицеры
+002 Юрий Шевчук - Господь нас уважает
+003 Вячеслав Малежик - На войне
+004 Александр Маршал - Полем, полем, полем (Вещая судьба)
+005 Катя Огонек - За мальчиков России
+006 Эдуард Сычев - Купола
+007 Жорa Затонский - Дембельская
+008 Владимир Шамбуров - Цена награды
+009 Сергей Любавин - Солдаты удачи
+010 Александр Купаев - Письма из домаЖанр: Pop, Военная песняПродолжительность: 12:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20100F675B76D52523C5A2B608E7866E3A6974E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253223   (385339) от 08.10.2018
+
+VA - Trance Collection Vol.72 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385339.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Venetica feat. Paige Hammond - Second Chances (Original Mix) 7:18
+002. Ruslan Radriges feat. Cathy Burton - Hearts To Entwine (Jericho Frequency Extended Mix) 6:48
+003. DJ Dean & DJ T.H. feat. Hanna - Find A Road (Extended Mix) 5:49
+004. Giuseppe Ottaviani - Wait Till You Miss Me (OnAir Extended Mix) 5:41(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 10:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05594AC6D8ECC9BA4E1B8E78FD18A5F4D35AB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067814   (385222) от 30.10.2016
+
+VA - Beatport Trance Pack  (30.10) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myk Bee - Pressure Point (Extended Mix)  7:53
+02. Aly&Fila Ft. Denise Rivera - My Mind Is With You (Original Mix)  6:58
+03. Denis Kenzo & Angel Falls - Run Away  (Original mix)  6:06
+04. Omnia Ft. Christian Burns - All I See Is You (Extended Mix)  5:37(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 04:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1874F5C7646F83328F70D51BA31CA97CAEB943EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326415   (385213) от 20.09.2019
+
+VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ana Criado - No One Home
+002. B Selekt - Rhein
+003. D-Rhapsody - Rings Of Saturn
+004. Eelke Kleijn - Maschine 1.0(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 10:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F1BD5403879FA2DC23536A7007A845B4DA46C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326416   (385209) от 20.09.2019
+
+VA - Nothing To Lose (2019) [MP3|320 Kbps] <Indie, Pop, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385209.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kindata - Summertime
+002. Cheer Up - Unglued
+003. Josa Barck - Right Now Is New
+004. The Ting Tings - Estranged(   Читать дальше...   )Жанр: Indie, Pop, RockПродолжительность: 11:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDCEA8D3F58F1A39302BE16554F272D842C61DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326413   (385202) от 20.09.2019
 
 VA - Autumn Mood: Positive Session (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -587,209 +796,6 @@ VA - не Громкие новинки недели 84 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6CEEA547B028D91D4DD4B2ED370AC567A563C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414508   (383408) от 09.10.2020
-
-VA - Background Instrumental Smooth Jazz (2020) [MP3|320 Kbps] <Jazz, Jazz Smooth, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383408.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miles Davis Quartet - It Never Entered My Mind
-002. Clan Greco - Tilt
-003. Riccardo Arrighini - Autumn Leaves
-004. Tenderlonious - Almost Time(   Читать дальше...   )Жанр: Jazz, Jazz Smooth, InstrumentalПродолжительность: 07:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2635D1BE618289C65937A518FB7F281988D7B702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326561   (383386) от 21.09.2019
-
-VA - In My Feelings: Lyric Rnb Compilation (2019) [MP3|320 Kbps] <Rhythm And Blues, Lyric, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383386.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gabrielle Lynn - Kissing You
-002. Steven A. Clark - Feel This Way
-003. Drax Project - All This Time
-004. Pj Morton - Yearning For Your Love(   Читать дальше...   )Жанр: Rhythm And Blues, Lyric, SoulПродолжительность: 08:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D56C502B3B212DF65E63B0896C03DB6FF27FFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326414   (383378) от 21.09.2019
-
-VA - Space Patrol: Synth Electronic Compilation (2019) [MP3|320 Kbps] <Synthpop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ixen - Lonely Robot In Space
-002. Mats Forsell - Flying Low
-003. Spacehawk - Universe
-004. Sonicforce - Sandstorm(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 08:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210818A852E5935B87CBB2A284A8FE3EADB5BCB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326582   (383375) от 21.09.2019
-
-VA - Empire Records - Acapella (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Wauters - El Hombre de la Calle
-02. Natasha Barnes - Dollar Signs
-03. Zigmaester - Zombie Luv
-04. James Blake - Mulholland(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501AE5C410042B97A62CE448BAC9A508794F9994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414518   (383301) от 09.10.2020
-
-VA - Hammond Organ Heroes (2020) [MP3|320 Kbps] <Instrumental Jazz, Hammond>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embryo - Radio Marrakesch / Orient Express
-02. Emerson, Lake & Palmer - Hoedown (Live)
-03. Bernard Estardy - Ala mia thra
-04. Jimmy McGriff - 'Round Midnight(   Читать дальше...   )Жанр: Instrumental Jazz, HammondПродолжительность: 06:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1053D03CF6E77DD89511CC271CA862D913886B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414533   (383297) от 09.10.2020
-
-VA - Кроссфит 2 (2020) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rise Against - Savior (4:02)
-02 - The Romantics - What I Like About You (2:55)
-03 - Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up) (3:06)
-04 - Rick Springfield - Jessie's Girl (3:14)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, OtherПродолжительность: 03:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929674FCD887875909F821AF10714173EBC02387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326546   (383247) от 21.09.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 20.09.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita 3:11
-02. Halsey - Nightmare 3:52
-03. Billie Eilish - Bad Guy 3:14
-04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE54EA1C9F2F6B6A21464ED687CA3482764141E
 ```
 
 https://mybot314.ru/tekegram_catalog/

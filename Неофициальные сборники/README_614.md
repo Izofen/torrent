@@ -1,3 +1,209 @@
+###  Публикация: 1520315   (141831) от 28.12.2021
+
+Ed Calle - Compilation (2021) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love After Dark
+02. Spanish Rose Prelude
+03. Smooth
+04. Flor D'luna(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBD96D5E841A735D42AD47572BBDA719F831A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678808   (141746) от 23.11.2023
+
+VA - Inviting Blues Guitar Instrumentals (2023) [MP3|320 Kbps] <Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Clapton - Eric After Hours Blues [04:21]
+002. Santana - Samba Pa Ti [04:45]
+003. John Mayall & The Bluesbreakers - Steppin' Out (Stereo Instrumental) [02:27]
+004. Josh Smith - Penance [06:35](   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 16:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CD895C64697B17DDCEEA6CF6267779EDBA3B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194417   (141641) от 29.12.2017
+
+VA - Hits of My Soul Vol. 29 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Aerosmith - Beyond Beautiful (04:45)
+02. HIM - Passion's Killing Floor (05:14)
+03. Guano Apes - Open Your Eyes (03:07)
+04. Bon Jovi - The Distance (04:48)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7288C704B638A7C82F5C8E1D81D3A0F05E2275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970593   (141620) от 30.12.2015
+
+VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic – To The Party (Radio Edit) 03:43
+ 02. Mr X Project – Let’s Run Away (Teknova Remix) 03:52
+ 03. Mario Sem Ft John Mood – Run Again (Stephan F Remix) 05:24
+ 04. Eliza G Ft Lion D – Ladies Nite (Turbotronic Remix Edit) 03:45(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 03:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214A2352E2D71100EF3045469297438571C22658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970399   (141517) от 30.12.2015
+
+VA - Christmas piano collection (2015) [MP3|320 кб/с] <Piano, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Moonlight - Bee Free
+02 Serenity Piano - Emmanuele Landini
+03 The Last Emotion - Emmanuele Landini
+04 Natural World - Will Lewis(   Читать дальше...   )Жанр: Piano, InstrumentalПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7620B287C67DD70F04AF7F538760E8345CCB3940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520510   (141514) от 28.12.2021
+
+VA - Rock Blues Ballads Compilation (2021) [MP3|320 Kbps] <Rock, Blues, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Costello - Simple Twist of Fate
+02. Buck69 - Misery
+03. Buck69 - When She Whispers Your Name
+04. Sean Costello - Going Home(   Читать дальше...   )Жанр: Rock, Blues, BalladsПродолжительность: 01:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F28802446F0912C687781A9213444CACEB481E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970461   (141500) от 30.12.2015
+
+VA - Холодных Глаз Очарованье (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Вестов - Слеза упала в кофе
+002. Андрей Язвинский - Магнит
+003. Геннадий Ура - Мужская Дружба
+004. Рома Рязанский - Ветерок(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85FD0022EDC9532ADDEDE2A2C6945CA43B15ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970555   (141348) от 30.12.2015
 
 VA - Пацаны - Ваще Ребята! vol.23 (2015) [MP3|128-320 кб/с] <Pop>
@@ -550,215 +756,6 @@ VA - Масть крестовая. Новогодний выпуск (2012) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3AFD196401F89D88CA3018540EB2FC14291775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088257   (140385) от 30.12.2016
-
-VA - Plaisir D'Amour (Sexy Sax) (2016) [MP3|320 Kbps] <Instrumental, Pop, Easy Listening>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Exotic Sounds - Nightingale (Intro) (00:50)
-02. Fausto Papetti - Sorry Seems To Be The Hardest Word (03:20)
-03. Kenny G - Songbird (04:49)
-04. Morris Albert - Feelings (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8701CB2DDCD98ED5FE53361262722C227CB535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348936   (140304) от 29.12.2019
-
-VA - Radio DFM Top D-Chart Декабрь 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza feat. GOODBOYS - Piece Of Your Heart 2:33
-02. Billie Eilish - Bad Guy 3:14
-03. Filatov & Karas - Au Au 4:13
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CB7C8616335E48CED0CC73FC44BBA4499E2896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088234   (140233) от 30.12.2016
-
-VA - Умная Электроника (Музыка Поднимающая Настроение) Часть 5 (Compiled by Zebyte) (2016) [MP3|320 Kbps] <Electro-Swing, Funky Breaks, Nu Cumbia>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddy Verano, Natalia Doco - Comets (03:08)
-02. Orkesta Mendoza - Cumbia Volcadora (03:30)
-03. Mr. Haris Pilton & Gypsy Sound System - Gitanos (03:57)
-04. Trio Serenata - Cumbia Sobre El Mar (George T Rework) (03:15)(   Читать дальше...   )Жанр: Electro-Swing, Funky Breaks, Nu Cumbia, Ragga Jungle, Sambass, Trip-HopПродолжительность: 03:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFB2DE87F042D3C7CAFBE9C0CAE562B7A3E276C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590645   (140208) от 18.12.2012
-
-VA - Mystical Lounge - The Best Mystical Tunes (2012) [MP3|320 кб/с]<ChillOut, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Existence & Margot Reisinger - Contemplating Maitreya
-02. La Caina - Do Tara Alap
-03. DJ Ravin & Carlos Campos - I Must Confess
-04. Eddie Silverton - Asato Maa
-05. Czech Philarmonic Chamber Orchestra feat. Sophie Solomon - Love Theme from Ben Hur (Bombay Dub Orchestra Remix)
-06. Green Empathy - Kamasutra
-07. Red Buddha - White Bamboo
-08. La Caina - Mysterious
-09. Percusion - Percusion (Part 1)
-10. Ozgtir Sakar A.K.A. Misda Oz vs. Mercan Dede - Ab-i Beka(   Читать дальше...   )Жанр: ChillOut, Lounge, DowntempoПродолжительность: 04:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920AB01694FE255217717586892C7737CB9E30C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959723   (140156) от 30.12.2016
-
-Илья Гусев - Слушай 'Ласковый Май' (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Долгие ночи
-02. Июльский вечер
-03. Сказки детства
-04. Не отдам(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFFDB444D9C88E24B7079D0F1FAE94F62A0DD83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349078   (140071) от 30.12.2019
-
-VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alka - Drop The Boom (Original Mix)
-002. Abel Feat Shelley Chapman - Just Another Day
-003. Consilio - The Colours Of Love
-004. Matulu - Fumo(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 13:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A5DC8098E87A4EF9AB125875541A4C98DC833A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349069   (139970) от 30.12.2019
-
-VA - The High Dials (2019) [MP3|320 Kbps] <Indie Pop Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139970.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Red Sleeping Beauty - New York City Girls
-002. Black Midi - Reggae
-003. Eve Belle - Hard To Love Me
-004. Para Doc - In My Head(   Читать дальше...   )Жанр: Indie Pop Rock, AlternativeПродолжительность: 09:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5660CA1B9D68C282024534930B0B70292D9B550E
 ```
 
 https://mybot314.ru/tekegram_catalog/

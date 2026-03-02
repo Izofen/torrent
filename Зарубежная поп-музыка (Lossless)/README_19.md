@@ -1,3 +1,119 @@
+###  Публикация: 875736   (855957) от 07.03.2015
+
+VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них представляется (   Читать дальше...   )CD1:
+01. Mark Ronson feat. Bruno Mars - Uptown Funk  (4:31)
+02. Sia - Elactic Heart  (4:17)
+03. Hozier - Take Me To Church  (4:01)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875849   (855741) от 07.03.2015
+
+VA - NRJ Hit Music Only (2015) 2CD [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот и второй диск из описанных мною ранее NRJ Hit. Вы сами можете убедиться - насколько они не похожи, а вместе составляют, пожалуй, 90% того, что сегодня крутиться на радиостанциях и показывается в клипах. В этой раздаче во flac.CD1:
+01. David Guetta Feat. Emeli Sandu - What I Did For Love  (3:25)
+02. Christine And The Queens - Christine  (3:54)
+03. Soprano - Clown  (4:29)(   Читать дальше...   )Жанр: Pop, Hip Hop, Eurodance, R&BПродолжительность: 02:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC08F80F80E0FE03822C9209281DB14F1508B3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000969   (855646) от 27.03.2016
+
+Raphael - Canciones De Amor (2009) [FLAC|Lossless|image + .cue] <Latin Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toco Madera 03:40
+02. Lo Voy A Dividir 03:49
+03. Mintiendome Olvidarte 04:08
+04. Yo Sigo Amandote 03:26(   Читать дальше...   )Жанр: Latin Pop, BalladПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44583B5D8473642AA9B7178E1E6BEF149C55DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434855   (854003) от 28.09.2021
+
+Al Bano & Romina Power - 6 Albums, Box Set, 9 CD (1985 - 1997) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Che Angelo Sei ( Amore Mio ) 3:34
+02. Al Ritmo Di Beguine ( Ti Amo ) 3:43
+03. Canto Di Libertа 2:59
+04. It's Forever 2:57(   Читать дальше...   )Жанр: РорПродолжительность: 07:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E7AC67BFC21CF11C69F52FE269A83CB873F537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377207   (853567) от 21.04.2020
 
 Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop>
@@ -631,122 +747,6 @@ Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378820   (842910) от 27.04.2020
-
-a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, Dlx. Ltd. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (Video Version) (3:44)
-02. Train Of Thought (Early Mix) (4:12)
-03. Hunting High And Low (Early Mix) (3:43)
-04. The Blue Sky (Alternate Long Mix) (3:41)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34544B5682280829620E4E31F416A3599A6C02D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878409   (842092) от 15.03.2015
-
-Maggie Reilly - Echoes (1992) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everytime We Touch (4:04)
-02. Tears In The Rain (3:44)
-03. Echoes (3:32)
-04. You'll Never Lose (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B899730509DA6615CCBCDAFBF567386F290ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003714   (841895) от 04.04.2016
-
-Haroula Rose - Here The Blue River (2016) [FLAC|Lossless|tracks] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songbird
-02. Margo
-03. Moon and Waves
-04. Zion Beach, 1999(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DBD7DB0D11B65F57D7469D9110ACF29995E5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500788   (841396) от 06.10.2021
-
-Saint DX - SDX (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prime of Your Life (3:37)
- 02. Xphanie (3:08)
- 03. I Still Care (3:41)
- 04. Staccato (5:24)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Chillwave, Synthpop, DowntempoПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A4C183BC3069881EFED69A00EF85A217DD817F
 ```
 
 https://mybot314.ru/tekegram_catalog/

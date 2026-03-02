@@ -1,3 +1,29 @@
+###  Публикация: 1037238   (615473) от 23.07.2016
+
+Шаблоны - CreativeMarket - Devices - Mockups V05 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615473.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940CBA6DB15D8B718D48816A5F171113D0441B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037150   (615471) от 23.07.2016
 
 Экшены - GraphicRiver - Dispersion Photoshop Action [ATN, ABR, PAT]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4066BB778054B210930224607465B9DF31279AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037507   (613772) от 24.07.2016
-
-Шаблоны - CreativeMarket - iPads - Mockups V05 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613772.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACE9FF00333A3AB48AA550BB2975C4B948559D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

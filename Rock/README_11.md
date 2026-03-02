@@ -1,3 +1,61 @@
+###  Публикация: 861868   (931951) от 22.01.2015
+
+VA - Riders On The Stoorm: 16 Psychedelic Rock Nuggets (2014) [MP3|320 кб/с]<Psyhedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931951.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bungalow Bums - Liar (PZDBL) (3:48)
+2. Casper Blanca - Camp Neverland (4:20)
+3. Coma Serfs - Serfin' Arizona (2:40)
+4. Interstellar Overdrive - Best Thing (2:50)(   Читать дальше...   )Жанр: Psyhedelic RockПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEA7AC434157B232948B1B53FF5471BF4AA8D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094517   (929385) от 18.01.2017
+
+Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coolin'
+2. Best Woman, Best Friend
+3. Live Your Love A Lie
+4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094763   (927784) от 19.01.2017
 
 Katalina Gonzalez - Sin Paradigmas (2017) [MP3|320 Kbps] <Rock: Instrumental Rock>
@@ -706,64 +764,6 @@ Seventh Crystal - Delirium (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D905221521649B8CAD5CD97D577B8763008FA997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490617   (917523) от 21.08.2021
-
-Dangerous Curves - Summertime Highs (2021) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In Those Eyes [00:03:45]
-02 - My Oh My (Get What You Need) [00:03:28]
-03 - I Like It [00:02:56]
-04 - Good and the Bad [00:04:04](   Читать дальше...   )Жанр: Hard-Rock, Glam-MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77153204C513B95225DFB4931A194F51EEDC3CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490642   (917518) от 21.08.2021
-
-Saga - 6 Albums (1978-1985) Remastered 2021, earMUSIC [MP3|320 Kbps] <Progressive-Rock, Crossover-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Loose (4:13)
-02. Time's Up (4:03)
-03. Wind Him Up (5:48)
-04. Amnesia (3:29)(   Читать дальше...   )Жанр: Progressive-Rock, Crossover-ProgПродолжительность: 6CD, 04:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9687BFADE1B8334F3D669A22FCFAA96888CA2DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

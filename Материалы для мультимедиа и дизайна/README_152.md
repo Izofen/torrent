@@ -1,3 +1,30 @@
+###  Публикация: 1226327   (654545) от 21.05.2018
+
+Текстуры - Creative Market - Real Paper Textures Bundle - 1464807 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бумажные текстуры.
+Автор: Draw Wing ZenФормат: JPGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB61F31847164FCD8E033A02CFEDAFF0AA1521E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516005   (654286) от 27.06.2012
 
 Растровый клипарт - 3D man with billboards [JPG]
@@ -684,34 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0168A14CB9FA890B8A8D5FF00F7EEDE214F01ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291828   (652507) от 26.03.2019
-
-Векторный клипарт - Vector Fairy Collection #36 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сказка
-25 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15589DF183FBDD89188B0336D8B25CED6D5419BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

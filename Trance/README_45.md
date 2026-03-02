@@ -1,3 +1,177 @@
+###  Публикация: 1634405   (233442) от 20.05.2023
+
+VA - Armada Music - 20 Years (2023) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233442.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loud Luxury & Brando - Body (Extended Mix) (3:36)
+002. Lost Frequencies - Are You With Me (Extended Mix) (4:47)
+003. Tinlicker & Helsloot - Because You Move Me (Extended Mix) (7:18)
+004. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like (Extended Mix) (5:16)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 10:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8582B88DD48F112AA90443729FEBF67319D27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644943   (233074) от 07.07.2023
+
+VA - Trance Emotions Vol. 11 (Best Of EDM Playlist Compilation 2023) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ Cold - The Search (Burning Man Remix) [6:13]
+02. Nale feat. Angel Falls - Mysterious Times (Substance N Trance Progressive Edit) [5:43]
+03. Specific Slice & Sandro Mireno - Leviathan And The Lone Galleon (Extended Mix) [6:27]
+04. Tranceflight - Drive Back (Extended Mix) [6:50](   Читать дальше...   )Жанр: TranceПродолжительность: 05:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A88BBD535614734BE9558D48D48CBF242BB615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643476   (232745) от 01.07.2023
+
+VA - AMVA Top Trance Collection 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke van Ness - Rainbow In Life (Extended Mix) [7:04]
+02. Vahid Ghandizadeh - Remedy (Original Mix) [5:29]
+03. Krystalmetch - Rise Again (Original Mix) [6:03]
+04. Solo Drive - Apex (Original Mix) [7:22](   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D303D907F29259E9C4AE855E97FCBB10E4552C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635659   (232405) от 26.05.2023
+
+Above & Beyond - Tranquility Base Vol. 1 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angry JP8 (Original Mix) [3:37]
+02. Wasp (Original Mix) [2:43]
+03. 500 (Original Mix) [2:46]
+04. VLEKNO (Original Mix) [2:41](   Читать дальше...   )Жанр: TranceПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E929CAADCD8A8B483437DA97DB00221AA84359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643672   (232392) от 03.07.2023
+
+VA - Nothing But... Trancetopia, Vol. 05 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMR LVE - Heart Of Mine (Original Mix) [3:41]
+02. DT8 Project & Lustral & Ricky Simmonds - Sunshine In Human Form (Remixes) (Simon Gregory Extended Remix) [6:06]
+03. A-Tronix & Sven E - Aaliyah (Extended Mix) [6:44]
+04. Nikos Geladis - Promised Land (Extended Mix) [5:39](   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043D09D91CDEDF0C9F2B66956E742C652F69542E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646652   (231867) от 17.07.2023
+
+VA - Abora 100: Timeless Favorites (Mixed by Ori Uplift) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World - Ushio (Abora 100) (Emotional Intro Mix - Mix Cut) [08:23]
+02. SoundLift - Freedom (Abora 100) (Mix Cut) [08:27]
+03. Afternova - Serenity (Abora 100) (Andy Blueman Remix - Mix Cut) [06:57]
+04. Playme - Peace & Serenity (Abora 100) (Driftmoon Mixdown - Mix Cut) [04:59](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE2091EF9BC9F460CBBAF0157751FA41CE3C419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643465   (231768) от 01.07.2023
 
 VA - Keep It Trance Vol. 13 (2023) [MP3|320 Kbps] <Trance>
@@ -571,180 +745,6 @@ VA - Redux Presents: The Finest Selection 2018 (Mixed By Rene Ablaze) (2018) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1252E2660787CD3DAF7753D2D78BD646212C11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268510   (226552) от 11.12.2018
-
-VA - Grotesque 350 (Mixed by RAM, Alex M.O.R.P.H. & Alex Di Stefano) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon O'Shine - Paradise Cove (Original Mix)
-02. Solis & Sean Truby - Tell Me More (Original Mix)
-03. John Newall - New Beginning (Original Mix)
-04. Cenk Basaran & Koray - Acid Harmony (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2949B0233960C25773A10E7FA293D10E8B85AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268656   (226513) от 11.12.2018
-
-VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Milov feat. Lucid Blue - End Of Days (Extended Mix)
-02. Lucid Blue - Nothing Like The Sun (Extended Mix)
-03. Michael Milov - Anywhere With You (Extended Mix)
-04. Ruslan Radriges - Over and Out (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93965510120586C9A1CBA2CA01DDCE131798095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342172   (225665) от 01.12.2019
-
-VA - Solarstone Presents Pure Trance 8 (Mixed By Solarstone & Activa) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super-Frog Saves Tokyo - Beautiful Surfaces (Solarstone Ambient Intro Version) (01:50)
-02. Stoby & Coulter ft Liz Cirelli - Sun is High (Solarstone Dubby Retouch) (04:22)
-03. New Ordinance ft Gozzi - Aho (Vocal Version Solarstone Retouch) (04:32)
-04. Allende - Essence (Solarstone Retouch) (04:26)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC25FBA52CA9A083F4B1CFD202061E88D9C1EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584274   (225636) от 18.10.2022
-
-VA - Gert Records 10 Years Anniversary - (Mixed by Danny Grunow) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Grunow - Gert Records 10 Years Anniversary (Continuous DJ Mix)
-02. Exeland feat. Natune - When You're Near (Catchfire Remix)
-03. iThur - Mentor (Extended Mix)
-04. Micro Out - One Day (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21600D43FD0AE725A1327802FF207CB54E664BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584279   (225604) от 18.10.2022
-
-VA - Gert Records 10 Years Anniversary - (Mixed by Dimassive) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimassive - Gert Records 10 Years Anniversary (Continuous DJ Mix)
-02. Alison Spong feat. Robin Vane - Runnin' Free (Original Mix)
-03. Artyom Kopylov & Soteira feat. Anna Miracles - Rising Of Our Sun (Nytigen 2019 Remix)
-04. Edvard Hunger - Melody (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06063AFC3D1DC391829E0D2762F55AC07D20C544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342201   (225555) от 01.12.2019
-
-VA - Uplifting Only Fan Favorites 2018-2019 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Uplifting Trance , Emotional Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas - Last Forever (Intro mix) (5:53)
-02. Running Man - Amnesia (SoundLift's Emotional Take Short edit) (7:31)
-03. Ahmed Romel - Vanaheim (radio edit) (4:12)
-04. The Forgotten - Ascension (original mix) (6:52)(   Читать дальше...   )Жанр: Uplifting Trance , Emotional TranceПродолжительность: 06:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037110CE6064EBDB9AEADD0FB290EC694AAD0241
 ```
 
 https://mybot314.ru/tekegram_catalog/

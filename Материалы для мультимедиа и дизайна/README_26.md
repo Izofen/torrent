@@ -1,3 +1,29 @@
+###  Публикация: 1485518   (1005268) от 26.07.2021
+
+Сборник - Creative Fabrica - Rolled Paper Flower Templates SVG Cut [AI, EPS, SVG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблоны цветов из свернутой бумаги в формате SVG, Оригами.Формат: AI, EPS, SVG, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DAF63EE2F92C12B83444BBA40A52BC80EB6635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485939   (1005103) от 28.07.2021
 
 Векторный клипарт - Watercolor Christmas characters and elements collection illustrations [EPS]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5EEBA6963349AA681474BF1666D682643A377BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487302   (1003787) от 04.08.2021
-
-Растровый клипарт - Сборник клипарта #58 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 242x244-5013x3213
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1F4F0B8D9319A174373B6DD88E2A9728689F95
 ```
 
 https://mybot314.ru/tekegram_catalog/

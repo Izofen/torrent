@@ -1,5 +1,117 @@
 https://t.me/izofen
-###  Публикация: 1856211   (1058656) от 
+###  Публикация: 1856333   (1059090) от 28.02.2026
+
+Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том серии «Программирование: введение в профессию» включает две основные части.
+
+В первую часть книги вошли избранные сведения из истории вычислительной техники, обсуждение некоторых областей математики, непосредственно используемых программистами (таких как алгебра логики, комбинаторика, позиционные системы счисления), математических основ программирования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МАКС ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FEDDA9D56C479C9681607C1A4CF08EA9ED181A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856324   (1058953) от 27.02.2026
+
+Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058953.jpg" />
+</div>
+
+
+###  Подробнее
+
+AI-powered applications are rapidly becoming the new normal. Personal productivity assistants, coding agents, smarter search, and automated reporting tools are popping up everywhere. The LangChain ecosystem, and standards like MCP are driving this new gold rush. This book helps you claim your spot.
+
+This is your hands-on guide to creating real, production-ready language (   Читать дальше...   )Жанр: Artificial Intelligence, Natural Language Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FACBF5B8E728A6E81A307E40048636B6DB6847C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856302   (1058946) от 27.02.2026
+
+Tilman M. Davies | The Book of R. A First Course in Programming and Statistics. 2nd Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058946.jpg" />
+</div>
+
+
+###  Подробнее
+
+This long-awaited second edition folds years of updates into its beginner-friendly lessons on using R for data and statistical analysis.
+
+The Book of R is a comprehensive, beginner-friendly guide to R, the world’s most popular programming language for statistical analysis. Even if you have no programming experience and little more than a grounding in the basics of (   Читать дальше...   )Жанр: Mathematical & Statistical Software, Probability & Statistics, Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C0084613BEC0D53A96A394E1FB99AD4874A579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856341   (1058939) от 27.02.2026
+
+Mabrouk Mahdhi | Mastering ASP.NET Core 10. Web Applications Made Easy with the Biggest Update Yet. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058939.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASP.NET Core 10 is finally here. Dive into the most encompassing update to Microsoft’s framework for developing web apps using the all-new .NET 10 framework. This book continues the legacy of the classic, bestselling ASP.NET Core manual but with 100% new material. Create modern, high-performance web apps with ease.
+
+In this completely new manual, gain a deeper understanding (   Читать дальше...   )Жанр: Microsoft .NET, Web Development & Design Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4D35B14D394D5E7B44A958260C29E5851E8B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856211   (1058656) от 27.02.2026
 
 Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Excel 2019 Levels 1&2 (2020) [PDF] [EN]
 
@@ -25,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856212   (1058655) от 
+###  Публикация: 1856212   (1058655) от 27.02.2026
 
 Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master Microsoft Excel's many capabilities (English Edition) (2023) [PDF] [EN]
 
@@ -54,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856213   (1058654) от 
+###  Публикация: 1856213   (1058654) от 27.02.2026
 
 Ritu Arora | Mastering Advanced Excel - With ChatGPT Integration. Learn Formulas and Functions, Advance Pivot Tables, Macros, VBA Coding, ChatGPT Integration with exercises (English Edition) (2023) ...
 
@@ -83,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856214   (1058653) от 
+###  Публикация: 1856214   (1058653) от 27.02.2026
 
 Robinson Cortez | Microsoft Office 365 Bible 2024. Harness the Full Power of Office 365 for Seamless Workflows, Enhanced Collaboration, and Unparalleled Success (2023) [PDF, EPUB] [EN]
 
@@ -111,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856216   (1058652) от 
+###  Публикация: 1856216   (1058652) от 27.02.2026
 
 Альберто Феррари, Марко Руссо | Анализ данных при помощи Microsoft Power BI и Power Pivot для Excel (2020) [PDF]
 
@@ -137,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856219   (1058651) от 
+###  Публикация: 1856219   (1058651) от 27.02.2026
 
 А.Е. Журавлев | Информатика. Практикум в среде Microsoft Office 2016/2019. Учебное пособие для СПО. 2-е издание (2021) [PDF]
 
@@ -163,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856226   (1058650) от 
+###  Публикация: 1856226   (1058650) от 27.02.2026
 
 Roshan Gavandi | Building Enterprise-Ready Azure Infrastructure. Learn Security, Scalability, and Reliability with IaC & DevOps (2025) [PDF, EPUB] [EN]
 
@@ -580,118 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852860   (1056559) от 12.02.2026
-
-Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reason confidently about distributed systems.
-
-Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852858   (1056558) от 12.02.2026
-
-Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Just the Docker you need to know in 22 bite-sized lessons!
-
-In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852857   (1056557) от 12.02.2026
-
-Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
-Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
-Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852856   (1056556) от 12.02.2026
-
-Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developers (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Take your programming skills to the next level by expanding real-world Python applications in open-source code. This book is an essential guide for experienced developers looking to enhance their Python proficiency.
-
-Using code examples from popular open-source projects you’ll master Python concepts and see how they are applied in production-level code. By understanding (   Читать дальше...   )Жанр: Object-Oriented Design, Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Apress MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562B6FEFA631BBF532163046E69905E69FE4CDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

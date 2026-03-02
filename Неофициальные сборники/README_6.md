@@ -1,3 +1,206 @@
+###  Публикация: 1839687   (1046866) от 30.11.2025
+
+VA - National Pop Dance Music Vol.126 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tomorrow - Love Language (02:58)
+ 002. Ulker Gulumser - Bize Ne Oldu Boyle (02:50)
+ 003. Tim Campbell - Strange (03:20)
+ 004. Auzaye - Tears Hes Going To Hold (03:00)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F13AD8C61004B1BD362B4AA8882F640CEAE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839694   (1046851) от 30.11.2025
+
+VA - Winter Dance Floor Show (2025) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sheppard - Good Time (02:53)
+ 002. Fletcher - Good Girl (03:20)
+ 003. Walk Alone - My Empty Soul (02:08)
+ 004. Dhektron - Drift Away (03:40)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 12:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DD323EFCFCC1E3C67BEF934014565C272D9230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839700   (1046849) от 30.11.2025
+
+VA - Neon Heartbeats (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fever Ray - I'm Not Done (04:40)
+ 002. Tiscore - Nur Der Rave (02:32)
+ 003. Mari Kattman - Typical Girl (03:43)
+ 004. Aureon - Mirrorphase (03:47)(   Читать дальше...   )Жанр: Synthpop, Pop, DanceПродолжительность: 10:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D658C0E7E80FD27D1EEE186E09472648234E63DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839731   (1046825) от 30.11.2025
+
+Reteox - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nel Silenzio
+ 02 - Burned By Love
+ 03 - Apprezzami
+ 04 - Juste Un Pas(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E72C7B3D94CC90C05A6E7A07318C558D207DADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839728   (1046824) от 30.11.2025
+
+Talking Luna - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Playing With Fire (Alt Version)
+ 02 - I Miss the 80s
+ 03 - Inside My Heart (Alt Version)
+ 04 - Playing With Fire(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A7538D2E221C40E75C484F41D73456817FE4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839725   (1046822) от 30.11.2025
+
+Romantic Dreams - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Only Once in Life
+ 02 - Merry Christmas, My Love
+ 03 - My Shining Christmas Star
+ 04 - Only One Man(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83F2531196DC3A68B2276E16C6413A16C67FCAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839724   (1046821) от 30.11.2025
+
+Elise - Favorites Collection (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reste Près De Moi
+ 02 - Disparu
+ 03 - Larmes Et Lumières
+ 04 - Là-Bas(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69C3BD190D3E928334E2A0AB8ADD72E6AA72E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839721   (1046819) от 30.11.2025
 
 VA - Erotic Lounge Collection Part 3 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
@@ -542,209 +745,6 @@ VA - Winter Light Deep (2023) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2219E84478556C8687AE62B8851C6D2295731E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604807   (1045204) от 15.01.2023
-
-VA - Hits Nu Disco Views 001 (2022) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep Groove, Soulful>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punky Wash - Free Your Mind (Original Mix)
-02. Monkey Timers - Disko (not Disko) (Original Mix)
-03. Igor Gonya - Trampoline (Original Mix)
-04. Pvlomo, Galo Santo - BRVJA (ALFA TRAX Remix)(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, Deep Groove, SoulfulПродолжительность: 01:56:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED7B8FD06827BD12720EB8D6843F8A3F7205507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604793   (1045203) от 15.01.2023
-
-VA - Party Mix 2022 (2023) [MP3|320 Kbps] <Groove, House, Club, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - Crazy What Love Can Do
-02. Tiesto - The Motto
-03. Eliza Rose - B.O.T.A. (Baddest of Them All)
-04. Nathan Dawe - 21 Reasons (feat. Ella Henderson)(   Читать дальше...   )Жанр: Groove, House, Club, Nu DiscoПродолжительность: 01:36:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA979A2DA6DB1235F6023674223732D19C2B42C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604787   (1045168) от 15.01.2023
-
-VA - Chill Out Stories Vol. 4 (2023) [MP3|320 Kbps] <Downtempo, Future Jazz, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Horizon in Blue (Original Mix)
-02. Roberto Bronco - Mad (Original Mix)
-03. Circles Of Sound - Floating (Original Mix)
-04. Marc Hartman - Voices Inside (Final Mix)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Chillout, LoungeПродолжительность: 02:29:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B2B7FD7AA88F093A7F0BCABB55DD20AA0E8564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604762   (1045125) от 15.01.2023
-
-VA - Свежаки Зимы 2023 Remix NNM (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Винтаж - Ева (DMC COX Extended Mix) (4:44)
-02. Зомб - Baby Tonight (Kalatsky Remix) (Radio Edit) (3:01)
-03. Yes17 - Мама (Alexandr Zarva Remix) (4:00)
-04. Мари Краймбрери - По городам (DJ Alex Ezhov Remix) (Radiio Edit) (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113AD8D7AD4E54358E91DBE0BC893CB6515A23E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605001   (1045054) от 16.01.2023
-
-VA - Music News vol.238 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chany Dakota feat. Thomas Sykes & Mark F. Angelo - In The Middle (02:28)
- 002. All Time Low - Tell Me I’m Alive (02:36)
- 003. Aluna feat. MK - Kiss It Better (MJ Cole Remix) (04:04)
- 004. American Authors - Best Night Of My Life (02:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6129D94EA7C6704CE8D40C2C22CFACD566949687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605364   (1044953) от 17.01.2023
-
-VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnarbot - Thrapticious (10:02)
- 02. Soft Machine - Hazard Profile Part 5 (05:29)
- 03. The Groundhogs - Garden (05:24)
- 04. All Them Witches - Real Hippies Are Cowboys (08:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604753   (1044949) от 17.01.2023
-
-Haley Reinhart - Compilation (2023) [MP3|320 Kbps] <Soul, Jazz, Indie Pop>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House of the Rising Sun
-02. Bulletproof
-03. Bennie and the Jets
-04. Free(   Читать дальше...   )Жанр: Soul, Jazz, Indie PopПродолжительность: 01:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6BCE64D3B4941E045A8BE430FFE3F411B2675A
 ```
 
 https://mybot314.ru/tekegram_catalog/

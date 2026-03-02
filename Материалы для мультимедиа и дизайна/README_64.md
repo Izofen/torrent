@@ -1,3 +1,31 @@
+###  Публикация: 1492827   (900440) от 31.08.2021
+
+Векторный клипарт - Cheerful snowmen in different costumes Christmas illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Веселые снеговики
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF76BFFE9224C90D2DFCAB2BECE9A616D3F7619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492839   (900340) от 31.08.2021
 
 Векторный клипарт - Shutterstock - New Year and Christmas illustrations in vector №17 [EPS]
@@ -675,32 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC90C93AC3FC7841E4012ECD64BE6A58E8DA7138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493001   (898568) от 01.09.2021
-
-Экшены - Creative Market - Poster Art Photoshop Action - 6453860 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poster Art - Это действие предназначено для превращения вашей фотографии в настоящий плакат. С помощью этого профессионального пакета вы можете превратить свои обычные фотографии в необычные изображения.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92385B1C21BD40793B5C5B22CE32155974E48EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

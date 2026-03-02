@@ -1,3 +1,61 @@
+###  Публикация: 1486695   (1004569) от 01.08.2021
+
+Джоконда - Каждый охотник желает знать (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфония [4:55]
+02. Каждый охотник желает знать [4:26]
+03. На краю [4:09]
+04. Костры из книг [3:54](   Читать дальше...   )Жанр: Symphonic Rock, Female VocalПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E5F082DE7DFBB178015AFE7DC95E11AD0FC410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350278   (1003442) от 05.01.2020
+
+Монгол Шуудан - Гуляй Поле Реанимация (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003442.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Гуляй Поле
+3. На Белом Коне
+4. Свобода Или Смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3874F715996D9095EEE0DD1220D013BB7DAF9C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350771   (1002982) от 07.01.2020
 
 Торба-на-круче - Восток 7 (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -712,64 +770,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976853   (967707) от 19.01.2016
-
-Мураками - Без суеты (2015) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суета – все тщетное, ничтожное, бесполезное, не представляющее ценности. Без всего этого, «Без суеты» – новый альбом Мураками. Фирменное, легко узнавание звучание группы в совершенно новом нехарактерном материале, отличается от всего, что они делали раньше. Целостный роман состоящий из отдельных историй, от первой песни до последней, о том, что творится внутри и (   Читать дальше...   )01. Невозможно
-02. 364
-03. Минуты
-04. Глаза(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF7C8C0CC3124C42421FD8451807DB44714E0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358870   (967502) от 09.02.2020
-
-Hatecraft - Lost Consolation (2005) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lose your mind (3:39)
-02. The punisher (5:47)
-03. Demon of mine (5:02)
-04. Generation of obscenities (4:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02E7AFAADA6CB46EA1C6E471D4233729A2D6F92
 ```
 
 https://mybot314.ru/tekegram_catalog/

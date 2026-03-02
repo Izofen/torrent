@@ -1,3 +1,203 @@
+###  Публикация: 1515851   (167643) от 09.12.2021
+
+VA - Are & Be (2021) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SZA - I Hate U (2:54)
+02. Bruno Mars, Anderson .Paak, Silk Sonic - Smokin Out The Window (3:17)
+03. Lucky Daye - Over (3:25)
+04. Khalid, Ari Lennox, Smino - Scenic Drive (4:09)(   Читать дальше...   )Жанр: R&BПродолжительность: 03:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41C4BAE6FD6AF2ABEE64324B094CCE0DDC731AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380061   (167587) от 13.12.2020
+
+aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Vocal, Tech, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive, Vocal, Tech, Uplifting TranceПродолжительность: 55:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF25BC9995D05D374E910BDAA5DEF5713E288B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345286   (167561) от 14.12.2019
+
+VA - The Official UK Top 40 Singles Chart 13.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Stormzy - Own It (feat. Ed Sheeran & Burna Boy)
+03. Dua Lipa - Don't Start Now
+04. Lewis Capaldi - Before You Go(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2000F7AA2AEF70D47604C7C0B06D44D819B5EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345223   (167454) от 14.12.2019
+
+VA - Sphinx: Synth Electronica (2019) [MP3|320 Kbps] <Electronic, Syntheti>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Z · Axis - Voluptous
+002. Geomatic - Shadow World
+003. Asc - Scattered Mind
+004. Dmitry Molosh - Only U (Original Mix)(   Читать дальше...   )Жанр: Electronic, SynthetiПродолжительность: 11:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1ABFC0D02D32496F02462B611A753D21A6B14AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515813   (167422) от 09.12.2021
+
+VA - The Blues For Yesterday (Vol.05) (2021) [MP3|320 Kbps] <Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка рок блюза никогда не старалась быть абстрактной, загадочной или непонятной. Она всегда вполне доступна и легко воспринимается всеми без исключения. А густой, тёплый тембр с нотками меланхолии и грусти исполнителей, который Вы услышите на треках сборника "The Blues For Yesterday", невозможно игнорировать.001. Hurricane Ruth - Big Helen
+002. Vinnie Colaiuta - In My Dream
+003. Tim Heidecker - Life’s Too Long
+004. Jimmy Barnes - I'm In A Bad Mood(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 08:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5300A2AB58C059A2D6FDEF31CAE80D92153D1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345209   (167393) от 14.12.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 13.12.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.SAINt JHN - Roses (Imanbek Remix) (2:55)
+2.Regard - Ride It (2:37)
+3.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)
+4.Tones And I - Dance Monkey (3:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2D43681E16F10325ACCB40632B72CB743F356D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345225   (167361) от 14.12.2019
+
+VA - Digital Madness: Retrowave Music (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167361.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Analogue-X - World Of Silence
+002. Surge - Escape From Xylon
+003. Robert Parker - Final Moment
+004. Michael Hunter - Dusk Road(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectronicПродолжительность: 12:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7A3F5F6BE74D8135B7ACF35075C206716ABCAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826495   (167359) от 19.10.2025
 
 VA - Record Super Chart 18.10.2025 [MP3|320 Kbps] <Pop, Dance>
@@ -542,209 +742,6 @@ VA - Громкие новинки Декабря (2019) [MP3|320 Kbps] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:875EB009A402B92B7E1C0490F2861D10704A64CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431702   (165951) от 15.12.2020
-
-VA - Секас от зайцев (2020) [MP3|320 Kbps] <Relax, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aelyn - Believe In Us (Chillout Mix) (4:10)
-02. Anderson East - If You Keep Leaving Me (4:13)
-03. Banks - Brain (4:41)
-04. Bastille - Bad Blood (Live Piano Version) (3:26)(   Читать дальше...   )Жанр: Relax, PopПродолжительность: 03:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4BE3982051F89410D79A986A64688CCB98FF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431746   (165559) от 15.12.2020
-
-VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
-002. Stewart Birch - Like The Rays From The Sun
-003. Phenomenal Handclap Band - Judge Not
-004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345797   (165500) от 16.12.2019
-
-VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Carlos Garo - Omen (4:07)
-02.Two Rivers - The Bells Of Soul (4:15)
-03.Australis - A Soul for a Soul (4:33)
-04.The L-Project - The Universal Genius (4:52)(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF001B891F07C3BDC28DA7F821B35AE5EB8DB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345943   (165232) от 17.12.2019
-
-VA - Its Time To Party December (2019) [MP3|320 Kbps] <Electro, Big Room, Dutch House, Bassline, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gab3z - Turn Up The Bass (Original Mix) 3:18
-02. Itsmylife - Latino (Extended Mix) 3:23
-03. R3hab X Mike Williams - Lullaby (Monster Sawn Stone Mash-Up) 3:53
-04. Nain - Inferno (Original Mix) 3:58(   Читать дальше...   )Жанр: Electro, Big Room, Dutch House, Bassline, ProgressiveПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACBF42AF11DAD1BEEFB3241BA4C550D413E84D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516585   (165229) от 12.12.2021
-
-VA - Music News vol.155 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Polnalyubvi - Твои Глаза (02:48)
- 002. 1Leonova - Монолог (02:36)
- 003. 369 feat. Павел Мурашов - Учитель (04:00)
- 004. A Boogie Wit Da Hoodie - Making You Cry (03:52)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 10:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A580B73153B23A8F70186E8E809039CAA5ADD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345981   (165222) от 17.12.2019
-
-VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zalza - Nudel Soppa Blues
-02. Anamanaguchi - Planet
-03. Street of Rage - Round 3
-04. Jredd - Neon Alley(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E765BCE30E66EF5B6FD8E3EE2C010736EB2678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345958   (165147) от 17.12.2019
-
-VA - Beautiful Sound Of Trance Music (2019) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165147.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Max Trumpetz - Free For All (Radio Edit)
-002. A.L.Y.S. - Arctic Stream (Air Project Remix)
-003. Fractal Rider - Disorder
-004. Roxy June - Let Them Fight (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41C566BAB01BAFDF3F10DC559EC44FCAEED6EF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

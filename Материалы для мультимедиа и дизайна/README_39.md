@@ -1,3 +1,29 @@
+###  Публикация: 1354242   (988804) от 21.01.2020
+
+3D материалы - Megascans Displacements- All 52 Maps 4K [JPG, EXR]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка из 52-х 3D материалов со всеми картами и самом высоком разрешении.Формат: JPG, EXRРазрешение файлов: 8192x8192
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E030D361F0F09B782F504EAEF8BE62730836077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611796   (988188) от 31.01.2013
 
 Фоны - Концепция любви [JPEG]
@@ -656,34 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26FADD77E4820CEBAB11403BA283588220D5E818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354681   (986927) от 23.01.2020
-
-Векторный клипарт - Abstract Image Vector Wireframe Concept [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Абстрактный фон
-15 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87983842C7AB89C1B6CA8A7CD17DB111BE750CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

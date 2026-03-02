@@ -1,3 +1,119 @@
+###  Публикация: 1683010   (129908) от 09.12.2023
+
+НеАнгелы - Номер один (2006) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты из тех самых
+02. Танцуй со мной
+03. Я знаю, это ты
+04. Только люби(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD626B4DC99A3B608C2527617BD50A7034E301A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525630   (129389) от 21.01.2022
+
+Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Fruits Of Eden (0:40)
+ 02. AURORA, Pomme - Everything Matters (3:34)
+ 03. Giving In To The Love (3:01)
+ 04. Cure For Me (3:22)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683325   (128709) от 10.12.2023
+
+Rebecca Ferguson - Heaven, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digging For Gold [00:03:51]
+02. I'm Going To Love You [00:03:52]
+03. From Now On [00:03:30]
+04. Shallow Breathing [00:03:33](   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683473   (128403) от 11.12.2023
+
+Bananarama - Robert De Niro's Waiting /  Velvet Lies (Remixes) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert De Niro's Waiting (The Reflex Revision - Edit)
+02. Velvet Lies (Luke Million Remix)
+03. Robert De Niro's Waiting (The Reflex Revision)
+04. Venus (Boys Noize Rework Edit)Жанр: PopПродолжительность: 00:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C41A4D5528D3C45DD834E28BD8FE5A642983BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684042   (128113) от 13.12.2023
 
 Edith Piaf - Symphonique (2023) [FLAC|Lossless|image + .cue] <Pop, Chanson>
@@ -630,122 +746,6 @@ Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537ED433F56A2872BCF9527481575CC547CA45F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693249   (121870) от 20.01.2024
-
-Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Must The Show Go On? / In Transit (Instrumental) (5:11)
-02. Good-Bye Bad Times (3:44)
-03. Brand New Love (Take A Chance) (4:06)
-04. Valerie (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693245   (121865) от 20.01.2024
-
-Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joyride (4:24)
-02. Hotblooded (3:18)
-03. Fading Like a Flower (Every Time You Leave) (3:53)
-04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D566A8E77B65D5AD86DC0B7FD09E9DFB9F0E27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693692   (121698) от 21.01.2024
-
-Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Como El Aire [00:03:40]
-02. Nos Lo Hemos Dicho Todo [00:04:13]
-03. Solo Cuidate Y Adios [00:04:17]
-04. Con Los Cinco Sentidos [00:03:21](   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68DC6E452BBA56D0E0D083DC547D49C505FFC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694376   (121137) от 24.01.2024
-
-Charlotte Sands - can we start over? (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Use Me (03:02)
-02. Pity (03:00)
-03. Get Over It (03:10)
-04. Spite (03:08)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB652F0FCC1CF2CF9FD9E03A5C5A5BF9003A717
 ```
 
 https://mybot314.ru/tekegram_catalog/

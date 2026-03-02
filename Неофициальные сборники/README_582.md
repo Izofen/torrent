@@ -1,3 +1,206 @@
+###  Публикация: 1637809   (197472) от 06.06.2023
+
+VA - Music News vol.268 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bebe Rexha - Call On Me (David Guetta Remix) (02:55)
+ 002. 10AGE - Демоны (03:17)
+ 003. Abdulkarim - Моя История (03:52)
+ 004. Adam Lambert feat. Sigala - You Make Me Feel (Mighty Real) (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB452588CA37769DE585FFE4B4F99852348EAE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638765   (197196) от 12.06.2023
+
+VA - Музыка для машины Vol.25 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adon Mix - По Таймеру (02:12)
+02. Martin Jensen - Harry Styles (02:27)
+03. Roxen - Cenusa (Adrian Funk & Olix Remix) (03:03)
+04. Soblydie Feat. & 1exia - Капли (03:18)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8D2453CBCE3B922BD3BB4BBEFCE0A19DB8FC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639054   (197142) от 11.06.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 09.06.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loreen - Tattoo (3:03)
+02. Tove Lo - Borderline (3:13)
+03. Maneskin feat. Tom Morello - Gossip (2:48)
+04. Purple Disco Machine feat. Kungs - Substitution (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E29E0BA44FBD209620D9575F4A44B331B6FEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639249   (197117) от 12.06.2023
+
+VA - Remixes 2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197117.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Silk City - Electricity (feat. Dua Lipa) - MK Remix (5:46)
+002. Dolly Parton - Jolene - Destructo Remix (5:15)
+003. Diplo - Don’t Forget My Love - John Summit Remix (5:12)
+004. Whitney Houston - How Will I Know (Extended Remix) Clean (5:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57495A059CB472595228A4C67584FA535A02F92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640460   (196897) от 19.06.2023
+
+VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Саша Санта - Время-Жить (03:04)
+02. Jake Shears Feat. & Kylie Minogue - Voices (04:27)
+03. Kalifarniya - Puerto-Rico (03:53)
+04. Андрей Картавцев - Налей Огня (03:49)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF8ADC8333F56A8F98AEBD60637CFDD49E268C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641955   (196549) от 25.06.2023
+
+VA - The Galactic Symphony (2023) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Julius Jung - Oreon [06:29]
+002. Leonardo - Futura [06:20]
+003. Ortus - Way Out [06:04]
+004. Unseen - No Future [08:04](   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 10:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C6FE0476130FFB600F35213E8F8469916C9748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642452   (196513) от 27.06.2023
+
+VA - just hits 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MEDUZA - Upside Down (feat. Poppy Baskcomb) (6:24)
+02. Swedish House Mafia - See The Light (feat. Fridayy) (5:08)
+03. The Weeknd - Double Fantasy (with Future) (4:29)
+04. Bad Bunny - WHERE SHE GOES (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A0AD45E5CAA3DB15CCBA93441CEC5E055D18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019109   (196401) от 28.06.2023
 
 VA - Nu Disco Vol.3 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
@@ -542,209 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C184CF5D2E8F7E3B50668239090D1CCDB4EB36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651977   (194473) от 12.08.2023
-
-VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scary Goldings - Equal Parts Timing & Romance [03:16]
-002. Rahsaan Roland Kirk - I'll Be Seeing You [06:22]
-003. Joey DeFrancesco - More Music [06:05]
-004. Fernando Rusconi Hammond Organ Trio - Buga Buga Boogaloo [05:48](   Читать дальше...   )Жанр: Hammond, Instrumental, JazzПродолжительность: 21:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E56490A685022E7E108D42558586626641497BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652889   (194395) от 13.08.2023
-
-VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yolanda Be Cool - Segunda feat Jonjon Extended Mix (5:48)
-002. BLOND ISH - Call My Name (Extended Mix) (5:00)
-003. Eelke Kleijn - Time Machine (4:31)
-004. Swedish House Mafia - Ray Of Solar (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C98137BB6083C4ADE85981CB479B6344FCAD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653040   (194270) от 14.08.2023
-
-VA - Дискотека 2023 Dance Club Vol. 220 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. Max Oazo feat. Bonzana - Rhythm Is A Dancer (3:13)
-002. R3hab, Inna & Sash! - Rock My Body (2:17)
-003. Robert Cristian feat. Alis Shuka - The Day Before (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 23:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CEDE1E5615DA14816F28BF440D237AB7319190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907416   (194182) от 16.08.2023
-
-Олег Митяев - Просыпаясь, улыбаться (2015) [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Давно мы не были в Тамбове
-02. Просыпаясь, улыбаться (посв. Ф. Конюхову)
-03. Друг мой
-04. Весенний призыв(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1BD5E6993CD90175DE5B5A56E227F135B989C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654322   (194082) от 20.08.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 18.08.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Dance The Night (2:56)
-02. Dj Belite - All Eyez On Me (2:41)
-03. Purple Disco Machine feat. Kungs - Substitution (3:01)
-04. LiL Durk feat. J. Cole - All My Life (3:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E3E420ABD5EBC2FD46C085F2C84BD2BC9C3CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654263   (194061) от 19.08.2023
-
-VA - Дискотека 2023 Deep House - The Best Vol. 9 от NNNB [MP3|320 Kbps] <Deep House, Club House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Melisa feat. Tommo - I Am Alone (2:59)
-002. Dani Corbalan - Broken (Extended mix) (5:04)
-003. Butch U - Night Drive (3:20)
-004. TRITICUM - Play Me (2:18)(   Читать дальше...   )Жанр: Deep House, Club House, OtherПродолжительность: 15:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D7E6720EFAD65978E60BE9D02002209768B5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654152   (194000) от 22.08.2023
-
-VA - Music Therapy (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ensemble de Musique Zen Relaxante - Objectif relaxation [03:47]
-02. Sam Garrett, Mollie Mendoza - Light Of Your Grace (Live at Monte Sahaja) [07:13]
-03. Beautiful Chorus - Inner Peace [04:04]
-04. Krishna Das - Baba Hanuman [13:57](   Читать дальше...   )Жанр: Electronic, Lounge, Relax, MeditationПродолжительность: 07:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E249BCC91F7E8B78EC5F65A0CA0E654F9D2B1B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

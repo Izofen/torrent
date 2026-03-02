@@ -1,3 +1,206 @@
+###  Публикация: 1199292   (801775) от 15.01.2018
+
+VA - Chillout - Ocean sounds (2018) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bachot Muna - Do It
+02. Darin Epsilon - Endless Sands Of Time
+03. Projekt Phoenix - Lighthouse
+04. Down Under - Guess(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62A3025F8E72ACEFC2CF7E2D611FA2BB0636109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199336   (801769) от 15.01.2018
+
+VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801769.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Abba - Dancing Queen (3:50)
+002. Tavares - Heaven Must Be Missing An Angel (6:56)
+003. Nazareth - Love Hurts (3:52)
+004. Bzn - Mon Amour (4:08)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556D6CE5FD9E5A0A9281C2B403DE94BB555C20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199172   (801699) от 15.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0001  (2018)
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etolie Vipe - Cheats For Glory ( 2014 )
+02. Chris Luis - The Heart Of The City ( 1984 )
+03. T.J. Thornberry - Release Yourself ( Original Mix 2016 )
+04. AmbrA - Dream the Summer Back ( Club Mix Version 2005 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0E5B77F908D1EC633B84FF644A61B3CE300A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199315   (801688) от 15.01.2018
+
+VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Techno, Dark Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2nd Phase - Propel The Light (Original Mix)
+02. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix)
+03. Acidbro - Yeah, Bosh! (Nopopstar Remix)
+04. Alex ll Martinenko - Eruption (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, Techno, Dark ProgressiveПродолжительность: 27:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506086   (801651) от 29.10.2021
+
+VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frankie Lluc - Recreation Ego
+002. Small Tok - Play Me
+003. Pretty Pink - Let You Go
+004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199332   (801645) от 15.01.2018
+
+VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Laura Fygi  -  Good Morning Heartache  4:10
+02.  Diana Krall  -  Let's Fall In Love  4:19
+03.  Viktoria Tolstoy  -  From Above  4:32
+04.  Tony Bennett & Billy Joel  -  New York State Of Mind  4:35(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578E27A74351204CE5DE2EF71DB9BCB97B47D62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120603   (801614) от 31.03.2017
+
+VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Turbotronic - Iriwa (Radio Edit) 3:03
+002. Jason Derulo - In My Head (Kr8 x CandyCrash Remix) 3:19
+003. Imad Kotbi Ft. Ryan McTogy - Wild (Original Mix) 3:42
+004. Steven Nicola & Karim Razak feat. Honorebel - Bootyshake 3:13(   Читать дальше...   )Жанр: Dance , Club House , Electro HouseПродолжительность: 07:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F863B9CE920A71101298D799F736881AF8CA8683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120606   (801611) от 31.03.2017
 
 VA - Старые песни по-новому. Русский выпуск (2017) [MP3|320 Kbps] <Pop , Disco , Dance>
@@ -539,209 +742,6 @@ VA - Танцевальная вечеринка Хит FM. Выпуск № 6 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3079CFA6F1991F16BD98C0AEAA6DBC5A62D032F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120972   (800602) от 02.04.2017
-
-VA - Любимые хиты весны. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cash'u - Хочу 3:29
-002. Дискотека Авария & Филипп Киркоров - Яркий Я 3:28
-003. Aksioma Project - Мечтай 4:30
-004. Виталий Козловский - Мое Желание 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FA96A6A2F11006F977680DD9EDCEE57DBD8D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120988   (800601) от 02.04.2017
-
-VA - Лучшая дискотека на Europa Plus. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vavan Aka Вова Селиванов - Хулиганка 3:36
-002. Мария Миа - Я Буду 2:50
-003. Mainstream One - Нам Солнце Светит Ярче 3:00
-004. Регина Тодоренко - Не Обижу 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DCB313235FADCA32EA74F871DFE7F8887E9DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273389   (800572) от 01.01.2019
-
-Deep Purple - Love Conquers All (Greatest Ballads) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Conquers All
-02. When A Blind Man Cries
-03. Fortuneteller
-04. Lalena(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC4317ED698AF5B25D13FF44F3A0907AD7F380A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120971   (800555) от 02.04.2017
-
-VA - Музыкальный подарок от Европы Плюс. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ирма Нойман - Я Буду 2:51
-002. Ольга Орлова - Девушка Простая 3:35
-003. А-Студио - Только С Тобой 4:19
-004. Майк Павлов - Лайки 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121292   (800547) от 02.04.2017
-
-VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A - Mase - Spring Love, Mad Love (Radio Mix) 3:08
-002. Acidbro - Moon Day (Vip Tech Mix) 6:57
-003. Andrey Exx - Need to Feel Loved (Original Mix) 6:53
-004. Anton Suchorukov - Tagtraum (Original Mix) 4:45(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D69690693499768D102FB65283CDA8834941A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121171   (800545) от 02.04.2017
-
-VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran – Shape of You
-002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
-003. Kygo Selena Gomez – It Ain’t Me
-004. Jax Jones – You Don’t Know Me (feat. Raye)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121541   (800518) от 02.04.2017
-
-VA - Любимые песни шансона на стильном радио. Версия № 5 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800518.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Смирнов & Компания - Гимнастерка 3:06
-002. Олег Голубев - Для Тебя Любимая Моя 3:59
-003. Игорь Тузов - Ты Пацан По Жизни Не Грусти 4:03
-004. Алексей Башкиров - Слезы Дождя 4:04(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BB78547B798B0E0DB08EECDFAEB42121A25859
 ```
 
 https://mybot314.ru/tekegram_catalog/

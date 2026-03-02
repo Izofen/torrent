@@ -1,3 +1,205 @@
+###  Публикация: 1267970   (264805) от 08.12.2018
+
+VA - Сегодня на радио хиты FM (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264805.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Swanky Tunes, LP - Day By Day
+002. Burito - Взлетай (Radio Edit)
+003. Dua Lipa, Silk City - Electricity
+004. Мари Краймбрери - AMORE(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2F1BBE41104B0EC5A3410E5D496AE8DC3DF63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267765   (264764) от 08.12.2018
+
+VA - Partybreaks and Remixes - All In One October 001 (2018) [MP3|320 Kbps] <Dancehall, Reggaeton, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264764.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mario Santiago  Flo Rida V Clean Bandit - GDFR (Mario Santiago's Symphony Trap Mashup (Full))
+002. Mario Santiago  Juicy J V Caked Up & Reid Stefan - Bandz Make Her Dance (Mario Santiago''s King of the Jungle Festival Mashup (Full))
+003. Starjack  Kernkraft 400 vs Showtek vs Chumbawamba - Zombie Nation Tubthumping Swipe (Starjack - Walking Dead - 2017 Big Room (   Читать дальше...   )Жанр: Dancehall, Reggaeton, LatinПродолжительность: 09:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B595D57F1AFE87F6DB783D72BF4B8D3D8AAF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969345   (264399) от 27.12.2015
+
+VA - Bass Killer (2015) [MP3|320 кб/с] <Electro House, Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvaro & Jetfire - Guest List (Original Mix) (4:33)
+02. Beyonce - 711 (Skrillex & Diplo's Jack U Remix) (3:41)
+03. Dropgun - Ninja (Original Mix) (4:35)
+04. Dyro - Foxtrot (Original Mix) (4:00)(   Читать дальше...   )Жанр: Electro House, BassПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF905CCE4B13FC56A68BC43B53AA6160837F1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191341   (264182) от 14.12.2017
+
+VA - Trance Elegance On This Year 015 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Van Dyk & Farhad Mahdavi feat. Sue Mclaren  -  Together Again (Original Mix)  7:33
+02.  DJ T.H. & Athema feat. Elyse G. Rogers  -  Strong Enough (Ciro Visone Rmx)  8:05
+03.  Fabio XB & Liuck feat. Roxanne Emery  -  Nowhere To Be Found (Tangle Remix)  7:04
+04.  Undercontrol  -  Secrets Of Mars (Uplifting Mix)  7:14(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141DDF98B4E8C6D317D061D2A0AD664119EE9931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191588   (264174) от 14.12.2017
+
+VA - Euphoric Format: Vocal Trance Set (2017) [MP3|256-320 Kbps] <Vocal Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264174.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & JES - If Not Now (Album Mix)
+002. Somna - Believer (Extended Mix)
+003. Bogdan Vix & Lucid Blue - I Am Now
+004. Sunlounger & Eden Iris - Dancing With a Ghost (Club Mix)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 11:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F708F9808E20FE169CB7A05424FBB9830D6CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191597   (264146) от 14.12.2017
+
+VA - EDM: Electro House Movement (2017) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dzouns - Sunrise Shadows (Original Mix)
+002. Rich Franklin - Rush
+003. Nerutto - Baller 91 (Original Mix)
+004. Rampage Jackson - Wall(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3607AAB2373F095D08B6C5CAA4CB50E1DAB350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191642   (264145) от 14.12.2017
+
+VA - German Top 100 Single Charts 15.12.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Camila Cabello - Havana (feat. Young Thug)
+004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771041E04B53927AC6775CAC5E450BF53F562E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191624   (264135) от 14.12.2017
 
 VA - Vocal Trance Collection Vol.6 (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -539,209 +741,6 @@ VA - Trance Nation: Cyber Party (2017) [MP3|320 Kbps] <Progressive, Uplifting, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315B66788A3CCA64969880700F1D0A7AAE1CAB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192104   (263523) от 16.12.2017
-
-VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Weekend - That On
-02. Roger Mills - U and I
-03. Mooqee, Beatvandals - Player (Original Mix)
-04. Mutehead - Bee(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 06:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192006   (263498) от 16.12.2017
-
-VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263498.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phuture Point - The Mission (Wavegrooves Mix)
-002. Dele Sosimi Afrobeat Orchestra - Too Much Information
-003. Frank Vision - My Dad Is Gone (Dolphin Mix)
-004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340613   (263420) от 24.11.2019
-
-VA - Свежий Русский Хит от ALEXnROCK часть 4 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263420.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2019 год. Это 4я часть сборника. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Filatov & Karas — Не Было Никогда
-02. Ольга Бузова — Вот он я (DJ Karimov & DJ Oskar remix)
-03. St Feat. Artik & Asti — Моя Вина
-04. Molly — Красивый Мальчик (Leo Burn Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EFEFB4DAEAB199EEEB959C00A486E4442EC0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192209   (263393) от 16.12.2017
-
-VA - Top 100 Зайцев.Нет Ноябрь (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Slon & Katya feat. Роман Василенко  -  Life Is Good  3:01
-002.  J. Balvin & Willy William  -  Mi Gente  3:09
-003.  Дима Билан  -  Держи  3:41
-004.  Serebro  -  Между нами любовь  3:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAB62FDF644C27FEB1F7AC12AB45EF203966740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192386   (263245) от 17.12.2017
-
-VA - Zone Remixes - Fundamental Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik - Hold Me (Extended Mix) 7:00
-02. Carl Nicholson & K-Complex - Outta Here (Nicholson & Redrive Remix) 7:36
-03. Ayk - Rumination (Original Mix) 7:12
-04. Vince Schuld - Altered Nature (Extended Mix) 6:55(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFEDD41F2373988F9B6E3FCCD6BBE0E224DAA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192398   (263207) от 17.12.2017
-
-VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect 4:23
-02. Mariah Carey - All I Want For Christmas Is You 3:58
-03. Wham! - Last Christmas 6:49
-04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C03E5E7C265E9A6D6AD6B5F9A920684B6643BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192381   (263199) от 17.12.2017
-
-VA - Record Super Chart #516 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo  -  Momentum  3:28
-02.  EKTONIX  -  Vuono Matyn  2:30
-03.  Alan Walker  -  The Spectre  3:14
-04.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD8A72516D19C90410CE6D58EAA4BD4FA43EF86
 ```
 
 https://mybot314.ru/tekegram_catalog/

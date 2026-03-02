@@ -1,3 +1,206 @@
+###  Публикация: 1095922   (922775) от 22.01.2017
+
+VA - Empire Records - Dancenudisco 5 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbootica - These Days Are Gone (Club Mix Radio Edit)
+02. Dj Rauff A.R.B Music - Say That You Love Me
+03. Moomicoo - Don't Look Any Further (Moomicoo Mix)
+04. Lee Walker & Dj Deeon - Freak Like Me (Feat. Mnek & Katy B) (Disco Demolition Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA5921F79EFB2BBE222542B9F7EA7C846C722F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988139   (922726) от 19.02.2016
+
+VA - Top DJ Artist Sounds (2016) [MP3|227-320 кб/с] <Dance, Club, House, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Picasso - Want It Back (Origami) (Radio Edit) 02:40
+02. Carlprit & U-Jean - Domino (Video Edit) 03:24
+03. Don Esteban - Can U Feel It (Club Mix) 04:13
+04. Blaikz - City Lights (Radio Edit) 03:28(   Читать дальше...   )Жанр: Dance, Club, House, Nu DiscoПродолжительность: 08:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8EB9C1EF086FBB8A468FCB0F644BF023281C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095835   (922719) от 22.01.2017
+
+VA - Radio Italia Love (2017) [MP3|320 Kbps] <Italy Pop, Vocal>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922719.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 1. Ho creduto a me - Laura Pausini
+ 2. Potremmo ritornare - Tiziano Ferro
+ 3. Assenzio - J-AX & Fedez feat. Stash & Levante(   Читать дальше...   )Жанр: Italy Pop, VocalПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5227922951567EEE5C5292D48D30E1A2B2A757D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988152   (922660) от 19.02.2016
+
+VA - Ошеломительная женщина. Душевная музыка (2016) [MP3|256 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Беломорканал - Лагеря
+02. Рома Рязанский - Журавли
+03. Виталий Теринг - Ошеломительная Женщина
+04. Юлия Kalina - Я Буду С Тобой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CECB35B8C9A73F1BE77EB3C387675A44DD3663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095973   (922643) от 22.01.2017
+
+VA - Twisted Fantasy Pushup Sound (2017) [MP3|320 Kbps] <Latin, Twerk, Moombahton, Dancehall, Future House, Electro House, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922643.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juliet Sikora & Return Of The Jaded - Did You Take My Money (Clean) (Extended) [6:21]
+002. Deadmau5 - 4Ware (Clean) (Extended) [8:45]
+003. Dennis Cruz - Twisted (Clean) (Extended) [7:19]
+004. John Williams - Cantina Band (Alessandro Kraus Remix) (Clean) (Extended) [4:23](   Читать дальше...   )Жанр: Latin, Twerk, Moombahton, Dancehall, Future House, Electro House, ProgressiveПродолжительность: 08:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FCA6B9F50430B5F0AEB314D660D2A30ECC65AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095834   (922463) от 22.01.2017
+
+VA - Goodness & Grace: New Age Music (2017) [MP3|320 Kbps] <New Age, Relax, Meditation>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_922463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Parijat - Hearts Awakening  7:00
+02.  Mystica - Billie Jean  4:57
+03.  Stive Morgan - Free Fall  4:48
+04.  Medwyn Goodall - Orbit  3:40(   Читать дальше...   )Жанр: New Age, Relax, MeditationПродолжительность: 05:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DFE10670FDD8BDA2ABA2532297605BC58D353D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988257   (922455) от 19.02.2016
+
+VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elton John - Blue Wonderful
+002. Ольга Романовская - Держи Меня Крепче
+003. Bloc Cu Doddy Si Ela Rose - Daca Tu Ai Pleca
+004. Макsим - Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216264893EEAFA0192E14C4BF5F798759FF791EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366611   (922431) от 12.03.2020
 
 VA - Beats Mix Jungle (2020) [MP3|320 Kbps] <D&B, Jungle>
@@ -540,206 +743,6 @@ VA - Empire Records - ANDRS Parody (2017) [MP3|320 Kbps] <Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C418C17047D3BA4BE4B266BED527D34042D661F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096234   (920933) от 23.01.2017
-
-VA - Empire Records - Club Hit 5 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicola Fasano & Miami Rockets Ft. Anni - How Will I Know (Extended Mix)
-02. Alberto Ciccarini - Made Of Love (Original Mix)
-03. Conjure One Ft. Jeza - Brave For Me (LTN Sunrise Remix)
-04. Dryra & EpicFail feat. Nessakay - Run Your Love (Henry D & Alexander Orue Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233673B7C9B249598A83D18191750F47FB17DAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096074   (920920) от 23.01.2017
-
-VA - Function Total EDM (2017) [MP3|320 Kbps] <House, Future House, Progressive, Tech House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DVBBS & MOTi - Switch (Extended Mix)  3:34
-002.  Richard Wette & Danny Mellen - 33rd Parallel (Original Mix)  4:53
-003.  Savi & Bryce Fox - Breathe It In (Noah Neiman Remix)  4:18
-004.  Sam Feldt & Lucas vs. Steve ft. Wulf - Summer On You (Club Mix)  4:39(   Читать дальше...   )Жанр: House, Future House, Progressive, Tech House, Funky HouseПродолжительность: 08:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBC23616FBDF91723CAAE19E3885D65533A370E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096227   (920866) от 23.01.2017
-
-VA - Bass Killer 10 (2017) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Electro, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andres Fresko x Lit Lords — Fire Squad (Original Mix) (2:19)
- 02. Axwell x C-Mos — 2 Million Ways (Tony Romera Flip) (3:05)
- 03. Banghook x Bass King — Phat Groove (Original Mix) (4:15)
- 04. Diplo & Autoerotique — Waist Time (3:18)(   Читать дальше...   )Жанр: Dubstep, Big Room, Trap, Electro, Future BassПродолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F179C520C5F73B157649DA1EC566367BC20AF35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096184   (920861) от 23.01.2017
-
-VA - За Рулем. Хиты Зимы. Зарубежный (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920861.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Raleigh Ritchie - Unicron Loev
-002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy
-003. Karmen - You Got It
-004. Raye - You Don't Know Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54E9795B45405E3A6C9B07E63F6F25777A19920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096218   (920840) от 23.01.2017
-
-VA - Record Super Chart #471 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ofenbach & Amice - Be Mine (Amice Remix)  3:23
-02.  Hardwell & Quintino - Baldadig (Extended Mix)  3:40
-03.  Грибы - Копы (Vincent & Diaz Remix)  4:10
-04.  KSHMR & Marnik ft. Mitika - Mandala  4:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98236396FAB51E337672111F937BA541537B049B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096106   (920773) от 23.01.2017
-
-VA - Hits Cocktail (2017) [MP3|320 Kbps] <Dance , House , MashUp>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Bale - Sikk (Miami House Party Remix)
-02. Lucas & Steve Ft. Jake Reese - Calling On You (Club Mix)
-03. MAXXDRUMS - Watch It (Retro Boys Remix)
-04. Aanysa - Burn Break Crash (Madison Mars Extended Remix)(   Читать дальше...   )Жанр: Dance, House, MashUpПродолжительность: 04:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94491B11B1260B2034CF9E3601FC046B426962A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289034   (920716) от 30.01.2011
-
-VA - Звезды в шоке 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEDE8ECB90D81EAC36208843B36AF0018CB94BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

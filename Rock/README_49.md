@@ -1,3 +1,67 @@
+###  Публикация: 1562081   (509020) от 09.07.2022
+
+Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together We Run (4:49)
+02. Don't Give Up On Us (5:23)
+03. Still Believe In Love (5:16)
+04. You Got The Best Of Me (5:33)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EF326AB40E7DC1C57C9A526002302F071BCD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538901   (508642) от 24.08.2012
+
+Mungo Jerry - Cool Jesus (2011) [MP3|320 кб/с]<Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Jesus
+02. John Henry
+03. Far Away
+04. Let's Rock
+05. Give Us A Song
+06. Hello Baby
+07. Just Her Way
+08. Going Up The River
+09. You Can Get It If You Want It
+10. I Lie Awake(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89037AB40DC77916A35D09CCEC1726B7B5D84FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932935   (508321) от 30.08.2015
 
 Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Rock>
@@ -723,70 +787,6 @@ Jeff Beck & Johnny Depp - 18 (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E496D595BD2A3A53A3DC87E334B11B2C699A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541049   (502563) от 30.08.2012
-
-VA - Mojo Presents Yellow Submarine Resurfaces (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bill Wells & Aidan Moffat - Yellow Submarine (2:15)
- 2. Bevis Frond - Hey Bulldog (2:50)
- 3. Howe Gelb - Eleanor Rigby (2:51)
- 4. Cornershop - Love You To (3:23)
- 5. Jim White - All Together Now (3:16)
- 6. Natalie Duncan - Lucy in the Sky with Diamonds (4:03)
- 7. Pete Shelley - Think for Yourself (2:35)
- 8. Michele Stodart - Sgt. Pepper's Lonely Hearts Club Band (2:58)
- 9. Benjamin Francis Leftwich - With a Little Help from My Friends (3:08)
- 10. Wooden Wand - Baby, You're a Rich Man (6:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B50A30F7F7FFF1D246D3BDB79B6DE4330A14A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933310   (502518) от 05.09.2015
-
-The Sword - High Country (2015) [OGG| 435-535 кб/с]<70's Stoner Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unicorn Farm (00:50)
-02. Empty Temples (03:55)
-03. High Country (02:37)
-04. Tears Like Diamonds (03:46)(   Читать дальше...   )Жанр: 70's Stoner Rock, Hard Rock, Heavy MetalПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5A7F41EEC0525ABC4018A8464E05D8D529CAA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

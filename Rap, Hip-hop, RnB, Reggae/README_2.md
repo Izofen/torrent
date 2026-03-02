@@ -1,3 +1,90 @@
+###  Публикация: 1459758   (1022823) от 04.04.2021
+
+ST1M - Сьерра-Леоне (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сьерра-Леоне [03:17]
+02. Иллюзион [02:43]
+03. Р.И.П.К.И.П. [03:23]
+04. теRAPия [02:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B143AE2D90BECEB7A24556777460BDD0A91BFD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459768   (1022819) от 04.04.2021
+
+Horus - Герои вашего времени (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Туман [02:50]
+02. Когда уже? [03:18]
+03. Макабр (feat. ATL) [03:37]
+04. Убить дракона (feat. Ка тет) [03:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AAFC1A04F2B75231D2CBFCDB26E36EDBF09E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459761   (1022816) от 04.04.2021
+
+ST1M - Окна (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Окна (Original Soundtrack "Аль-Капотня") (feat. Макс Лоренс) [02:56]
+02. Светофоры [03:38]
+03. Буррито [03:13]
+04. Хватит [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C179D4BA86E5346A9D1D8AF67E8FBD25ACABE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459769   (1022815) от 04.04.2021
 
 XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -462,35 +549,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466388   (1018622) от 29.04.2021
-
-Uratsakidogi - Black Hop. Epos (2021) [MP3|320 Kbps] <Blackened Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Black Hop XI (Чёрный клан) [00:04:35]
-02. Black Hop X (Nordic Flow) [00:03:45]
-03. Black Hop XIV (Epos) [00:08:16]
-04. Black Hop XII (9 бонгов) [00:05:15](   Читать дальше...   )Жанр: Blackened Hip-HopПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D71242D966A0443774657918DC63F50F8C7099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467902   (1017568) от 05.05.2021
 
 Alfa Mist - Bring Backs (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz>
@@ -687,64 +745,6 @@ BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA5689C8B63F983BF8F61D3F3550EE90825A41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473851   (1013358) от 31.05.2021
-
-DMX - Exodus (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's My Dog (feat.The LOX, Swizz Beatz) (5:06)
-02. Bath Salts (feat. Jay-Z, Nas) (3:00)
-03. Dogs Out (feat. Lil Wayne, Swizz Beatz) (2:46)
-04. Money Money Money (feat. Moneybagg Yo) (2:09)(   Читать дальше...   )Производство: Def Jam RecordingsЖанр: Hip-HopПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E446783422E7EA733BEA8F5EFA67299046886E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474539   (1012992) от 02.06.2021
-
-VA - Chillhop Essentials Summer 2021 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hip-Hop, Trip Hop, Fusion Jazz>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Middle School, Henry Gritton – Solstice (2:26)
-02. xander. – Evening Stroll ft. Blue Wednesday (2:48)
-03. Mama Aiuto – Solar Cove (2:59)
-04. Misha – Talk (2:32)(   Читать дальше...   )Производство: Chillhop MusicЖанр: ChillHop, Hip-Hop, Trip Hop, Fusion JazzПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFEACA533CA1E02CF9384BA9CD63115E0C73AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

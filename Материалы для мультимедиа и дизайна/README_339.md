@@ -1,3 +1,29 @@
+###  Публикация: 1822469   (101070) от 06.10.2025
+
+3D print - SW3D - October 2025 Models [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние модельки от студии StarWars3DModels. Да пребудет с вами Сила.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17A6465B56579B6CB3A0A861E32CBF513FF9F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 148901   (101050) от 06.10.2025
 
 Шрифты - 12 000 русских шрифтов [ISO]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55D035E4D6E96999F09530BB670E9413A96AB79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822416   (100747) от 06.10.2025
-
-Дополнения - Blender Addons Bundle 1 October 2025 [ZIP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет дополнений для Blender на 1 октября 2025 г.Формат: ZIP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
 ```
 
 https://mybot314.ru/tekegram_catalog/

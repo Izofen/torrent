@@ -1,3 +1,32 @@
+###  Публикация: 782904   (476944) от 20.09.2015
+
+VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Lords - Precious Metal (Acoustic) [00:04:40]
+02. Last Autumn's Dream - I've Fallen Into You (Acoustic) [00:03:25]
+03. Brazen Abbot - Love Is On Our Side (Acoustic) [00:05:11]
+04. Sonic Station - I Wish I Could Lie (Acoustic) [00:04:04](   Читать дальше...   )Жанр: Acoustic MetalПродолжительность: 21:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8803BB8E8F130C05A9F9835A7CE273001ECC660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566646   (476403) от 01.08.2022
 
 VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post-metal, post-rock, sludge metal>
@@ -722,35 +751,6 @@ Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569135   (453510) от 12.08.2022
-
-The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie
-02. Rock and Roll Heaven
-03. Going to Hell
-04. House on a Hill(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 02:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1780C26F4B57F38161B60A80C31926242165CEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

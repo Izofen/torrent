@@ -1,3 +1,29 @@
+###  Публикация: 1795827   (19145) от 06.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Purple Plaid Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны сделанные в клеточку, под фиолетовый плед.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6695F8F1031587D49199CF99BBE3F349737ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795824   (19142) от 06.05.2025
 
 Фоны - Graphic Studio - Creative Fabrica - Boho Beige Backgrounds [PNG]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5472F0C394462A2594BB06C78BC25554ECF7F243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796696   (17773) от 19.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Landscape Paintings Digital Paper Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фоны в виде пейзажных картин.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7AB8D28462ACFAD62E5D61C574FAFF5AB8E90E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1327409   (373996) от 25.09.2019
+
+VideoHive, GraphicRiver, AudioJungle - Envato Bundle 2012 - 50 Premium Items Collection (Re-Up) [AEP, PSD, MOV, MP3, WAV, ATN, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373996.jpg" />
+</div>
+
+
+###  Подробнее
+
+этот сборник поможет веб-дизайнерам и графическим дизайнерам создать свои проекты в, Photoshop, After Effects, Background, Flyers, Facebook Covers и т. дФормат: AEP, PSD, MOV, MP3, WAV, ATN, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E3A65E65CA6AC9B54725E8027305E3EBBEF4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176011   (373931) от 20.10.2017
 
 Экшены - GraphicRiver - Architecture Sketch and Blueprint Photoshop Action - 19872456 [ATN, ABR, PAT]
@@ -652,32 +678,6 @@ Watercolor - экшен для Вашего творчества.Формат: A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:366BA8246C82732299D7B5D297FAE0C7895FC7A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069611   (371075) от 05.11.2016
-
-Экшены - GraphicRiver - 2B Sketch [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371075.jpg" />
-</div>
-
-
-###  Подробнее
-
-2B Sketch - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F813DA486F99A5CC02F083C23C8017C0E75D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

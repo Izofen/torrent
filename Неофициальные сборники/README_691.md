@@ -1,3 +1,206 @@
+###  Публикация: 1818887   (1182) от 24.09.2025
+
+VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #Mallorcadassindwir - Mallorca Das Sind Wir.mp3
+002. (Dis)Amore - Conta Su Di Me.mp3
+003. (G)I-Dle - Oh My God.mp3
+004. 1Tak - I Don't.mp3(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 25:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819647   (1174) от 24.09.2025
+
+Тимур Шаов - Premium Playlist (1997-2019) [MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Товарищи ученые» 30 лет спустя (Минск, 2005).mp3
+02. Sex в носках (При чём тут Фрейд, 2017).mp3
+03. Аполитичная песня (Любовное чтиво, 1997).mp3
+04. Аутотренинг (О чём молчал Герасим, 2010).mp3(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 07:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B4B5FDB30C6DAEAA18B1CA4127C41A78DF9D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819584   (1170) от 24.09.2025
+
+Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
+002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
+003. Another Way (Instrumental) {Another Way, 1988}.mp3
+004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819676   (1163) от 24.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aelyn - Believe In Us (Radio mix).mp3
+002. Aelyn - Hypnosis.mp3
+003. Aerobatics & Cotry - Intuition (Feat. Cotry) (Original Mix).mp3
+004. Aeron Aether & Bobalino - Titans  feat. Jay Furze (Album Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819642   (1157) от 24.09.2025
+
+Зоя Ященко и Белая Гвардия - Premium Playlist (1993-2020) [MP3|320 Kbps] <Sentimental Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. А в лесу сосновом... (Когда ты вернёшься, 2002).mp3
+002. Абсолютная ночь (Другие острова, 2001).mp3
+003. Айседора Дункан (Так восходит луна, 2013).mp3
+004. Алый парус (Кукла в кармане, 2005).mp3(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 08:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0EE3E96B703B2C04FC7D1176EEF13506E7E26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819726   (1153) от 24.09.2025
+
+VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cairo Steps - Desert Road (Wahbas Moonlight Remix) {Buddha-Bar - 20, 2018}.mp3
+02. Calavera & Manya - Mir {Buddha-Bar_ Straight to the Heart, 2024}.mp3
+03. Calavera & Manya feat. Maja Aleksic - Seta (Original Mix) {Buddha-Bar Clubbing • In Deep Session, 2017}.mp3
+04. Calm - Space Is My Place (Mark Barrott's Re-Imagination to the Sacred Heart Center) {Buddha-Bar (   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 05:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE3AF614F56232047D85E500F4286204E27C4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819576   (1139) от 24.09.2025
+
+Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock, Baroque Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife.mp3
+02. Age of Anxiety I.mp3
+03. Age of Anxiety II (Rabbit Hole).mp3
+04. Awful Sound (Oh Eurydice).mp3(   Читать дальше...   )Жанр: Indie Rock, Art Rock, Baroque PopПродолжительность: 03:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819585   (1138) от 24.09.2025
 
 Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tango Nuevo>

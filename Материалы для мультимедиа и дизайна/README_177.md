@@ -1,3 +1,30 @@
+###  Публикация: 1302555   (580117) от 16.05.2019
+
+3D модели - Daz 3D - Sanjay 8 Pro Bundle - 60829 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Sanjay 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D018CCDD19FA98F26EA775135571147805A9D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302537   (580099) от 16.05.2019
 
 3D модели - Daz 3D - Tika 8 Pro Bundle - 59259 [DUF]
@@ -649,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:540ECAF4402AB7339BF7746C66C5C87F33392AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042718   (578096) от 13.08.2016
-
-Экшены - GraphicRiver - Paint Splatter - Photoshop Actions [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paint Splatter - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D0DA7892967A716E27B55C605A2B32E34D8ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

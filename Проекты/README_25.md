@@ -1,57 +1,3 @@
-###  Публикация: 978664   (961952) от 24.01.2016
-
-Проекты - Проект ProShow Producer - Classic Frames [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. Презентация с классическими рамками для ваших изображений.
-Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью, стили, папка с рамками и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7476329DFDEC1363E8DBE2207596D7332CDDE9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978699   (961950) от 24.01.2016
-
-Проекты - VideoHive - Billboard In Night City [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B2ABB3D88A72F143A12B3A76B2A7FF4514BAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978687   (961945) от 24.01.2016
 
 Проекты - VideoHive - The Dipping [AEP]
@@ -690,6 +636,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBB9A677FB04E0FA708BF2411406701CEDB3416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979479   (959539) от 26.01.2016
+
+Проекты - BlueFX - Business Puzzle [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DA9910BA86EFEBE11D62E06C4386C877CC5C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979417   (959536) от 26.01.2016
+
+Проекты - BlueFX - Emotional Connections Character Pack [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания презентации.
+Используется в Adobe After EffectsФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BCD4D510BD97FEDDFE3B96A3BB2F13FEC2A681
 ```
 
 https://mybot314.ru/tekegram_catalog/

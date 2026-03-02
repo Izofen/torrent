@@ -1,3 +1,29 @@
+###  Публикация: 1028162   (692484) от 21.06.2016
+
+Экшены - GraphicRiver - Architect Photoshop Action - Sketch Effect Creator [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Architect - Sketch Effect Creator - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDE55794F8353C7B84D9B512EC0C5DA8AD123EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027669   (692368) от 21.06.2016
 
 Экшены - GraphicRiver - Colorful Spectr Photoshop Action [ATN]
@@ -645,32 +671,6 @@ BOOM Library - Historical Firearms Bundle позволит в кратчайши
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6CB0664903E4791A2B0B1F6B96F102E93FF6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221924   (689560) от 27.04.2018
-
-Текстуры - Creativetacos - Free 5K Stripe Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные полосатые текстуры.Формат: JPGРазрешение файлов: 5120px X 2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36EBB2FCB5FD122EC6FE332821057E5FA7252B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

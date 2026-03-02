@@ -1,3 +1,61 @@
+###  Публикация: 1181930   (321200) от 08.11.2017
+
+Deep Purple - A Fire in the Sky (2017) 3CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Hell to Pay
+02. Vincent Price
+03. Wrong Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A56ED9967B365653984C15801365AEBF87122F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421245   (319893) от 04.11.2020
+
+Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Glam, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Psycho Suzy
+2. No Way Out
+3. Rockin' America
+4. Give The Night Away(   Читать дальше...   )Жанр: Glam, Hard RockПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D94FAC0948D061B128A5658FE010881F0A0686B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 727831   (319581) от 28.11.2013
 
 Scorpions - World Wide Live (1985) [FLAC|Lossless]<Hard Rock>
@@ -693,64 +751,6 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [FLAC|image + .cue] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474A1CE1E4C4858B0278114C1DDBBBC34350D598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332860   (309727) от 22.10.2019
-
-Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Win I Lose (6:01)
-02. Bring Your Light Out (5:07)
-03. Blow A Fuse (3:55)
-04. Never Say Goodbye (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42159C0C653C748F9FFB3AF96B0594C7645A84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077234   (308893) от 27.11.2016
-
-Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Room With A View 03:20
-02. No Man's Land (The Blue And The Grey) 04:18
-03. If You Want Me 04:08
-04. Storyville 05:00(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
 ```
 
 https://mybot314.ru/tekegram_catalog/

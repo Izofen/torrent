@@ -1,3 +1,31 @@
+###  Публикация: 1354093   (989728) от 20.01.2020
+
+Векторный клипарт - 16 Abstract Background Creative Lines And Circles [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Абстрактные фоны
+16 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E578F12AD397ABB9D6AFD1F4E01C2EE910E92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354083   (989727) от 20.01.2020
 
 Векторный клипарт - Fotolia - 15 Elegant Vintage Frame [EPS]
@@ -662,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6629B2474ABEAC30DD5EA8D0E4C85AC758480D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354242   (988804) от 21.01.2020
-
-3D материалы - Megascans Displacements- All 52 Maps 4K [JPG, EXR]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка из 52-х 3D материалов со всеми картами и самом высоком разрешении.Формат: JPG, EXRРазрешение файлов: 8192x8192
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E030D361F0F09B782F504EAEF8BE62730836077
 ```
 
 https://mybot314.ru/tekegram_catalog/

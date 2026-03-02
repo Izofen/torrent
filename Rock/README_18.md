@@ -1,3 +1,61 @@
+###  Публикация: 1502738   (824728) от 16.10.2021
+
+The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across The Universe (1970 Glyn Johns Mix) [00:03:31]
+02. I Me Mine (1970 Glyn Johns Mix) [00:01:45]
+03. Don’t Let Me Down (Single Version / 2021 Mix) [00:04:08]
+04. Let It Be (Single Version / 2021 Mix) [00:03:52]Жанр: RockПродолжительность: 5CD, 02:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F41B40CCD3EB6156C9688233916A861FEE2453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996786   (824211) от 19.03.2017
+
+Chuck Berry - Gold (2005) 2CD, Compilation [MP3|320 кб/с]<Rock and Roll, Rhythm and Blues, Chicago Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824211.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:22] 01. Maybellene
+[03:05] 02. Wee Wee Hours
+[02:24] 03. Thirty Days
+[02:45] 04. You Can't Catch Me(   Читать дальше...   )Жанр: Rock and Roll, Rhythm and Blues, Chicago BluesПродолжительность: 02:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFE0BEBFD59D977B192970E9584DB2AFC982E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 196829   (823582) от 29.04.2010
 
 It's A Beautiful Day - 5 Альбомов (1969-1973) [MP3|320 kbps]<Progressive Rock, Psychedelic Rock, Folk Rock>
@@ -676,64 +734,6 @@ April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1E465BBADAD69A500947EE17565B1E12DAC9C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118036   (815047) от 24.03.2017
-
-The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Soft Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nanana [03:29]
-02. Fell In Love With An Alien [03:24]
-03. An Angel [03:54]
-04. Stand By Me [03:31](   Читать дальше...   )Жанр: Pop-Rock, Soft Rock, FolkПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98415A6341735513FA756EC8A6CA3B324FA41BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197759   (813922) от 08.01.2018
-
-Coloured Balls - Ball Power (1973) Reissue, 2006, Aztec Music [MP3|320 Kbps] <Hard Rock, Punk Rock, Blus Rock, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flash
-2. Mama Don't You Get Me Wrong
-3. Won't You Make Up Your Mind
-4. Something New(   Читать дальше...   )Жанр: Hard Rock, Punk Rock, Psych-Rock, Blues Rock, Rock 'n' RollПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDA7762D14125EE22F6215D1F4DBEFCE292B9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,186 +1,25 @@
-###  Публикация: 1045211   (561258) от 22.08.2016
+###  Публикация: 1152817   (561764) от 25.07.2017
 
-Ден Бланк | IQ в футболе. Как играют умные футболисты (2016) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как научиться не бездумно бегать по полю, пиная мяч, а выстраивать стратегию и принимать по-настоящему умные игровые решения. Простым и доступным языком автор объясняет наиболее типичные ошибки, раскрывает основные концепции психологии футболистов и учит думать на поле.
-
-Тем не менее это не просто книга теоретических советов для игроков. Она полна практических инструкций, (   Читать дальше...   )Жанр: Спорт, футболФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E63B0C5A860D8376EF548D0D63CA3072F8B90EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045298   (561257) от 22.08.2016
-
-Орел и решка. Кругосветка (2016.08.22) SATRip (сезон 12: Гвадалахара)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561257.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FA1B1A1D8B67F399E98D3F83B5DB81051F4310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045031   (561256) от 22.08.2016
-
-VA - Kings of Classic Rock (2016) [MP3|320 Kbps] <Rock, ArtRock, HardRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boxtops - The Letter
-02. The Beatles - We Can Work It Out
-03. The Rolling Stones - Play With Fire
-04. Zombies - She's Not There(   Читать дальше...   )Жанр: Rock, ArtRock, HardRockПродолжительность: 07:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E7402D7B68F6301065C1D258328736288CBE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045139   (561255) от 22.08.2016
-
-Миссия в Майами / Ride Along 2 (2016) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне собственной свадьбы Бен отправляется с братом своей будущей жены, крутым полицейским Джеймсом, в Майами, чтобы схватить наркодельца.Производство: США / Cube Vision, Universal Pictures, Will Packer ProductionsЖанр: боевик, комедияРежиссер: Тим СториАктеры: Айс Кьюб, Кевин Харт, Тика Самптер, Бенджамин Брэтт, Оливия Манн, Кен Жонг, Брюс МакГилл, Майкл Эдвард Роуз, Шерри Шеперд, Артуро дель ПуэртоПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CFEF6C77F438E66959221BBB08D5358890747D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045183   (561254) от 22.08.2016
-
-Евгений Банников | Обустройство дачного участка. Быстро, красиво, экономно (2014) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561254.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Данная книга имеет все основания стать настольной для каждого индивидуального застройщика. И не столь важно, что находится в вашем распоряжении - огромное имение или небольшой дачный участок. Сведения об отводе воды, особенностях уличного освещения, рекомендации по строительству искусственных водоемов, мостиков, беседок, подпорных стенок и прочих сооружений, (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC33E85BE6242D802E7B86B9797CC8731A1B835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045020   (561253) от 22.08.2016
-
-Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic Fields Part 1 17:57
-02. Magnetic Fields Part 2 03:59
-03. Magnetic Fields Part 3 04:11
-04. Magnetic Fields Part 4 06:25(   Читать дальше...   )Жанр: <Electronic, Instrumental, New Age>Продолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE23FB2DDBB33075B9C3F5C287CD2AE65B97FE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045120   (561252) от 22.08.2016
-
-Avast Clear 12.3.3154 [Multi/Ru]
+Футбол. РФПЛ. Чемпионат России 2017-2018. 2-й тур. Уфа (Уфа) — Спартак (Москва) (23.07.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561252.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
+23 июля 2017 года, воскресенье. 15:00 МСК
+РФПЛ. Чемпионат России 2017 - 2018. 2-й тур
+Уфа (Уфа) — Спартак (Москва)
+Стадион: Нефтяник (Уфа, Россия), 12571 зритель (83 % при вместимости 15200)(   Читать дальше...   )Телекомпания: Наш ФутболЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:554B831C04FE981CD514CD36D7299C03911C6A99
+magnet:?xt=urn:btih:E9F68194A8A2C817400BEEEEAD28A6946A5F86B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045133   (561251) от 22.08.2016
+###  Публикация: 1152960   (561763) от 25.07.2017
 
-Машины-монстры: Volvo Iron Knight - грузовик с 2400-сильным двигателем, созданный специально для новых мировых рекордов
+VA - Sunset Session (2017) [MP3|320 Kbps] <Progressive House>
 
->>След.
->>DailyTechInfo
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_561251.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вряд ли кому-нибудь из водителей доведется встретить на дорогах новый грузовой автомобиль Volvo "Iron Knight". Ведь построенный на базе серийного грузовика Volvo FH, этот автомобиль был создан специально для того, чтобы установить новые рекорды скорости, а поможет ему в этом деле форсированный двигатель, мощностью 2400 лошадиных сил (1790 кВт), и уникальная (   Читать дальше...   )
+01. Ambassadeurs - Looking At You (feat C Duncan - Moods remix)
+02. Sophisticated - Take the Groove
+03. Godlips - Fly Away (Jako Diaz Remix)
+04. Sons Of Maria - Surrender(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:28:07
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EE063D04B78812768F9802CD09AD15F5E8DFEA2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,34 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 529887   (561248) от 03.08.2012
+###  Публикация: 1153026   (561762) от 25.07.2017
 
-Dj Feel - TranceMission Top 25 Of July (2012) [MP3|320 кб/с]<Progressive Trance, Uplifting Trance>
+Thiago Brey - Ablantis (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DJ Feel - TranceMission (Top 25 Of July 2012) - INTRO
- 25. Shato - Fridate (Original Mix)
- 24. Hard Rock Sofa & Swanky Tunes - Here We Go (Original Mix)
- 23. Armin van Buuren feat Kirsty B - Free Of War (Original Club Mix)
- 22. 4 Strings - The Other Side (Original Mix)
- 21. Erick Strong vs. Dart Rayne - Shamballa
- 20. Amurai - Valencia (Original Mix)
- 19. Armin van Buuren pres Gaia - Jai Envie De Toi (Protoculture Remix)
- 18. Ost & Meyer - Tenerife
- 17. Hartseer - Hesperus (Original Mix)(   Читать дальше...   )Жанр: Progressive Trance, Uplifting TranceПродолжительность: 01:58:20
+01. Printhead (Original Mix) (03:30)
+02. Parliament (Original Mix) (05:20)
+03. Propellant (Original Mix) (03:32)
+04. Propene (Original Mix) (03:32)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:182C3601F3591533A3C5FB36889511E112BDDD70
+magnet:?xt=urn:btih:D5C0C3D155B106A9D5F8493363272DAE0BB7F0DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,25 +85,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530710   (561247) от 03.08.2012
+###  Публикация: 1153049   (561761) от 25.07.2017
 
-Журнал | Rolling Wheels №4 [июль-август 2012] [PDF]
+Horace Parlan - Seven Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561761.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Movin' & Groovin' and Us Three:
+01. C Jam Blues [05:12]
+02. On Green Dolphin Street [05:30]
+03. Up In Cynthia's Room [05:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 04:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C38702F3166A1B410F59F7BE1B5834B4D29AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152832   (561760) от 25.07.2017
+
+VA - Hush Digital Summer 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LYP - Endless Bliss (feat. Jade MayJean)
+02. The East Coast Get Down Collective - Disco Stew (Souljackers remix)
+03. Persephone - In My Dreams (Original Mix)
+04. Fizzikx - I Want You Back (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DED7B8C03B77E55F787E9DFCE03936DE8D279D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153071   (561759) от 25.07.2017
+
+VA - Precious Lounge Vol.05 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elisete & Dr. Drummer - Hot Shot (Eddie Valdez Mix)  7:46
+02.  Rey Salinero - High Definition Of Heart (Original Mix)  5:15
+03.  Collective Sound Members - Present Tense (Original Mix)  4:49
+04.  Proxy Brides - Round 'n' Round (Part 2)  5:41(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5AE2BFA011A652C34D5F0BC0884CE681E3CA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152824   (561758) от 25.07.2017
+
+VA - Progressive House Summer Essentials (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Approaching Black - Salt & Sea (Original Mix)  7:50
+02.  Blugazer & The Cynic Project - Waves On The Ocean (Original Mix)  6:59
+03.  Marsh & Katherine Amy - Find Me (Original Mix)  3:28
+04.  Enviado Vida - Retinal Pathology (A Little Faster Mix)  5:07(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:541506E385DD98EC44335607274CE416ECD4FD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153043   (561757) от 25.07.2017
+
+Hedge 1.8.2 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rolling Wheels – единственный на сегодняшний день российский глянцевый журнал, посвященный ретро-автомобилям, военной технике и мотоциклам. Основная тема Rolling Wheels - классические автомобили, начиная с самых первых и закачивая теми, что были выпущены до нефтяного кризиса 1974 года. Эпоха, когда Автомобиль был не просто средством передвижения, напичканным гаджетами, эпоха, когда у Автомобиля была душа. Помимо гражданских машин, немалый объем в Rolling Wheels занимает военная техника, а также военная история.Формат: PDF
+Резервное копирование и проверка файлов
+Есть много вариантов, когда речь заходит об утилитах копирования и проверки. Одна из новейших программ, называется Hedge For Mac. Hedge For Mac позволяет пользователю создавать несколько резервных копий своих мультимедийных носителей и полностью проверять эти копии. Программа использует очень простой пользовательский интерфейс, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: hedgeformacПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B565AA7C81724455F85CFAB635B62B8166B06628
+magnet:?xt=urn:btih:C7437475CAE50912CC8B2B9010DEF96F11128F00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,25 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530543   (561245) от 03.08.2012
+###  Публикация: 1153160   (561756) от 25.07.2017
 
-VA - Balance & Beauty - Красота и Гармония (2009) [MP3|320 кб/с]<New Age, Relax, Meditative>
+VA - House Fiesta Ibiza 2017 [MP3|320 Kbps] <House>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01Жанр: New Age, Relax, MeditativeПродолжительность: 01:01:13
+01.  Filatov - Back In The Love (Swanky Tunes remix)
+02.  D.O.N.S. - You Used To Hold Me (feat Terri B. - Avicii remix)
+03.  Patric La Funk - Xylo (Bingo Players remix)
+04.  Seal De Green - Summer Love (Dany Cohiba remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:22:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91435EC39FB22DF7D70609484F285853018425CB
+magnet:?xt=urn:btih:C164411EE487CE325D30506DE740368B856CD994
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,32 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530608   (561244) от 03.08.2012
+###  Публикация: 1153052   (561755) от 25.07.2017
 
-Владислав Выставной | Планета на прокачку [2008] [FB2]
+Paolo Fresu & Omar Sosa - Alma (2011) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Земля – планета?
-Так утверждают все школьные и прочие учебники.
-Но, увы, так вовсе не считают «чужие», для которых Земля – всего лишь старомодный, давно списанный корабль для знаменитых некогда Звездых гонок!
-И самое скверное – то, что теперь инопланетяне, вспомнившие о морально устаревшей технике, намерены этот корабль тщательно очистить, зашкурить, покрасить, продать за долги и заново пустить в дело!
-А… как же люди?
-Это «чужих» совершенно не волнует… если не найдется землянин, способный объявить себя официальным владельцем этой гигантской «керосинки» и, сообразно галактическим законам, распорядиться своей собственностью.
-Закон же гласит: Земля должна быть отремонтирована, пройти строгий техосмотр и… принять участие в очередных Звездных гонках! И как прикажете действовать в данных обстоятельствах несчастному молодому парню Илье, по чистой случайности объявленному владельцем нашей планеты?
-Что-то делать надо. Вопрос только – что?!Формат: FB2
+01. S'Inguldu [05:33]
+02. Inverno Grigio [05:28]
+03. No Trance [03:36]
+04. Alma [05:49](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 01:00:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:323CBDB7741711CE2C53B91DE0D14DED8A7D675B
+magnet:?xt=urn:btih:524F25614448A3ABCDED869F058C9BCADC171568
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,32 +286,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 531024   (561239) от 03.08.2012
+###  Публикация: 1153025   (561754) от 25.07.2017
 
-VA - 15 Top Trance Hits 07 (2012) [MP3|320 кб/с]<Trance>
+Журнал | Цветники в саду №8 (август 2017) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561239.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - 15 Top Trance Hits 07 (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:09:45Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТреклист:
-01. Armin van Buuren feat. Ana Criado - Suddenly Summer (Norin & Rad Remix)
- 02. W&W & Jochen Miller - Summer (Original Mix)(   Читать дальше...   )
+Красочный и очень полезный журнал для тех, кто действительно любит жизнь, для всех ценителей красоты и любителей цветов, будь то садоводы-любители или профессионалы, владельцы небольших участков или современных коттеджей. Журнал станет незаменимым помощником при проектировании и разработке цветников, поможет вам правильно подобрать цветы и растения для оформления (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFA87A09ABE0B5B78230D4B79228DCCB91393FA6
+magnet:?xt=urn:btih:CBC042D47EA1595CB6881D2E31899255ADB23973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,56 +312,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530800   (561238) от 03.08.2012
+###  Публикация: 1152958   (561753) от 25.07.2017
 
-Н. Хoдзa | Boлшeбнaя чaшa [1957] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник индийских сказок для детей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82E05C5F1900834441DD7CF401E420CFF31ADA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529623   (561237) от 03.08.2012
-
-Voiceless Void - Vampire - Another Side Of Death (2005) [FLAC|Lossless]<Gothic Doom Metal>
+Heavy Load - Metal Conquest (1981) 2017, Heavy Sounds [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561237.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Ages (intro) [00:01:25]
-02. Shadows [00:04:12]
-03. Fury [00:03:45]
-04. Transylvania Tears [00:03:46]
-05. Another Side Of Death [00:04:49]
-06. Immortality Is A Good Thing [00:00:30]
-07. Absinth Dance [00:04:42]
-08. Love Like Blood [00:04:12]
-09. Awake The Monster [00:03:17]
-10. Hunting For The Beast [00:03:29](   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:40:34
+01. You've Got The Power
+02. Dark Nights
+03. Heavy Metal Heaven
+04. Hey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BE23302FBFFF793CF8FE3A557E419E5E5AC3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153037   (561752) от 25.07.2017
+
+VA - Terminal Trancer Vol. 1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Sundive - Alone (ReOrder Remix) (feat. Irena Love) (08:29)
+02. Kiyoi & Eky - Turn Back the Rain (Mark Van Gear Remix) (08:08)
+03. Elusive Sense - Samsara (Skylex Remix) (06:43)
+04. Second Element - The Way Out (Unbeat Remix) (feat. A*s*y*s) (05:28)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0FBC340CBF6389ACFF843190AE2FC74701F8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153179   (561751) от 25.07.2017
+
+VA - Chill In The Morning: 20 Chillout Tunes To Wake Up (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_561751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Brunetti - Research
+02. Jon Cooper - Fire in the Sky
+03. Antonio Nasca And Davide Mottola - Moonman
+04. Brass - New Life(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:10:42
 
 ## Скачать торент
 ```bash
@@ -428,34 +399,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530118   (561236) от 03.08.2012
+###  Публикация: 1153150   (561750) от 25.07.2017
 
-Butterfly - Trance Life Radio Podcast 001 (July 2012) (31.07.2012) [MP3|320 кб/с]< Progressive House, Progressive Trance, Vocal Trance>
+Газета | 1000 секретов [Украина] №14 (июль 2017) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561236.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fusion F & Come T -  Blue River (Original Mix)
-02. Seb Dhajje -  Leeknath (Original Mix)
-03. Scotty.A -  Anxious (Original Mix)
-04. Robert Nickson pres RNX -  Suffer (Original Mix)
-05. Eximinds -  Breeze At Night (Original Mix)
-06. Exitvibes feat. Mirjam -  Amsterdam (Original Mix)
-07. Timur Shafiev -  Glory (Original Mix)
-08. Snatt & Vix & Denise Rivera -  Here For The Rush (Dallaz Project Remix)
-09. Dimension feat. Arielle Maren -  Letting Go (Shingo Nakamura Remix) Recordings)
-10. AYDA -  Coliseum (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Vocal TranceПродолжительность: 00:59:36
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68CCEBD250F976642C837E827B935214310FDEF1
+magnet:?xt=urn:btih:D344FEA29A3547CC82B41D9E301681E426E3EF7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,56 +425,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530534   (561235) от 03.08.2012
+###  Публикация: 1152870   (561749) от 25.07.2017
 
-[Графика] PIXIV Girls Collection 2010
+VA - Deep Chill Night: Relaxing Lounge Moods Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561235.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_561749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PIXIV Girls Collection 2010
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA5354F24A9262F3D8D37E781E0A25C146358AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530175   (561232) от 03.08.2012
-
-Patti Smith - Banga (2012) [FLAC|Lossless]<Rock/Post-Punk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amerigo (4:36)
-02. April Fool (3:47)
-03. Fuji-san (4:13)
-04. This Is The Girl (3:49)
-05. Banga (2:51)
-06. Maria (5:05)
-07. Mosaic (4:13)
-08. Tarkovsky (The Second Stop Is Jupiter) (4:50)
-09. Nine (5:03)
-10. Seneca (5:40)(   Читать дальше...   )Жанр: Rock/Post-PunkПродолжительность: 01:03:19
+01.  Giacomo Bondi - One Tone  5:33
+02.  Brass - White Sea  4:55
+03.  Brass - Freedom  4:04
+04.  Alove - Submission To Love (Original Mix)  6:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:08
 
 ## Скачать торент
 ```bash
@@ -524,55 +454,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 530929   (561231) от 03.08.2012
+###  Публикация: 1153018   (561748) от 25.07.2017
 
-VA - Armada Top 15 August (2012) [MP3|320 кб/с]<Trance>
+Alka - Principles Of Suffocation (2007) [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Glitch, Ambient>
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561231.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_561748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Armada Top 15 August (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:35:39Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Aly & Fila vs Jwaydan - Coming Home (Original Mix) (08:24)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A02ADE775DF74573F37809B0D1FDB46F82FE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364345   (561227) от 18.07.2011
-
-Чрезвычайное поручение (1965) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй фильм кинотрилогии («Лично известен», «Чрезвычайное поручение», «Последний подвиг Камо») о революционере-большевике С. А. Тер-Петросяне, известном под именем Камо (1882-1922).
-Время действия - 1917 год. Началась гражданская война, над молодой Советской республикой сгустились тучи контрреволюции. Камо получает чрезвычайное поручение Ленина: доставить из Петрограда (   Читать дальше...   )Жанр: Боевик, ПриключенияРежиссер: Степан Кеворков, Эразм КарамянАктеры: Гурген (Георгий) Тонунц, Борис Чирков, Эльза Леждей, Семён Соколовский, Владимир Кенигсон, Владимир Дружников, Нина Шацкая, Тристан КвелаидзеПродолжительность: 01:47:37
+01. Dayone (04:59)
+ 02. Furtive (05:08)
+ 03. Decompose (04:02)
+ 04. Side Of A Mountain (03:26)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, AmbientПродолжительность: 00:48:18
 
 ## Скачать торент
 ```bash
@@ -584,158 +483,243 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 364336   (561219) от 18.07.2011
+###  Публикация: 1153038   (561747) от 25.07.2017
 
-Последний король Шотландии / The Last King of Scotland (2006) BDRip [H.264]
+VA - Workout Music Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ready Or Not & Azmik - That's How It Is (Original Mix)  4:23
+02.  Lion & VENCOR - Pruno (Original Mix)  3:49
+03.  Dirty Sound Society - Ready For The Noise (Original Mix)  4:07
+04.  Ad Voca - New Generation (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA96F354B8246FD822FA643CB447CF36E34FB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690451   (561743) от 19.08.2013
+
+Рестлинг / WWE Monday Night RAW 12.08.2013 + Русская версия от 545TV (2013) HDTVRip [AVC/H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной выпуск шоу WWE Monday Night RAWЖанр: Телепередача, СпортПеревод: Двуголосый закадровый, любительский(Русская версия от 545TV) + Рус. аудиодорожка.Продолжительность: 02:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE1BE2872C4C7AA71CCF0557706BE0319380F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690880   (561739) от 19.08.2013
+
+Забирая жизни / Taking Lives (2004) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твое имя… твои кредитные карточки… твоя жизнь… Он заберет все сразу! Неуловимый серийный убийца в течение двадцати лет подряд присваивал себе личности своих жертв. Но скоро для него наступят трудные времена… За расследование очередного убийства берется агент ФБР Иллиана Скотт.
+Ей необходимо узнать, что движет изощренным преступником, чтобы предугадать дальнейшие (   Читать дальше...   )Производство: СШАЖанр: Триллер, детективРежиссер: Ди Джей КарузоАктеры: Анджелина Джоли, Итан Хоук, Кифер Сазерленд, Джина Роулендс, Оливье Мартинес, Чеки Карио, Жан-Юг Англад, Пол Дано, Джастин Чэтвин, Андре Лакосте, Билли Ту Риверз, Ричард Лемир, Жюльен Пулен, Мари-Жозе Кроз, Кристиан Тессьер и др.Перевод: ДублированныйЯзык субтитров: ОтсутствуетФормат: DVD5Продолжительность: 01:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFDCF9DDD84E3EAFC08C6A472A9C251DE5B8C42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690742   (561736) от 19.08.2013
+
+Без лица / Face/Off (1997) BDRip [H.264]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561219.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Власть президента Уганды Иди Амина и его смелые решения сперва очаровали шотландского медика Гарригана, ставшего личным врачом диктатора. Но жестокий режим и кровавые преступления президента изменили отношение Гарригана к своему кумиру и он, всеми силами, пытается повлиять на проиcходящее.
+Жанр: боевик, триллер, криминалРежиссер: Джон ВуАктеры: Джон Траволта, Николас Кейдж, Джоан Аллен, Алессандро Нивола, Джина Гершон, Доминик Суэйн, Ник Кассаветис, Харви Преснелл, Колм Фиори, Джон Кэрролл ЛинчПеревод: Дублированный (Blu-ray CEE); многоголосый закадровый (Киномания, Карусель, СТС-ТНТ, ОРТ); авторский, одноголосый закадровый (А.Гаврилов, Ю. Живов, В. Завгородний, Н. Антонов, М. Латышев)Язык субтитров: русские, английскиеФормат: MKVПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03973760382A4F90C4A5B22D2F00679DBF6A3524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691082   (561733) от 19.08.2013
+
+Михаил Задорнов | Я люблю Америку (2013) [MP3, Максим Сергеев]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восклицание «Ну, тупые!» в адрес американцев с легкой руки пародистов стало «визитной карточкой» Михаила Задорнова. Американцы настолько поверили в такое отношение к ним со стороны русского писателя-сатирика, что несколько лет отказывали ему в визе. Однако мало кто знает, что, впервые попав в США в конце 80-х, Михаил Задорнов был восхищен западным образом жизни. (   Читать дальше...   )Жанр: Юмористическая проза
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5DBE03934A961337024417FD3FA3A6988A13F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691073   (561731) от 19.08.2013
+
+Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Draw the Line
+02. Love in an Elevator
+03. Livin' on the Edge
+04. Hangman Jury(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97348087A59F9C241EC2E879293C2D09019DBCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304750   (561726) от 27.05.2019
+
+TogetherShare Data Recovery 6.7 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561726.jpg" />
+</div>
+
+
+###  Подробнее
+
+TogetherShare Data Recovery служит для восстановления утраченных данных с ПК, серверов или ноутбуков. Она способна восстанавливать файлы с удаленных или поврежденных разделов жесткого диска, а так же восстанавливать данные с отформатированных дисков с переустановленной Windows, с RAID-массивов, USB-флешек, карт памяти и прочих носителей.
+Позволит восстановить нужные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38A74BF13285402924941FC995F6B7B9EAD42CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304887   (561725) от 27.05.2019
+
+BBC: Живой мир. Мадагаскар, лемуры и шпионы / Madagascar, Lemurs and Spies (2012) HDTVRip [H.265/1080p-LQ] (Сезон 31, эпизод 10)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чистые белые лемуры, называемые шелковистой сифакой, живут в отдаленных тропических лесах Мадагаскара. Они являются одним из самых редких животных в мире. Страстный ученый объединяет усилия с детективом под прикрытием, чтобы выяснить, существует ли связь между этими вымирающими лемурами, нелегальными лесозаготовками и дорогими животными в США.Производство: Великобритания, BBC and Animal Planet Co-ProductionЖанр: Документальный, природа, флора, фаунаРежиссер: Стоун  ТаппенсПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские (на фрагменты без перевода)Продолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC951A2514AC82EA43732EEE8E042F4DE93DE763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304655   (561724) от 27.05.2019
+
+Movist Pro 2.1.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
 
-Премия Оскар за лучшую мужскую роль.Жанр: Триллер, Драма, Биография, ИсторияРежиссер: Кевин МакДональдАктеры: Форест Уитакер, Джеймс МакЭвой, Керри Вашингтон, Джиллиан Андерсон, Саймон МакБерни, Дэвид Ойелоуо, Стивен Рвангйези, Эбби Микииби Нкаага, Адам Котц и др.Перевод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 02:02:52
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2019Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48BF1648EA2F03039606D1F9F0DBCEAFD7E01948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153007   (561210) от 25.07.2017
-
-Подборка книг | Власть без мозгов [36 книг] (2012-2017) [FB2, EPUB]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_561210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия "Власть без мозгов" - это острые материалы о кремлевской власти, о "Первых и прочих высоких лицах". Первые лица не вечны, а вот Россия будет существовать и прийдут другие "Первые лица". Но как существовать? Книжная серия дает ответы, удастся ли России перестроить экономику на новый лад, как это отразится на политике и что (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152931   (561209) от 25.07.2017
-
-W10Privacy 2.5.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561209.jpg" />
-</div>
-
-
-###  Подробнее
-
-W10Privacy - программа для изменения настроек системы Windows 10 и минимизации сбора данных пользователя. Предлагает серьезный набор защиты данных и настроек конфиденциальности, главное не ошибиться в выборе. Программа четко отображает доступные для изменения параметры, разделенные на 12 разделов, в которых вы самостоятельно выбираете настройки, которые следует включить/отключить.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2314B10E1CE55704D30DCFB47AFBFF07325908DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153090   (561208) от 25.07.2017
-
-TeamViewer 12.0.80984 RePack (& Portable) by elchupacabra  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561208.jpg" />
-</div>
-
-
-###  Подробнее
-
-TeamViewer устанавливает подключение к любому компьютеру или серверу в любой точке мира в течение нескольких секунд. Вы можете удалённо управлять компьютером вашего партнёра, как будто сидите прямо перед ним. Программа позволяет получить доступ к компьютеру из любой точки интернета (IP-адрес удаленной машины можно не знать, но на втором компьютере тоже должна быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D579868D4029BBE01A90C76F537F993AB029C5AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153061   (561207) от 25.07.2017
-
-Ольга Жукова | Подводная охота (1959) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о новом виде водного спорта - подводном плавании и нырянии с применением маски, дыхательной трубки и ластов.
-В книге увлекательно описываются подводный мир, предметы снаряжения, с помощью которых можно в него проникнуть, первые уроки ныряния, охота на рыб и фотографирование под водой. Особенно ценными являются главы, посвященные изготовлению снаряжения (   Читать дальше...   )Жанр: СпортФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709D717791AB9005847BA891B09DA1918A0DEF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152940   (561206) от 25.07.2017
-
-Rufus 2.16 (Build 1158) Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19629AD9CB180D81BB7874AF94BAAA2A102BA53
+magnet:?xt=urn:btih:E1015E5162E53841ACBF5D3863A40F48A9E8FC13
 ```
 
 https://mybot314.ru/tekegram_catalog/

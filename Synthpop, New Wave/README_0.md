@@ -1,3 +1,32 @@
+###  Публикация: 1463807   (1020142) от 20.04.2021
+
+Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Line (5:53)
+02. SOS from Planet 0712 (5:34)
+03. Zero Gravity (Pt.1) (0:59)
+04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412C4BED5FAB38D5486197064CA11238E895694C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463811   (1020134) от 20.04.2021
 
 Electric Dark Souls - Heroes (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
@@ -722,35 +751,6 @@ Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376108   (862042) от 16.04.2020
-
-Pet Shop Boys - I Don't Wanna (2020) EP [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I don't wanna (radio edit) [3:20]
- 2. New boy [4:11]
- 3. I don't wanna (Mano Le Tough remix) [7:25]
- 4. I don't wanna (David Jackson remix one) [6:19](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21A5AC5F71D63F6A3E8C010FC5B6C84478CB373
 ```
 
 https://mybot314.ru/tekegram_catalog/

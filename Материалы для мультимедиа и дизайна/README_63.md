@@ -1,3 +1,30 @@
+###  Публикация: 991902   (903703) от 29.02.2016
+
+Векторный клипарт - Офис и школа - шаблоны для дизайна [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офисный и школьный клипарт в векторе.
+10 EPS | + JPG PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DE66C751BFB2B82D66F1208663844AF6B6DC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991803   (903698) от 29.02.2016
 
 Векторный клипарт - Яркая инфографика в векторе [EPS]
@@ -668,34 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C145B0C0BEA02AB7AE453D3761760BDE901D9232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492827   (900440) от 31.08.2021
-
-Векторный клипарт - Cheerful snowmen in different costumes Christmas illustrations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Веселые снеговики
-11 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF76BFFE9224C90D2DFCAB2BECE9A616D3F7619
 ```
 
 https://mybot314.ru/tekegram_catalog/

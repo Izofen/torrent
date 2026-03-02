@@ -1,19 +1,18 @@
-###  Публикация: 348178   (637610) от 09.06.2011
+###  Публикация: 1033489   (638148) от 11.07.2016
 
-GPU-Z 0.5.3 [Русский]
+Машины-монстры: Pedal-Powered Beest - необычный шагающий велосипед от Адама Сэвиджа
 
->>Архив торрентов
->>Архив Программ
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637610.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вышла новая версия программы для вывода информации о графическом адаптере. GPU-Z поддерживает и карты NVIDIA, и ATI. Она поможет определить, какая у вас модель видеокарты, узнать интерфейс подключения, расскажет о том, какой используется графический процессор (версия BIOS, номер ревизии чипа, частота в 2D, 3D-режимах и при разгоне, сведения о поддержке DirectX).
-Кроме этого, GPU-Z предоставляет информацию о видеопамяти, а именно ее тип, объем, разрядность шины.Название программы: GPU-Z
+Некоторым из наших читателей наверняка хорошо известен Адам Сэвидж (Adam Savage), один из бывших совладельцев и продюсерjd популярнейшего телевизионного шоу "Разрушители легенд" (MythBusters) канала Discovery. В рамках своего шоу Сэвидж и его команда занимались проверками пределов человеческой изобретательности. Но после того, как шоу MythBusters перестало (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -25,61 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 348110   (637607) от 09.06.2011
+###  Публикация: 1033650   (638146) от 11.07.2016
 
-Валерий Шульжик | Неуловимый Фунтик [2005] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе, ребята: ваши любимые герои знаменитого мультфильма "Неуловимый Фунтик", удирая от сыщиков, продолжают свое путешествие по страницам новых книг.
-Книг с этими героями - целых десять. Они красочны, полны приключений, да вот беда: их на всех может не хватить. Так что, дорогие читатели, не зевайте! Следите за выходом каждой новой книги! Только (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463617E7A85F95A29FC01BE49828C9784561225A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519340   (637605) от 06.07.2012
-
-VA - Vocal Trance Volume # 37 (2012) [MP3|320 кб/с]<Vocal Trance>
+Свадебная вечеринка / Die Bluthochzeit (2005) DVDRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637605.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix) [06:31]
- 02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
- 03. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix) [07:50]
- 04. Trilucid feat. Sophie Tusnelda - Bring You The Sun (Original Mix) [06:53]
- 05. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) [08:49]
- 06. The Crystal Method - Come Back Clean (Daniel Wanrooy & Mark Green Remix) [07:06]
- 07. Vincent De Jager feat. Emma Lock - Dive (Original Mix) [07:30]
- 08. Aimoon - Leto (Original Mix) [07:44]
- 09. Three Drives - Letting You Go (Greece 2000) (Dabruck & Klein Vocal Remix) [07:31]
- 10. tyDi - Long Nights On Fast Planes [05:00](   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:52:24
+Черная комедия о том, как веселая свадебная вечеринка превращается в кровавое побоище с участием многочисленных родственников как со стороны жениха, так и со стороны невесты, а также немногочисленного, но воинственного персонала ресторанчика, где планировалось торжество. А все из-за чего? Просто папа жениха отказался платить за праздничный ужин…Производство: Германия, БельгияЖанр: Боевик, драма, комедияРежиссер: Доминик ДерюддерАктеры: Армин Роде, Уве Оксенкнехт, Йозеф Хейнерт, Арне Ленк, Юлия Шмидт, Имоген Когге, Сандра Боргманн, Нанд Бюйль, Фабиан Хинрихс, Лиза ПоттхоффПеревод: Профессиональный многоголосый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:27:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D715028FAD681E2FC6F8876ACB2495A610095E
+magnet:?xt=urn:btih:2BB98192CADC1B526A5F724B8F6E7E25872250BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -87,33 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519212   (637601) от 06.07.2012
+###  Публикация: 1033506   (638144) от 11.07.2016
 
-David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, Meditative>
+Илья Мечников | Этюды оптимизма (2016) [MP3]
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637601.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(3:26) 1. Breathing
-(5:12) 2. Positive Thinking
-(4:38) 3. Peace
-(4:01) 4. Well-Being
-(4:18) 5. Vitality
-(4:02) 6. Resting
-(3:31) 7. Equilibrium
-(6:22) 8. Oxygenation
-(3:48) 9. TranquilityЖанр: New age, MeditativeПродолжительность: 00:39:18
+В «Этюдах о природе человека» мы изложили теорию того внутреннего механизма, который приводит к старению нашего организма. Мои взгляды вызвали, с одной стороны, разнообразные возражения, а с другой — исследования на ту же тему.
+Ввиду того что изучение старости имеет не только большой теоретический интерес, но в то же время и практическое значение, считаю полезным (   Читать дальше...   )Жанр: Биология Биофизика. Научно-популярное изданиеПродолжительность: 14:58:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20385C4FC6C51C133762CC7FC82FAEE47EFA8155
+magnet:?xt=urn:btih:EF42A35692F0B76F3694892F75CF03B04E3B9D91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -121,34 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519066   (637599) от 06.07.2012
+###  Публикация: 1032843   (638142) от 11.07.2016
 
-VA-Impulsive! - Revolutionary jazz reworked (2005) [MP3|320 кб/с]<Jazz>
+Мария Семёнова | Лебеди улетают (2014) [MP3]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637599.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. George Russell / A Helluva Town (Sa Ra Go remix)
-02. Charles Mingus / II BS (RZA's Mingus Bounce mix)
-03. Chico Hamilton / El Toro (Mark De Clive Low remix)
-04. Gabor Szabo / Mizrab (Prefuse 73 remix)
-05. Dizzy Gillespie / Swing Low, Sweet Cadillac (Gerardo Frisina extended remix)
-06. Clark Terry & Chico O'Farrill / Spanish Rice (DJ Dolores extended remix)
-07. Archie Shepp / Attica Blues (The Chief Xcel (Of Blackalicious) remix)
-08. Pharoah Sanders / Astral Traveling (Boozoo Bajou remix)
-09. Yusef Lateef / Bamboo Flute Blues (Kid Koala remix)
-10. Oliver Nelson / Stolen Moments (Telefon Tel Aviv remix)(   Читать дальше...   )Жанр: JazzПродолжительность: 51:11
+Все потерял молодой словенин Тверд — ни отца у него теперь, ни матери, ни сестренки милой, ни дома родного. Да и сам он теперь — холоп строптивый. Люто ненавидит он гостем вошедшего в его дом урманина Олава и весь народ урманский считает разбойниками да грабителями. Ему еще предстоит узнать, что не все словене живут по Правде, и не все урмане Правды не ведают... (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 02:59:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F71E830776E7CD22E110A3BD37DEEB98BE5E8C
+magnet:?xt=urn:btih:771555FDB0705488D58478ED682FE7127600E673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,34 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519217   (637597) от 06.07.2012
+###  Публикация: 1033351   (638140) от 11.07.2016
 
-Thunderstone - Dirt Metal (2009) [MP3|320 кб/с]<Heavy Metal / Power Metal>
+Журнал | Вышиваю крестиком. Спецвыпуск №6 (июнь 2016) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637597.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rebirth
- 02. I Almighty
- 03. Dirt Metal
- 04. Blood That I Bleed
- 05. Star
- 06. Ghosts Of Youth
- 07. Counting Hours
- 08. Dodge The Bullet
- 09. Deadlights
- 10. At The Feet Of Fools(   Читать дальше...   )Жанр: Heavy Metal / Power MetalПродолжительность: 00:48:06
+Если вы хотите внести новые краски в картину своей жизни, ищете душевного покоя и мечтаете о творчестве - читайте самый популярный в Европе журнал о вышивке крестиком.Жанр: Домоводство, вязание, рукоделие, вышивание, хоббиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DD34DC943097373601E46071BD69109AFDFDAB2
+magnet:?xt=urn:btih:685B5903EA60DB47D9D66195CDF21F1B89D3F595
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,34 +129,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518778   (637589) от 06.07.2012
+###  Публикация: 1033448   (638138) от 11.07.2016
 
-Ostrich - The ostrich effect (2012) [MP3|320 kbps] <Synthpop>
+VA - The Best Ever: Summer (2016) [MP3|320 Kbps] <Disco, Pop, RnB>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637589.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A need to believe (04:08)
-02. Lukewarm (04:25)
-03. Lonely ghost (03:17)
-04. Turn the tide (03:40)
-05. Es loco (04:04)
-06. Sleepy angels (05:00)
-07. I am out (04:12)
-08. Gold, silver & stones (03:27)
-09. Prepare to fall (03:40)
-10. Icecold kisses (03:05)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:49:01
+01. Icona Pop feat. Charli XCX – I Love It 02:34
+02. Rudimental feat. John Newman – Feel The Love 03:37
+03. B.O.B – So Good 03:29
+04. CeeLo Green – Forget You 03:41(   Читать дальше...   )Жанр: Disco, Pop, RnBПродолжительность: 01:30:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1347F03304E2CACBBA5F5A7811D0B1817F4D5D8E
+magnet:?xt=urn:btih:8298CB61C08C0712E7DC532819273D246C3BE64F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,34 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519209   (637588) от 06.07.2012
+###  Публикация: 1033226   (638136) от 11.07.2016
 
-Twisted Sister - Come Out and Play (Japanese Edition) (1985) [MP3|320 кб/с]<Glam Metal / Heavy Metal / Hard Rock>
+Onigiri / Онигири [2016, TV, 13 из 13] HDTV 720p raw
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637588.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come Out and Play
- 02. Leader Of The Pack
- 03. You Want What We Got
- 04. I Believe In Rock 'n' Roll
- 05. The Fire Still Burns
- 06. Be Chrool To Your Scuel
- 07. I Believe In You
- 08. Out On The Streets
- 09. Lookin' Out For №1
- 10. Kill Or Be Killed(   Читать дальше...   )Жанр: Glam Metal / Heavy Metal / Hard RockПродолжительность: 00:46:05
+Действие разворачивается в мистической Японии, земле, заполненная мифическими существами японской легенды. Начав как одинокий Oni, игроки сражаются против злонамеренного влияния Kamikui. 8 персонажей, каждый со своей личностью и навыками, вступают в союз с игроком, чтобы помочь построить легенду и уничтожить зло. Вместе с ростом уровня крепнут и узы, связывающие (   Читать дальше...   )Производство: Студия Pierrot Plus / ぴえろプラスЖанр: комедия, пародияРежиссер: Ямамото ТакасиЯзык субтитров: Русский (отключаемый)Продолжительность: 13 эп. по 4 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8773026940CDBCCA2202B50B9DE0F26A484E686
+magnet:?xt=urn:btih:B649773E08C5E3366C88290BD220D31FC742E642
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,25 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518820   (637587) от 06.07.2012
+###  Публикация: 1033668   (638134) от 11.07.2016
 
-[Графика] Digital Art (05.07.2012)
+XMedia Recode 3.3.3.3 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637587.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digital Art (05.07.2012)
+XMedia Recode - видеоконвертер с функциями редактора (обрезка по времени, изменение размера кадра и др.), позволяет конвертировать практически любые видео и аудио файлы в один из форматов, который воспроизводится на телефонах, плеерах и других портативных носителях. Программа простая и удобная в использовании, поддерживает следующие мультимедийные форматы: 3GP, 3GPP, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F99272172F37D155EA555D51E626DAC3627F4307
+magnet:?xt=urn:btih:16A9D8E3D2CD2655151ECD1C927B68D48745F40C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,34 +210,274 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519492   (637586) от 06.07.2012
+###  Публикация: 1033579   (638132) от 11.07.2016
 
-Merline Johnson - The Yas Yas Girl (1937-1940) 3CD /1994/ [MP3|320 кб/с]<Blues>
+VA - Singing in the Car Fresh Hits Acoustic Covers Folk Afternoon Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Space - Can't Stop the Feeling
+02. Beat four - Hello
+03. Lan Sub - Cake by the Ocean
+04. Subtube - Cheap Thrills(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441CFC760C71907C0BE3461D19352C4D0EAEF075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033468   (638130) от 11.07.2016
+
+VA - Hits 3 Summer (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638130.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+Пpодолжительность: 01:17:04
+
+01. Justin Bieber - Love Yourself(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA7DDE7C07B99CEF43AC28CF5AEC364A26B57D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033657   (638128) от 11.07.2016
+
+VA - Охота 66 (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник №66 посвящается выпускникам школ 2016 года, в честь которых группа Лунный Пёс представила заглавную песню, а Фёдор Михайлов из Группировки Беловежская Пуща нарисовал обложку. Хочется пожелать юному поколению удачи в выборе дальнейшего пути, новых свершений и гениальных открытий!01. Лунный Пёс - Алые паруса
+02. Angel DaRock - Я выбираю любовь
+03. RADIO.6 - Город
+04. Бильбао - Испания(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F891502EE1429B798C04B944CD24DA9003F65351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217932   (638110) от 11.07.2010
+
+Хоттабыч (2006) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гена - программист по призванию и хакер по жизни. Он хороший парень, но у него реальные проблемы. Его бросила любимая девушка, его "пасут" бандиты и выслеживают спецслужбы. Спасти его может только чудо, и оно, конечно же, случается. В жизни Гены появляется Хоттабыч - джинн, который отмотал несколько тысяч лет заключения в одиночном кувшине. И теперь готов (   Читать дальше...   )Жанр: Комедия, Приключения, СемейныйРежиссер: Петр ТочилинАктеры: Марюс Ямпольскис, Владимир Толоконников, Марк Гейхман, Лива Круминя, Юлия Паранова, Мила Липнер и др.Субтитры: ОтсутствуютПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217015   (638106) от 11.07.2010
+
+Барби в стране фей / Barbie: Fairytopia (2005) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли Элины - кукла Барби!
+Сразу за радугой, в сказочной стране фей жевт Элина, прекрасная фея цветов, которая очень хочет иметь крылья.
+Ее дом - большой цветок на Волшебном лугу. Она живет в нем вместе со странным, но милым пушитсиком по имени Биббл.
+Однажды, проснувшись, Элина узнает, что ее дом-цветок заболел, а ее сказочные друзья не могут летать! Она собирается (   Читать дальше...   )Жанр: Детский, ПриключенияРежиссер: Волтер П. МартишиусПерсонажи: Келли Шеридан, Ли Токар, Катлин Барр, Винус Терцо, Чиара Занни, Марк ОливерПеревод: ДублированныйПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217820   (638103) от 11.07.2010
+
+Пятый элемент [Ремастеринг] / The Fifth Element [Remastered] (1997) [1080p] BDRemux
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638103.jpg" />
+</div>
+
+
+###  Подробнее
+
+На стене египетского храма чудаковатый профессор находит пророчество, гласящее, что Зло дремлет, финальная битва должна состояться на Земле. Инопланетяне оставили людям оружие, которое спасет Жизнь. Оно состоит из четырех элементов - Воды, Ветра, Огня, Земли и Пятого Элемента...И вот пришел день великой битвы - абсолютное Зло в виде "разумной" огненной (   Читать дальше...   )Жанр: Фантастика, Боевик, КомедияРежиссер: Люк Бессон (Luc Besson)Актеры: Брюс Уиллис (Bruce Willis), Гэри Олдман (Gary Oldman), Милла Йовович (Milla Jovovich), Брайон Джеймс (Brion James), Иэн Холм (Ian Holm), Крис Такер (Chris Tucker), Люк Перри (Luke Perry)Перевод: ДублированныйЯзык субтитров: Русские, английские, французские, португальскиеПродолжительность: 2.05:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217692   (638100) от 11.07.2010
+
+Берегись автомобиля (1966) DVDRip
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о судьбе страхового агента Юрия Деточкина, играющего роль Гамлета в самодеятельном театре, и являющегося Робином Гудом XX века в свободное от работы время. Замечательная комедия Эльдара Рязанова, без преувеличения - шедевр советского кино.Жанр: КомедияРежиссер: Э.РязановАктеры: Иннокентий Смоктуновский, Олег Ефремов, Любовь Добржанская, Ольга Аросева, Андрей Миронов, Анатолий Папанов, Татьяна Гаврилова, Георгий Жженов, Евгений Евстигнеев, Сергей Кулагин, Виктория Радунская, Донатас Банионис.Продолжительность: 01:28:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217088   (638095) от 11.07.2010
+
+Адреналин / Crank (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наемный убийца Чев узнает, что недоброжелатели отравили его редким китайским ядом и отрава начнет действовать немедленно, как только пульс перестанет биться ниже определенной отметки. И теперь Чеву нужно успеть сделать все свои дела, попробовать раздобыть противоядие и отомстить своим отравителям в прямом смысле слова впопыхах — стараясь создавать вокруг себя как (   Читать дальше...   )Производство: США / Lakeshore Entertainment, Lions Gate Films Inc.Жанр: Боевик, Триллер, КриминалРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Джейсон Стэйтем, Эми Смарт, Хосе Пабло Кантильо, Эфрен Рамирез, Дуайт Йоакам, Карлос Санс, Рено Уилсон, Эди Гатеги, Гленн Хоуертон, Джей КсалаПеревод: ДублированныйПродолжительность: 01:27:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217746   (638094) от 11.07.2010
+
+Сумерки / Twilight (2008) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_638094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетняя девушка Белла переезжает к отцу в небольшой городок Форкс. Она влюбляется в загадочного одноклассника, который, как оказалось, происходит из семьи вампиров, отказавшихся от нападений на людей. Влюбиться в вампира. Это страшно? Это романтично, это прекрасно и мучительно, но это не может кончиться добром, особенно в вечном противостоянии вампирских (   Читать дальше...   )Жанр: Фэнтези, Мелодрама, ДрамаРежиссер: Кэтрин ХардвикАктеры: Кристен Стюарт, Роберт Паттинсон, Билли Бёрк, Питер ФачинеллиПеревод: ДублированныйПродолжительность: 2:01:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907764   (638089) от 12.06.2015
+
+Martin Lang - Chicago Harp Blues Sesssions (2015) [MP3|320 кб/с]<Chicago Blues, Harmonica Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637586.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  New Muddy Water Blues (3:07)
-2.  He Roars Like A Lion (3:25)
-3.  I'm Leavin' You (3:10)
-4.  My Baby Left Me (3:02)
-5.  Pallet On The Floor (2:53)
-6.  Mean Mistreatin' Daddy (2:58)
-7.  Sold It To The Devil (3:03)
-8.  Grandpa And Grandma (3:15)
-9.  I'd Rather Drink Muddy Water, No.2 (3:03)
-10.  Blues Everywhere (2:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:22:35
+01. Billy's Shuffle (4:03)
+02. Scratch My Back (vocals Martin Lang) (5:10)
+03. Sluggin' The Jug (3:26)
+04. Sittin' Here Thinkin' (3:25)(   Читать дальше...   )Жанр: Chicago Blues, Harmonica BluesПродолжительность: 00:49:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7D3845DF72D641DB2026B12CAFE2DFB08D93EA5
+magnet:?xt=urn:btih:66B413BB5232DB0C63A67D3C66D03CBA06ABDEF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,178 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519314   (637582) от 06.07.2012
+###  Публикация: 907384   (638088) от 12.06.2015
 
-Armin Van Buuren - A State Of Trance 568 (2012) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zedd feat. Matthew Koma - Spectrum (Armin van Buuren Remix)
- 02. Rex Mundi - Bella Monaco
- 03. Headstrong feat. Stine Grove - Love Until It Hurts (Aurosonic Remix)
- 04. Chicane & Ferry Corsten - One Thousand Suns
- 05. W&W - Moscow
- 06. Cosmic Gate - Perfect Stranger (Wezz Devall Remix)
- 07. Andy Moor - K Ta (Жанр: Trance, Progressive TranceПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF2262FC31A165BAB44B57D96A5AE34122DB2C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519291   (637581) от 06.07.2012
-
-Майами Блюз / Miami Blues (1990) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фред Френгер неизлечимый маньяк-убийца. Отсидев первый срок в тюрьме специального назначения, он выходит на свободу. К несчастью врачи сумели только снять симптомы, но не вылечить болезнь. Желание убивать довольно быстро возвращается к нему, и кровавую мясорубку в Майами остановить уже не возможно.
-
-Повинуясь своим извращенным инстинктам, он находит себе подругу, молодую проститутку, полностью разделяющую его желания. На поиски маньяка отправляется старый опытный полицейский- сержант Ваггонер.Жанр: Триллер, Драма, Мелодрама, КриминалРежиссер: Джордж ЭрмитажАктеры: Алек Болдуин, Рафаэль Рей Гомез, Джорджи Крэнфорд, Эдвард Саксон, Хосе Перез, Обба Бабатунде, Фред Уорд, Дженнифер Джейсон Ли, Чарльз Нэпьер, Мэтт Ингерсолл и др.Перевод: ДублированныйПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F5CCFC341DF06707CAF8209D22BD380CF26ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519136   (637580) от 06.07.2012
-
-VA - Super Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Drummer – Tropea (Chill Remix) (8:14)
-02. Malinverno – Move Me Up (4:16)
-03. Dr. Drummer – Erotica (4:45)
-04. Mr. X and Y – Magic Bird (4:27)
-05. Dr. Drummer – Space Funk (6:36)
-06. Took – What Does Zlak Mean (4:16)
-07. Dr. Drummer – Bora Bora (5:20)
-08. Took – Hot Summer Night (6:24)
-09. Sunset Session Group – Underworld (5:47)
-10. Armando Gomez – Blackfriars (5:54)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 03:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3756C3DA2EC413FECFA5837ACC4F445C183C4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518800   (637578) от 06.07.2012
-
-[Графика] Светографика - Творчество HoryMa
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светографика - Творчество HoryMa
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8B835E5F7FF965E3018D3201F8966AB3EF7127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143291   (637577) от 17.06.2017
-
-Гандбол. Чемпионат мира 2017. Женщины. Европейская квалификация. 2-й раунд. 1й-матч. Россия - Польша (09.06.2017) WEBRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637577.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 июня 2017 года
-Чемпионат мира 2017. Женщины. Европейская квалификация. 2-й раунд. Стыковой матч
-1-й матч
-Россия - Польша(   Читать дальше...   )Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F711C55A59EA184CE3355E3E54097669B74A6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143094   (637576) от 17.06.2017
-
-Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+Lazer Lloyd - Lazer Lloyd (2015) [MP3|320 кб/с]<Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637576.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We're Off to See the Wizard [01:21]
-02. Over the Rainbow [03:02]
-03. The Jitterbug [03:18]
-04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
+1. Burning Thunder (3:29)
+2. Suffering (4:19)
+3. Rockin' In The Holy Land (3:38)
+4. Never Give Up (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
+magnet:?xt=urn:btih:19D4249797DF5447E468A05FB17F5555A7255F13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +514,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143091   (637575) от 17.06.2017
+###  Публикация: 906744   (638087) от 12.06.2015
 
-VA - Uplifting And Vocal Trance Party (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+Л. Штерн и др. (ред.) | Проблемы истории Второй мировой войны (1959) [DJVU]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637575.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ana Criado - Still There's You (A.R.D.I. Remix)
-002. Arsen Gold - Alien Abduction (Original Mix)
-003. Susana - Only Summer Knows (Original Mix)
-004. Tydi Ft. Christina Novelli - Fire & Load(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:40:07
+Аннотация:
+
+В ноябре 1957 года в Лейпциге (ГДР) состоялась конференция историков Советского Союза и Германской Демократической Республики с участием историков других социалистических стран и некоторых капиталистических государств. На конференции были заслушаны доклады и проведены дискуссии по двум главным темам: влияние Великой Октябрьской социалистической революции (   Читать дальше...   )Жанр: история, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1310E16221074A3868F43E895846935BE0299790
+magnet:?xt=urn:btih:6808D2E0BC3E6F870B51352B9CE2A457DC0A56D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,28 +542,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293305   (637574) от 03.04.2019
+###  Публикация: 907438   (638086) от 12.06.2015
 
-Lee Fields & The Expressions - It Rains Love (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+John Du Cann - The Many Sides Of 1967-1980 (2012) Remastered /2012, Angel Air/ [FLAC|image+.cue]<Psychedelic Rock, Progressive Rock, Mod>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic In The Air (The Attack 1967) 03:38
+02. Mr. Pinnodmy's Dilemma (The Attack 1967) 04:27
+03. Too Old (Andromeda 1969) 04:59
+04. Return To Sanity (3 parts) 08:20(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, ModПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB86A2E1FAA0446511808EA23D1AAF5616BE8F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907454   (638085) от 12.06.2015
+
+Forest - 2 альбома (1969-1970) Remastered /2015, Warner Music Japan/ [FLAC|image+.cue]<Progressive Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hawk The Hawker 05:47
+02. Bluebell Dance 03:10
+03. The Midnight Hanging Of A Runaway Serf 05:03
+04. To Julie 03:35(   Читать дальше...   )Жанр: Progressive Folk RockПродолжительность: 01:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6F018CFFBB592D0582223C7BDB9DB5B8B0B75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907572   (638084) от 12.06.2015
+
+VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Salguero - With You [05:05]
+02. M. Vitoria - Love Devotion Surrender [05:05]
+03. The Synths - Moby Dick [04:19]
+04. Oscar Salguero - Lounge, Shopping and Go [04:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB5E9114CB8576F3E7162EE4DB0C71738DF139D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907449   (638083) от 12.06.2015
+
+Albert Collins - The Complete Imperial Recordings (1991) [WavPack|image+.cue]<Texas Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637574.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Rains Love (03:55)
-02. Blessed with the Best (03:49)
-03. Two Faces (03:43)
-04. You’re What’s Needed in My Life (03:38)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:36:26
+01. Baby What You Want Me To Do/Rock Me Baby 04:04
+02. Lip Service 03:19
+03. Things That I Used To Do (Talking Slim Blues) 03:28
+04. Back-Yard Back-Talk 02:52(   Читать дальше...   )Жанр: Texas BluesПродолжительность: 01:40:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E12C0E61979FD104B0D6E5E50DF512EE95FBFB16
+magnet:?xt=urn:btih:DEC8AF92A7873EFBE47C748EC8DAB0CD4E2C74D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,27 +658,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292972   (637573) от 03.04.2019
+###  Публикация: 907446   (638082) от 12.06.2015
 
-О.Л. Есаянц (сост.) | О крестном знамении (2016) [PDF, DJVU]
+Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637573.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая брошюра рассказывает о сути, силе и значении крестного знамения для каждого православного христианина. Отдельное место в издании уделено формам крестного знамения в истории Церкви, а также правилам и порядку наложения крестного знамения во время разных богослужений в храме и во внебогослужебное время.
-
-Издание рассчитано на широкий круг православных читателей. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+01. Away I go
+02. Never Givin' Up
+03. Miss Elainious
+04. Carry Me Back Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB7D38971A8EC24A8D685680BB8BBEB028AE2E79
+magnet:?xt=urn:btih:075D3AFB5AE19087E2944CCF8673F642C8EA7D69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,193 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293497   (637572) от 03.04.2019
+###  Публикация: 907595   (638081) от 12.06.2015
 
-Газета | Тайны ХХ века. Русская история №5 (07) (2018) [PDF]
+Ronnie Earl & The Broadcasters - Father's Day (2015) [MP3|320 кб/с]<Blues Rock>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637572.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История любой страны полна мифов и легенд. Дореволюционная Россия, которой посвящен наш журнал, не исключение.
-Как рождаются исторические мифы? Оказывается, самым причудливым образом. Их могут создавать иностранцы, невзлюбившие нашу страну. Так появилась легенда об Иване Грозном, который убил своего сына.
-«Победителю прилично великодушие», - говорил великий полководец (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+1. It Takes Time
+2. Higher Love
+3. Right Place Wrong Time
+4. What Have I Done Wrong(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBAE42368D7A40ED9052D051EDCDAB729C4F908E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293441   (637571) от 03.04.2019
-
-Журнал | В помощь огороднику №5. Секреты идеального газона (2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для широкого круга читателей.
-Интернет-издание.Жанр: садоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BFA3D364E3A549091EA145881DD6A86BD1D4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293489   (637570) от 03.04.2019
-
-Газета | Тайны ХХ века. Русская история №8 (10) (2018) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637570.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любой страны полна мифов и легенд. Дореволюционная Россия, которой посвящен наш журнал, не исключение.
-Как рождаются исторические мифы? Оказывается, самым причудливым образом. Их могут создавать иностранцы, невзлюбившие нашу страну. Так появилась легенда об Иване Грозном, который убил своего сына.
-«Победителю прилично великодушие», - говорил великий полководец (   Читать дальше...   )Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD008469B004B6A4075C73CA8C8BA20DA39EEFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293332   (637569) от 03.04.2019
-
-VA - Hardstyle Dance Party (2019) [MP3|320 Kbps] <Hard Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anhatema - Pray For Death
-002. Partyraiser - Legends Never Die
-003. Broken Minds - Guns
-004. Dataklysum - Old Dirty Flow(   Читать дальше...   )Жанр: Hard Dance, ElectroПродолжительность: 10:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708F03ADCDE7FEE758D16DE84C3F22ADF2BE36EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293494   (637568) от 03.04.2019
-
-А. В. Шеховцов | Теория товарного фетишизма Карла Маркса (1965) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая читателю книга А. В. Шеховцова имеет большое методологическое значение. Теория товарного фетишизма К. Маркса не получила еще надлежащего развернутого освещения в нашей литературе. Одной из немногих работ на эту тему являлась брошюра автора данной книги «Марксова теория товарного фетишизма», изданная в 1962 году издательством «Высшая школа».
-
-Углубляя (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BE9995F2D38CCCAAE05C011CB321D1B468D24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293487   (637567) от 03.04.2019
-
-Газета | Тайны ХХ века. Русская история №11 (13) (2018) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637567.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любой страны полна мифов и легенд. Дореволюционная Россия, которой посвящен наш журнал, не исключение.
-Как рождаются исторические мифы? Оказывается, самым причудливым образом. Их могут создавать иностранцы, невзлюбившие нашу страну. Так появилась легенда об Иване Грозном, который убил своего сына.
-«Победителю прилично великодушие», - говорил великий полководец (   Читать дальше...   )Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3E29BA1D4E36CF0BC08ED12279FD50926297EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293503   (637566) от 03.04.2019
-
-Газета | Тайны и загадки №2 (2018) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Христианство, которое по историческим меркам оформилось как религия сравнительно недавно - всего две ты- сячи лет назад, на сегодняшний день имеет самое большое количество адептов. Христианские храмы, отличающиеся строгостью и красотой форм, можно встретить на любом континенте и практически в любой стране, а католический крест или православная икона до сих пор во (   Читать дальше...   )Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48452B6843AF3BABBE71D3111BAB6D4AD7059198
+magnet:?xt=urn:btih:3E50A04DC05EA3BDA9DFF9C7B50C4821CCA56035
 ```
 
 https://mybot314.ru/tekegram_catalog/

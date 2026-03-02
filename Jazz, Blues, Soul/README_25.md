@@ -1,32 +1,3 @@
-###  Публикация: 1620697   (1031857) от 21.03.2023
-
-Elles Bailey - Shining in the Half Light (Deluxe Edition) (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheats and Liars (3:49)
-02. The Game (3:04)
-03. Stones (3:25)
-04. Colours Start To Run (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E83ED192D622FDC6DD0FABCE3340D58A624852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447214   (1031812) от 13.02.2021
 
 Marty Straub - Let's Try Some Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -746,6 +717,35 @@ Orquestra Was - Forever's A Long, Long Time (1997) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E064C2BA779AA491CA6FCBC9826F776479414D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621143   (1031198) от 24.03.2023
+
+Malina Moye - Dirty - Dirty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y.A.T.O (You Ain't the One) (3:39)
+02. F.I.N.E (F'd Up, Insecure, Neurotic & Emotionally Unstable) (4:44)
+03. Over Ur Lies (3:44)
+04. Say My Name (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB51167808D365E8A2FDC8A52A8C77C5583F322
 ```
 
 https://mybot314.ru/tekegram_catalog/

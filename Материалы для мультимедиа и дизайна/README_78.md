@@ -1,3 +1,29 @@
+###  Публикация: 192310   (846108) от 15.04.2010
+
+Шаблоны - Свадебный альбом в PSD-3 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение серии "Свадебный альбом в PSD". Вашему вниманию представляется 40 шаблонов фотографий, которые можно использовать как шаблоны при обработке свадебных фотографий.Разрешение файлов: 2421х3543
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499730   (846034) от 03.10.2021
 
 3D модели - Daz 3D - Wolfgang 8.1 Scallywag Bundle - 82564 [DUF]
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21243DA5F16F83E2737EA52AAF150C0A48256B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500732   (840832) от 06.10.2021
-
-Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

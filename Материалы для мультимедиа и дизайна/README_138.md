@@ -1,3 +1,29 @@
+###  Публикация: 1221409   (695095) от 24.04.2018
+
+Текстуры - Jeans Textures X 6 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстуры.Формат: JPGРазрешение файлов: 1920 x 1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E670138C0FFD47926A6D5E1CB9D018B75991D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221405   (695083) от 24.04.2018
 
 Текстуры - Brusheezy - 9 Textures Pack 3 - 22990 [JPG]
@@ -649,32 +675,6 @@ Knitted Style - экшен для Вашего творчества.Формат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA24400889305B9B5FD75A5EB201041AC530EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028162   (692484) от 21.06.2016
-
-Экшены - GraphicRiver - Architect Photoshop Action - Sketch Effect Creator [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Architect - Sketch Effect Creator - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDE55794F8353C7B84D9B512EC0C5DA8AD123EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

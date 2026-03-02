@@ -1,3 +1,119 @@
+###  Публикация: 1191784   (263715) от 15.12.2017
+
+Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, Elektro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruleta (feat. Erick) (3:18)
+02. Gimme Gimme (2:57)
+03. My Dreams (3:11)
+04. Tropical (3:14)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, ElektroПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340667   (263613) от 24.11.2019
+
+Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessun grado di separazione (3:40)
+ 02. L'amore esiste (3:33)
+ 03. Lontano (3:06)
+ 04. Amazing (3:27)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C03658C1A045A3BAD092B763F2DBAF740C2AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340710   (263591) от 24.11.2019
+
+Thegiornalisti - LOVE (2018) Carosello Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (1:25)
+ 02. Zero stare sereno (3:15)
+ 03. New York (3:40)
+ 04. Una casa al mare (2:55)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735736A7631C66366F6917842D2A1733A1C62241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340541   (263577) от 24.11.2019
+
+VA - 100 Greatest Acoustic & Chill Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Chill>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263577.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - Be the One (Acoustic)
+002. Maisie Peters - Feels Like This
+003. Birdy - Wings (Acoustic)
+004. Coldplay - The Scientist(   Читать дальше...   )Жанр: Pop, R&B, ChillПродолжительность: 06:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B250BF200D7F5A6A71077D2DB33C090270A80AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340492   (263573) от 24.11.2019
 
 VA - The Best Disco Album In The World... Ever! (2019) 3CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Dance, Disco>
@@ -635,122 +751,6 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835068   (250587) от 05.11.2025
-
-VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Cross - Arthur's Theme (Best That You Can Do) (3:53)
-02. Tina Turner - The Best (4:10)
-03. Alphaville - Forever Young (3:46)
-04. Yes - Owner of a Lonely Heart (4:28)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835130   (250572) от 05.11.2025
-
-VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cher - Believe (3:58)
-02. THE GOO GOO DOLLS - Iris (4:49)
-03. Big Mountain - Baby, I Love Your Way (4:29)
-04. Diddy - I’ll Be Missing You (feat. Faith Evans & 112) (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F20E005ABFFD0B6D9A5C0E0DBD1DE541B40B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833270   (250471) от 04.11.2025
-
-Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West End Girl (4:06)
-02. Ruminating (3:27)
-03. Sleepwalking (2:57)
-04. Tennis (2:31)(   Читать дальше...   )Жанр: Pop-Rock, ElectropopПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F55FF2074A3026E439175669B4DA5B32FC7D430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564911   (249563) от 21.07.2022
-
-Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break Records [WavPack|Lossless|image + .cue] <Euro-Disco, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Action [4:44]
-02. Go Go Yellow Screen [6:01]
-03. The Beauty & The Beast [5:06]
-04. Don't Stop [4:38](   Читать дальше...   )Жанр: Euro-Disco, Synth-PopПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8EA8797AF8E997020CB922B1BC6D025BC66878
 ```
 
 https://mybot314.ru/tekegram_catalog/

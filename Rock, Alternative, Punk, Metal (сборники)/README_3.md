@@ -1,3 +1,32 @@
+###  Публикация: 524409   (1004698) от 31.07.2021
+
+VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizness Band - Там, где руины превращаются в нас (02:32)
+02. Дочки-Матери - Я не верю (02:24)
+03. Hot Toys - Я смотрю на них (03:01)
+04. Серцевий напад - Кордони гетто (02:50)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1A8A86690E2DD87073DD649DDD3FFD8697542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486601   (1004573) от 01.08.2021
 
 VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
@@ -713,35 +742,6 @@ VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357582   (973002) от 04.02.2020
-
-Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die For Me Only (Black Widow)
-02. Hungry
-03. Back To The Cave
-04. Ready, Willing And Able(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE2411DEC8074ACDD1FA966A49763D57FE836C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1076351   (313686) от 25.11.2016
+
+Prince - 4Ever (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Rock, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss [3:46]
+02. Sign 'O' The Times [3:44]
+03. Alphabet St. [2:25]
+04. Batdance [4:07](   Читать дальше...   )Жанр: Pop, Rock, FunkПродолжительность: 02:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4391B6B188039ADA2D9E38EECF3642B75D5A8BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422218   (313058) от 07.11.2020
+
+Sade - Lovers Live (2002) Epic 506125-2 [FLAC|Lossless|image + .cue]<Sophisti-Pop, Adult Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherish the Day (6:38)
+ 02. Somebody Already Broke My Heart (5:14)
+ 03. Smooth Operator (4:17)
+ 04. Jezebel (6:45)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F1C03D98C1C97BDCE968B8075C3B5205C0F000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182902   (312343) от 12.11.2017
+
+Roby Facchinetti & Riccardo Fogli - Insieme (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strade (3:13)
+02. Per salvarti basta un amico (4:10)
+03. Le donne ci conoscono (4:12)
+04. Il ritorno delle rondini (3:48)(   Читать дальше...   )Жанр: Pop, Italo PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415416FE944E080159659749F6D7F839E94CA2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959954   (312251) от 26.11.2015
+
+Madonna - Something To Remember (1995) [FLAC|tracks+.cue]<Downtempo, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna With Massive Attack , - I Want You (6:23)
+02. I'll Remember (4:22)
+03. Take A Bow (5:21)
+04. You'll See (4:41)(   Читать дальше...   )Жанр: Downtempo, BalladПродолжительность: 00:65:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB05B86E55F756F2B94F0626D1B6A2BEFB331F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182756   (312204) от 12.11.2017
 
 VA - Nu Cool Covers (Pop Classics ReStyled) (2017) [FLAC|Lossless|tracks] <Lounge, Jazz, Pop>
@@ -630,122 +746,6 @@ Chante Moore - The Rise of the Phoenix (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A8A2633EFDB3F541A883F488B2C3E1140ED894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961208   (301231) от 01.12.2015
-
-Everything But The Girl - Adapt or Die. Ten Years of Remixes (2005) [FLAC|image+.cue]<Electro, Downtempo, Deep House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirrorball (DJ Jazzy Jeff Sole Full Remix)
- 02. Before Today (Adam F Remix)
- 03. Missing (CL McSpadden Unreleased Powerhouse Mix)
- 04. Corcovado (Knee Deep Remix / Ben Watt Vocal Re-Edit)(   Читать дальше...   )Жанр: Electro, Downtempo, Deep House, PopПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F3F901E1A2D20E2D96353C0EBAC73A081A9A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261671   (301191) от 12.11.2018
-
-Savoy (Paul Waaktaar-Savoy of A-ha) - See The Beauty In Your Drab Hometown (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, Indie>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Watch
-02. A Month Of Sundays
-03. Falls Park
-04. Manmade Lake(   Читать дальше...   )Жанр: Electronic Pop Rock, IndieПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0450C1397BD5ACE2224BA5BE4BFC7A22F5AB2AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262024   (298757) от 13.11.2018
-
-Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perchè no
-02. Insieme
-03. Anche per te
-04. Io e te da soli(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262100   (298591) от 13.11.2018
-
-Tanita Tikaram - Tanita Tikaram (Acoustic) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop. Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – My Love (Acoustic)
-02 – Valentine Heart (Acoustic)
-03 – Wonderful Shadow (Acoustic)
-04 – Only the Ones We Love (Acoustic)(   Читать дальше...   )Жанр: Pop. AcousticПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5C48BCC71F83DE8868B69AEEB456FA7480E905
 ```
 
 https://mybot314.ru/tekegram_catalog/

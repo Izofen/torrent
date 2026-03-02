@@ -1,25 +1,22 @@
-###  Публикация: 703041   (465825) от 23.09.2013
+###  Публикация: 577883   (358345) от 19.11.2012
 
-Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
+Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465825.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lucifer's Friend - Ride The Sky
-02. Warhorse - Ritual
-03. Frumpy - Take Care Of Illusion
-04. Fleetwood Mac - Dragonfly(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:39
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:452DD195556A2771DC78517003453EE898A801CC
+magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 940046   (464299) от 26.09.2015
+###  Публикация: 577454   (358335) от 19.11.2012
 
-VA - Осенний марафон № 193 / Видеоклипы (Презент Русских Новинок) (2015) WEBRip [H.264/1080p-LQ]
+Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464299.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (23.09.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Emin - Забыть тебя (ПРЕМЬЕРА!) (00:04:37)
-2. Laura Grig - Про любовь (ПРЕМЬЕРА!) (00:03:46)
-3. Stacy - Не делай мне больно (ПРЕМЬЕРА!) (00:03:35)
-4. Ustinova - Когда мы уйдём (ПРЕМЬЕРА!) (00:03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:35
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA098C31EEF857B7917C768FDB9F6A760C2CE4EA
+magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,26 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 703115   (462962) от 24.09.2013
+###  Публикация: 577919   (358229) от 19.11.2012
 
-Ляпис Трубецкой - Месяц (2013) WEBRip [H.264/1080p]
+Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-23 сентября на сайте журнала Rolling Stone состоялась премьера клипа группы «Ляпис Трубецкой» под названием «Месяц». Одноименная песня войдет в первый белорусскоязычный альбом «Ляписов» «Грай», который будет презентован 30 ноября большим сольным концертом в Вильнюсе.
-«Месяц» – это очередная работа украинского клипмейкера Александра Стеколенко, который плотно сотрудничает (   Читать дальше...   )Жанр: RockПродолжительность: 00:04:19
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45BA6C9260470EBD7D833723303D67F59D689665
+magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 941426   (462055) от 27.09.2015
+###  Публикация: 577666   (358221) от 19.11.2012
 
-VA - Осенний марафон № 194 / Видеоклипы (Зарубежный Коктейль Танцевальных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462055.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (27.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexander Brown ft. Jack Savoretti - Jack In A Box (Official Video) (00:03:31)
-2. Carina Dahl - Champions (Official Video) (00:03:40)
-3. Cassadee Pope - I Am Invincible (Official Video) (00:03:33)
-4. Chris Brown - Liquor Zero (Explicit Version) (Official Video) (00:09:30)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, SynthpopПродолжительность: 01:35:50
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3B5BD27EDF567644DF0DD6335989210468B6189
+magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,27 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059305   (461385) от 04.10.2016
+###  Публикация: 577519   (358213) от 19.11.2012
 
-Robbie Williams - Party Like A Russian (2016) WEB-DL [MPEG-4/1080p-LQ]
+Robbie Williams - Candy (2012) [1080p] HDTVRip
 
->>След.
+>>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461385.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Британский певец Робби Уильямс объяснил, почему песня Party Like A Russian из его нового альбома посвящена русской гулянке.
-«Частью британского самовосприятия является поголовная вера в то, что мы самые лучшие в веселье, да и многие страны думают так о себе. Но не существует такой вечеринки, как русская вечеринка», — говорится в ответе Уильямса.
-30 сентября певец (   Читать дальше...   )Жанр: Pop, Dance, BritpopПродолжительность: 00:03:08
+Жанр: POP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C51827DA30455500910C67D230DDADF03B92BCA
+magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 703143   (461351) от 25.09.2013
+###  Публикация: 577924   (358211) от 19.11.2012
 
-Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
+Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461351.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deep Purple - Highway Star
-02. Curved Air - Back Street Luv
-03. Canned Heat - Big City
-04. Deep Purple - No, No, No(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:32
+Жанр: POP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
+magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 703774   (461254) от 25.09.2013
+###  Публикация: 577526   (358056) от 19.11.2012
 
-Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
+No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461254.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Livin' Blues - Livin' Blues Boogie
-02. Nazareth - Morning Dew
-03. Atomic Rooster - Break Through
-04. Guru Guru - Oxymoron(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:15
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
+magnet:?xt=urn:btih:8FC21FF70F15E98B5B3E1442D766A2856620D43F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549841   (460735) от 21.09.2012
+###  Публикация: 577463   (358052) от 19.11.2012
 
-Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
+Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460735.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: R'n'bПродолжительность: 00:03:58
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01BF24A3B0B5456E3AF542827DEFF31F06B2E43E
+magnet:?xt=urn:btih:F056F05B267065B23067D29E1FE6C66F102EF304
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 550362   (460733) от 21.09.2012
+###  Публикация: 577916   (358044) от 19.11.2012
 
-Sika - Love Kills (2012) [H.264/1080p] WEBRip
+Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, DanceПродолжительность: 00:03:37
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00BBE52770AD5858BE2EE0BAF78E76675997EB73
+magnet:?xt=urn:btih:1CDEA2F3A68C4C92CE99E6A651E6EBC29E1C6412
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549839   (460729) от 21.09.2012
+###  Публикация: 577730   (358040) от 19.11.2012
 
-Antonia - Jameia (2012) [H.264/1080p] WEBRip
+ПРЕМЬЕРА! Анастасия Стоцкая - Преступник (2012)  [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460729.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:57
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A240E1535DB1AE0D46D7D4D37CF23BC686A40D1
+magnet:?xt=urn:btih:DA4C4415D7F5BD586D6521D6FA3734D7309EBCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549837   (460572) от 21.09.2012
+###  Публикация: 577886   (358038) от 19.11.2012
 
-Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
+Чай Вдвоем - Время-вода (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460572.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Female Vocal / Hard Rock / Post-GrungeПродолжительность: 00:03:18
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D3C545DA3FD8DB2005585ECFF7D458E5B63ABE2
+magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549831   (460330) от 21.09.2012
+###  Публикация: 577908   (358028) от 19.11.2012
 
-INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
+Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460330.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:37
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ED29E6022452B5E9E2A709F02ECA6EBB069C43D
+magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,28 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404757   (460097) от 10.09.2020
+###  Публикация: 577501   (357663) от 19.11.2012
 
-Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/2160p] <Metalcore>
+Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460097.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 CALLEJON - Gottficker
-02 CALLEJON - Metropolis
-
-Клипы к новому альбому Metropolis, выход которого намечен на 28.08.2020.Жанр: MetalcoreПродолжительность: 00:13:29
+Жанр: TranceПродолжительность: 00:06:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4065A578C6BCB0AC61E7CD30E30FBB7650D06D55
+magnet:?xt=urn:btih:78A5DA3D1739FC818788EA452AD3B9B2C8C19ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,25 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402874   (460086) от 10.09.2020
+###  Публикация: 577872   (357517) от 19.11.2012
 
-Кис Кис - Мелочь (OST Водоворот) (2020) WEBRip [H.264/1080p] <Альтернативный Рок>
+Игорь Горин (Сhiliбомберс) - Дед Лосось (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Кис Кис - Мелочь (OST Водоворот) Single (30-06-2020) LOSSLESSЖанр: Альтернативный РокАктеры: Кис Кис (Софья Сомусева)Продолжительность: 00:03:42
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:439528D50AA930BA7B08CA6E6FD0610F56C085D4
+magnet:?xt=urn:btih:B938B13A4FACA98A15F43F61570A2694822BB88E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,25 +362,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402584   (459951) от 10.09.2020
+###  Публикация: 577867   (357402) от 19.11.2012
 
-Little Big - Tacos (2020) WEBRip [VP9/2160p]
+Иван Дорн - Идолом (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459951.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Little Big - Tacos (Single)Производство: Warner Music RussiaЖанр: PopПродолжительность: 00:03:09
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FC9977B6F3560BFE44B264205753F352A407AA6
+magnet:?xt=urn:btih:A925DE36A15880209E09A867F34A41920674C7D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,25 +388,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 550355   (459652) от 21.09.2012
+###  Публикация: 577722   (357396) от 19.11.2012
 
-BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p] WEBRip
+LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459652.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, DanceПродолжительность: 00:03:29
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C941FE714E7AB83604473E5ED7132A5CCE0BD694
+magnet:?xt=urn:btih:7B66AC015A41ED6E8B1AC2DE08D164086E985CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +414,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407441   (459477) от 10.09.2020
+###  Публикация: 577500   (357388) от 19.11.2012
 
-Сборник клипов 01 (09.2020) WEB-DLRip [H.264/720p-LQ]
+Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459477.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник зарубежных и отечественных видеоклипов за сентябрь 202001_Pickle - Like That
-02_Sak Noel x Salvi - SAXY
-03_Jackson Wang & Galantis - Pretty Please
-04_Ytram & Elderbrook - Fire(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:50:52
+Жанр: Hip-hopПродолжительность: 00:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C7D8AE18D2D0471F2B14105B223D4B84D299959
+magnet:?xt=urn:btih:36A429A398A9220B521F5E7E6D1207F94EA584B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,25 +440,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 550358   (458367) от 22.09.2012
+###  Публикация: 1177957   (355490) от 28.10.2017
 
-Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458367.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, DanceПродолжительность: 00:03:55
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:651FB76560F7F7C05CBE8083745DE6961708A1D3
+magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,25 +469,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 550366   (458365) от 22.09.2012
+###  Публикация: 951898   (353150) от 02.11.2015
 
-Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
+VA - Осенний марафон № 201 / Видеоклипы (Популярные треки осени) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458365.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:22
+Осенние (30.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01.Bob Moses - Tearing Me Up (Official Video) (00:03:33)
+02. Carina Dahl - Champions (Official Video) (00:03:40)
+03. Damon Paul ft. Joelina Drews - Soulmate (Official Video) (00:03:23)
+04. Geo Da Silva - I Love U, Baby (Official Video) (00:03:29)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, PunkПродолжительность: 01:25:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
+magnet:?xt=urn:btih:8AC77119A54A8E6488A1184C0274B0921474AB35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,29 +498,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 388575   (458069) от 17.09.2011
+###  Публикация: 578523   (350586) от 22.11.2012
 
-Legends Disco Star-80 (2009) DVD5
+Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458069.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
-хркъSandra:
-Maria Magdalena
-The Night is Still Young
-ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
+Жанр: Electro HouseПродолжительность: 00:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
+magnet:?xt=urn:btih:82811AC5C11CF478FF2DE90EB398721CCE2BFE1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +524,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321667   (456447) от 25.08.2019
+###  Публикация: 578524   (350427) от 22.11.2012
 
-Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456447.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
-01. La Bouche - Be My Lover
-02. Backstreet Boys - Everybody
-03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
+Жанр: ElectroПродолжительность: 00:03:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
+magnet:?xt=urn:btih:E9B5B64C898F8C0023269FFD970B197C07F56AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,26 +550,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 694859   (456154) от 27.09.2013
+###  Публикация: 408329   (348212) от 12.11.2011
 
-LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
+Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Маргарэт Лиэнн Раймс (Margaret LeAnn Rimes, род. 28 августа 1982 года) — американская исполнительница в стиле кантри, которая известна тем, что начала серьёзную музыкальную карьеру уже в 11 лет, а в 14 лет выиграла свою первую «Грэмми».
-Трек - (Не Можешь Биться с Лунным светом), саунтрек к фильму «Бар „Гадкий койот“»Жанр: PopПродолжительность: 00:03:37
+Жанр: Electro-PopПродолжительность: 00:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
+magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 389049   (456112) от 18.09.2011
+###  Публикация: 256717   (347839) от 11.11.2010
 
-ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
+Ленинград - Сборник клипов (2005) [H.264] DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456112.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
+Жанр: Rock/ Ska/ PunkПеревод: Не требуетсяПродолжительность: 1ч. 10мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
+magnet:?xt=urn:btih:61D87CCF653811394BC718AB17D4EBB27338E625
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,39 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 550793   (455017) от 23.09.2012
+###  Публикация: 578525   (345434) от 24.11.2012
 
-Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
+Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455017.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
-  - Beat-Club
-  - Musikladen
-  - Disco
-  - Top Of The Pops
-(в хорошем качестве VH1)Slade 71-82
-
-1. Get Down And Get With It (promo) (1971)
-2. Coz I Luv You (Top Of The Pops, 1971)
-3. Hear Me Calling (Beat-Club, 28.11.71)
-4. Look Wot You Dun (promo) (1972)
-5. Mama Weer All Crazee Now (Disco, 09.12.72)
-6. Gudbye T’Jane (TOPPOP, 1972)
-7. Bangin’ Man (Disco, 26.10.74)
-8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
+Жанр: Hip-hopПродолжительность: 00:03:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
+magnet:?xt=urn:btih:EE82A60FF7A664BDFA49A6E07DF6926AAA88A61E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +628,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 389409   (453773) от 19.09.2011
+###  Публикация: 1329470   (345255) от 08.10.2019
 
-Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
+Сборник клипов - Old School Hits от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453773.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
+В сборник вошли самые хитовые клипы нулевых. Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old School Hits 1 — Intro
+01. Sugababes — Push The Button
+02. Justin Timberlake & Clipse — Like I Love You
+03. Alesha Dixon — The Boy Does Nothing(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
+magnet:?xt=urn:btih:92FB6FD20774D6C39DE25388537DABAAF8036BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +657,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 389423   (453750) от 19.09.2011
+###  Публикация: 952950   (344068) от 06.11.2015
 
-Миша Маваши - Помнить должен (2011) [720p] WEB-DLRip
+VA - Осенний марафон № 202 / Видеоклипы (Дискотека с размахом) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453750.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: МузыкаРежиссер: Миша МавашиАктеры: Миша МавашиПродолжительность: 00:03:40
+Осенние (02.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ailee - Insane (Official Video) (00:03:39)
+02. Alyosha - Маленький секрет (Премьера!) (00:04:24)
+03. Ariana Grande - Focus (Official Video) (00:03:44)
+04. Blinkie ft. Alahna - Don t Give Up (Official Video) (00:03:23)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep,  Rap, Hip-HopПродолжительность: 01:30:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0001AE56E6F55B2FD71870EEA9D2247AB3921D5
+magnet:?xt=urn:btih:653208510F1607C1B3409096D5287EA79A993C89
 ```
 
 https://mybot314.ru/tekegram_catalog/

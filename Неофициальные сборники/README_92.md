@@ -1,3 +1,206 @@
+###  Публикация: 990934   (907537) от 27.02.2016
+
+VA - The Best Rock (2016) [MP3|256 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907537.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AC DC - Highway To Hell.mp3
+002. Aerosmith - Heart's Done Time.mp3
+003. The Who - Out In The Street.mp3
+004. Jethro Tull - Aqualung.mp3(   Читать дальше...   )Жанр: RockПродолжительность: 07:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA3C328C1679330543EA2578C9F87AE3E10ECE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991321   (907521) от 27.02.2016
+
+VA - Magic Instrumental Music Vol.2 (2016) [MP3|320 кб/с] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giovanni Marradi - Only You
+002. Paul Mauriat - Emotion
+003. Antonio Cobo - Piano
+004. Andy Findon - Happy New Year(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC27823D50469E80F35A5EB37EA4838BA8A6C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368319   (907414) от 21.03.2020
+
+Foo Fighters - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock, Post-Grunge>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everlong 4:10
+02. The Sky Is A Neighborhood 4:05
+03. Best Of You 4:15
+04. Learn To Fly 3:55(   Читать дальше...   )Жанр: Rock, Alt.Rock, Post-GrungeПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A618675FBA77312705B7658A9B032A076C5D7A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368717   (907410) от 21.03.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 20.03.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto (Audioiko Remix) 3:16
+02. Trevor Daniel - Falling 2:39
+03. Billie Eilish - Everything I Wanted 4:05
+04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEBBD47BD94EC9147805808D83D6182C2F9EA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099173   (907350) от 31.01.2017
+
+VA - Trance Traveling 85 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  UCast & Magnus - Echo (Extended Mix)  5:34
+02.  Chris Metcalfe - Orbit (Extended Mix)  4:52
+03.  ReOrder - Spirit Of Ecstasy (Extended Mix)  5:23
+04.  Fabio XB & Marell feat. Christina Novelli - Can't Let Go (Extended Mix)  4:09(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, VocalПродолжительность: 04:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E50F9BC6799809C06C67175EE66CFC1C3AF6692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098879   (907324) от 31.01.2017
+
+VA - Chillout Dream. Winter (2017) [MP3|320 Kbps] <Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907324.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jack-O-Lantern - Dreamer
+002. Norman Amarth - Intrance
+003. Artem Sky - Remember Me
+004. Xavier Baptist - The Early Bird(   Читать дальше...   )Жанр: ChilloutПродолжительность: 04:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CC184CD5D7A11B7F2C02E6F7B4B21E657344F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991049   (907298) от 27.02.2016
+
+VA - Дискотека 2016 Club Dance Vol. №149 от NNNB (2016) [MP3|128-320 кб/с] <Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Analise feat. Alexis - I Love You
+02. Scooter - Don't Break The Silence
+03. Yandel feat. Pitbull & El Chacal - Ay Mi Dios
+04. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Club, Dance, Deep House, Trance, Electro House, Progressive House, Drum’n’Bass, Trap, BassПродолжительность: 10:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F080B731A903756A773EF5BA193CD4E18F9B2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099008   (907215) от 31.01.2017
 
 VA - Beatport Trance Pack (31.01.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
@@ -542,215 +745,6 @@ VA - Новинки шансона. Выпуск 40 (2016) [MP3|256-320 кб/c] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7C70718F25D90950F56671B5E028DB8D6FE3454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098362   (906177) от 31.01.2017
-
-VA - Reggae Hits (Presents: Elgujakviso) (2017) [MP3|210-320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bob Marley & The Wailers - Natural Mystic
-002 Ub40 - Signing Off
-003 Alpha Blondy - I Love Paris
-004 Junior Reid - Chanting(   Читать дальше...   )Жанр: ReggaeПродолжительность: 13:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C502273248E7236B20651F91E0BE4FAC46EF378A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991338   (906067) от 28.02.2016
-
-Michael Learns To Rock - Super Hits Collection (2016) [MP3|320 кб/с] <Pop , Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday
-02. That's Why (You Go Away)
-03. Shadow Side Of Me
-04. Complicated Heart(   Читать дальше...   )Жанр: Pop , Pop-RockПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26A3D97ECEDE3093DC82AA4AF86BC97370AEF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991349   (906065) от 28.02.2016
-
-VA - Record Super Chart № 425 (2016) [MP3|128-320 кб/с] <Club House, Electro House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostany - Teddy Bear (Astero Remix)
-02. Sander Van Doorn, Moti - Lost
-03. Major Lazer, Nyla, Fuse ODG - Light It Up
-04. KSHMR, Marnik - Bazaar!(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 1:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE3DEFD41AAB24352402BE260526F1DA39C5200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991658   (905998) от 28.02.2016
-
-VA - Русская жажда скорости (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905998.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - Займёмся Любовью
-002. Alekseev - Держи Меня
-003. Артур Лабор - Твой Каблук
-004. Мята - Бомба(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E817C2D362EC5B887420AF3E94DF69EC3986257F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991493   (905896) от 28.02.2016
-
-VA - 100 Hits Remix DFM (2016) [MP3|320 кб/с] <Remix, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Redfoo vs DJ Favorite Mr. Romano & DJ Pitchugin - New Thang (DJ GRishin Mash Up)
-002. Мот - День и ночь (Zarubin & Chippon Remix)
-003. Mc Joe, The Vanillas - Only Love (A.R. Mix)
-004. Rich-Art, Da Rave, IYLTD - Hear You Say (Alex Menco Remix)(   Читать дальше...   )Жанр: Remix, Club, DanceПродолжительность: 06:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113379910515CDB309DC99AF852CF406BCB3E5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636294   (905856) от 28.03.2013
-
-VA - Лучшие хиты весны на Радио Шансон (2013) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905856.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Альберт Ибраев - Я Здесь Родился
-002. Арматура - Зимний Вечер
-003. Игорь Кандур - Лунный Свет
-004. Владимир Кисткин - Тропинка
-005. Тимофей Пак - Колода Карт
-006. Александр Заборский - Ночь Начинается
-007. Александр Заколодний - Еду Я Домой
-008. Любовь Успенская - Ловите Вора
-009. Александр Кировский - На Делянке
-010. Игорь Латышко - Любимая Женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A318C05CA56B5ABBFDD7628A924AEC44CDD04453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368995   (905697) от 22.03.2020
-
-VA - Rhythmic Funk (2020) [MP3|320 Kbps] <Funk, Easy Listening, Funky Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905697.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Heidi B - Mr. Fly (Cristian Poow Instrumental)
-002. Inusa Dawuda - Love Criminal (Mota Remix)
-003. U.K. - Roadrunner
-004. James Reese - Let's Go(   Читать дальше...   )Жанр: Funk, Easy Listening, Funky DiscoПродолжительность: 08:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F946CE7B98E55C213C868F808556629D24606
 ```
 
 https://mybot314.ru/tekegram_catalog/

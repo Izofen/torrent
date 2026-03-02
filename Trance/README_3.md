@@ -1,3 +1,176 @@
+###  Публикация: 1441605   (1037460) от 22.01.2021
+
+VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES & Oliver Smith - Don't Let It End (Extended Mix)
+02. Will Atkinson - Rush (Extended Mix)
+03. Alexander Popov & Planet Perfecto - Bullet In The GunЖанр: TranceПродолжительность: 02:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E924FB914284B782920417EEA6869A3760EAA757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616036   (1037007) от 28.02.2023
+
+VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Choose & That Mucho - Release Me (Original Mix) [6:17]
+02. Angel Ace - The Sunset (Radio-Edit) [3:37]
+03. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix) [7:47]
+04. Lyes & Slimane - Find Your Way (Original Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1004CABD022896F3CE1BB87BBF9FF2B2F5635B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616288   (1036728) от 01.03.2023
+
+VA - World Of Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cenk Basaran - The Finger (Original Mix) [6:01]
+02. Facade & Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) [6:54]
+03. Somna & Vijo Caselle - Afterglow (Original Mix) [8:37]
+04. Paul Denton - Monday Club (Original Mix) [6:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BEAA2F42C3388FF1A8CD018556843808BF98E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442488   (1036591) от 25.01.2021
+
+VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix)
+02. Susana - Dark Side Of The Moon (Ferry Tayle Remix)
+03. Ana Criado - In A Thousand Skies (Dan Stone Remix)
+04. Philippe El Sisi & Sarah Russell - You Are (Steve Dekay Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E60625CA41E26B7E2335B88987A909CDB32F54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616414   (1036432) от 02.03.2023
+
+VA - Ultimate Trance Weekender: Amsterdam (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Hampshire & Thomas Datt feat. Senadee - Speed Of Light (Steve Brian Remix) [6:44]
+02. Dimension - Vulcano (Original Mix) [7:58]
+03. Sensetive5 - To The Stars (Original Mix) [7:05]
+04. Dave Horne - Into The Future (Original Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712429D0B96E96936F06BCDF3DF23B5F37962C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442713   (1036317) от 26.01.2021
+
+VA - Trance Vision (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut)
+02. Dreamy - Scar (Radio Cut)
+03. George Harrold - Ayuhuasca (Radio Cut)
+04. Artra & Holland - Mountains (Radio Edition)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FEF86C7629C085B6AD43A055E0224BE9B365F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443006   (1036015) от 27.01.2021
 
 VA - Roger Shah - Magic Island Best Of (2020) [MP3|320 Kbps] <Trance, Melodic House>
@@ -571,180 +744,6 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 February (2021) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A5471FDE6F7D9CED7C5079BBF0AA509AD7BB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447581   (1031657) от 14.02.2021
-
-VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Von Gert - Magic Of Trance Vol 12 (Continuous DJ Mix)
-02. Ithur - Mentor (Extended Mix)
-03. Roman Sand - Waterfalls (Original Mix)
-04. Catchfire - Falling Down (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DD5D7B3780A8A7D9112C1BFB8A257DD7E2F2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620882   (1031227) от 24.03.2023
-
-VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tillmann Uhrmacher - On The Run (Talla 2XLC Extended Remix) [6:21]
-02. Vimana - Dreamtime (Johan Gielen Extended Remix) [7:24]
-03. Talla 2XLC - Ragnaroek (Extended Mix) [6:46]
-04. Allen Watts - Mainframe (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C7A247713E8EBA1777BEC5AEC1C25EAE6B7B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621691   (1030993) от 25.03.2023
-
-VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katrin's World & Trance Reserve - RUSH (Extended Mix) [5:55]
-02. Trance Reserve - Black Shark (Extended Mix) [5:54]
-03. U-Mount & SpaceLine - Libra Terra (Extended Mix) [7:34]
-04. Sergiy Akinshin - RUN (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D05AE6E685C2F73177445AFCE66B12B2BB4E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621431   (1030988) от 25.03.2023
-
-VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flambo - By Your Side (Expand) [3:23]
-02. Flambo - Trancetastic (Original Mix) [4:55]
-03. Tonliebe - Unbreakable (Instrumental Version) [3:21]
-04. Mike Rules - Sunflower (Original Mix) [5:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868E9DD477DB6C571ADD6A4B3D44ED988C20C386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621141   (1030986) от 25.03.2023
-
-VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Larssen - Time Machine (Original Mix) [6:46]
-02. Sybranax - Binary Star (Original Mix) [6:21]
-03. Nick Osta5h - Deja Vu (Original Mix) [7:01]
-04. Atti Master & PUNK JUNGLE - Enter The Future (Extended Mix) [5:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFBB8ECAD59BAD8DB48E7ADF04C6FA5B7FB73AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448543   (1030701) от 18.02.2021
-
-VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Plumb - Somebody Loves You (Extended Mix)
-02. Dan Stone - Vice Versa (Extended Mix)
-03. Paul Denton - Existence (Extended Mix)
-04. James Dymond - Jupiter & Beyond (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE81BEF205265F2D0D1D27B9158416280226AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

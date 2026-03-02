@@ -1,3 +1,29 @@
+###  Публикация: 1791680   (21322) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Christmas Bokeh and Glitter Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с рождественским боке и блестящей текстуройФормат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EE933A922FB13F46CDFA982D8C7C052BC10E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791694   (21320) от 15.04.2025
 
 Текстуры - Creative Store - Creative Fabrica - Modern Mid Century Digital Papers [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96CBC09A04ED24B17DDBFF0464FDCC884B075C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793094   (20595) от 22.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Pastel Mixed Media Flowers Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с цветами в пастельных тонах.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D97B0AB032A238097772F06FC350CE4A334AE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

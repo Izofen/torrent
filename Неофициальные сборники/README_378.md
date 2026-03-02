@@ -1,3 +1,206 @@
+###  Публикация: 927251   (529944) от 12.08.2015
+
+Bombay Lounge - Sexy Lounge Music Sensuality Chill Songs Summer Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy Lounge Music
+02. Happy (Party Time)
+03. Sensuality
+04. Bombay (Party Music)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA62118110A28A1B8D9D1304E8EA5F9EF27751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927219   (529940) от 12.08.2015
+
+VA - Best Of Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service - Cafe Del Mar (Original Mix)
+02. Maria Nayler - No Mistakes (Original Mix)
+03. Zack Shaar - City 21 (Original Mix)
+04. Store N Forward - Clouds Across My Heart (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB351E4C1C966D660829813C38DBECD7CC84F0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927244   (529938) от 12.08.2015
+
+VA - Club Nights Summer Edition (2015) [MP3|320 кб/с]<Electro, Future House, Funky, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ftampa & The Fish House - 031 (Original Mix) 03:41
+02. Kasbo - Again (Original Mix) 03:50
+03. Dj Unk & Another Monster Feat. Erica Leigh - Alive 05:39
+04. 3Lau Feat. Emma Hewitt - Alive Again (Extended Mix) 04:54(   Читать дальше...   )Жанр: Electro, Future House, Funky, ProgressiveПродолжительность: 07:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDF5053549C4CE85E0B7C37AFCA9738BFF36642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927282   (529838) от 12.08.2015
+
+VA - Summer Breeze (2015) [MP3|320 кб/с]<Vocal, Euro, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunflash - I Won't Let The Sun Go Down (Raggatone Edit)
+02. Commercial Club Crew - La Isla Bonita (Crew 7 Radio Edit)
+03. Vita - Love Me, Hate Me (Radio Mix)
+04. 1950 Feat. Ruby Blu - Follow Me (Radio Mix)(   Читать дальше...   )Жанр: Vocal, Euro, ClubПродолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03571B5A491793B2FA5AB4C9EBDD3402C4EA660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927271   (529828) от 12.08.2015
+
+VA - Sexy Ambient Music (2015) [MP3|320 кб/с]<Ambient, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klub 59 - Our Generation Rise (04:20)
+02. Mantra Dream - Blue Shift (06:08)
+03. Love Pacific Industries - Thinking of You (05:00)
+04. Alberto Moggi - Happy (06:37)(   Читать дальше...   )Жанр: Ambient, Lounge, ChillOutПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392956A083802785186BBC8D9EE4F3154CEC7830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927187   (529724) от 12.08.2015
+
+VA - Best Of Eurodance (2015) [MP3|224 - 320 кб/с]<Eurodance, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E-Type - Russian Lullaby
+02. Minnesota - What's Up (12' Dance Mix)
+03. C-Block - So Strong Out
+04. Don't Y Girl - Easy Love(   Читать дальше...   )Жанр: Eurodance, DanceПродолжительность: 06:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B619F4C08C68645FE9BF025E1AE5F790195BB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926980   (529723) от 12.08.2015
+
+VA - Gym Is Better Motivation (2015) [MP3|320 кб/с]<Progressive House, Trance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruslanio Tarr - Night Call (Original Mix)
+02. Mak5ast - Freeze (Mak5ast's New Generation Mix)
+03. Kids Electronics - Non-Electronic Guy (Original Mix)
+04. Crazy Power - Tokyo (Double Creativity Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Electro HouseПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811C61D8DE235D31BFE3D8F79CA385E4125CA531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156086   (529562) от 05.08.2017
 
 VA - Золотые семидесятые vol. 4-6 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
@@ -540,209 +743,6 @@ VA - German Top 100 Single Charts 04.08.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CAC8798A34F44244813FC964790768B632517F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156234   (528485) от 06.08.2017
-
-Peter Green - The Very Best (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Me To Go
-02. One More Night Without You
-03. Black Magic Woman
-04. I'm A Steady Rollin' Man(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C82C7EEC9E5AC9C4F82ECA6CD816D5E14FC1598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312804   (528280) от 07.07.2019
-
-VA - Recursion Abyss: Metal Meeting (2019) [MP3|320 Kbps] <Metall, Power, Black>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528280.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mindforce - Nightmare
-002. Necrovist - The Journeys Between
-003. Fate After Midnight - Price You Pay
-004. Jon Of The Shred - Reflections Of The Past(   Читать дальше...   )Жанр: Metall, Power, BlackПродолжительность: 10:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507A58E0BE66008C64743B4B84C6DFC8ED5F2AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313082   (528240) от 07.07.2019
-
-VA - German Top 100 Single Charts 12.07.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Capital Bra x Samra - Tilidin (2:52)
-2.Shawn Mendes & Camila Cabello - Señorita (3:11)
-3.Shirin David, Maître Gims - ON OFF (3:11)
-4.UFO361, Data Luv - Shot (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34447D23381FE505F89DF28A7607B08E38A3120E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313010   (528238) от 07.07.2019
-
-VA - The Official UK Top 40 Singles Chart 05.07.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ed Sheeran, Justin Bieber - I Don't Care (3:39)
-2.Shawn Mendes & Camila Cabello - Senorita (3:11)
-3. Ed Sheeran feat. Khalid - Beautiful People (3:17)
-4.Stormzy - Crown (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8D334F3859175D2DC891804D69875DB92F04E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312806   (528230) от 07.07.2019
-
-VA - Summer Night: Creaton Soft House Electro Mix (2019) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrea Lp - Make Your Way
-002. Club House Masters - Under The Sound (Original Mix)
-003. Edas - Lose Your Mind
-004. David Ortiz - Simply (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 10:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD75257738EB197984EAAAED65FB2FA9E2283287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312839   (528223) от 07.07.2019
-
-VA - Empire Records - Fake 7 (2019) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugle & Smith - Airwave
-02. DJ Luciano - Feel Good
-03. Michael Angelo & Solo - Every Time We Said Goodbye (Ion Blue Edit)
-04. Nico Otten Crystal Blakk - Breathe (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1A6736E3782BAA5636B83C825D81D364030AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052471   (528192) от 14.09.2016
-
-VA - Make Live Loud Primes (2016) [MP3|256~320 Kbps] <House, Electro House, Dirty House, Melbourne Bounce, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Candys Feat. Clyde Taylor  -  Make It Home (Gino G Remix)  4:26
-02. D-Devils  -  Dance With The Devils (The Games Are Open) (Extended Version)  4:53
-03. Deadmau5  -  The Reward Is Cheese (Nom De Strip Remix)  3:41
-04. Tritonal  -  Gamma Gamma (J Trick Remix)  4:08(   Читать дальше...   )Жанр: House, Electro House, Dirty House, Melbourne Bounce, Club, DanceПродолжительность: 03:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BEFD9863B732381E22D5F73BC4CD3102FFBC51
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,207 @@
+###  Публикация: 1359986   (961881) от 14.02.2020
+
+VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Dava - Ранила (Amice Remix) (4:36)
+2.Veber - Я Буду Кричать (4:04)
+3.Bahh Tee feat. HammAli & Navai - Жить, Не Думая О Тебе (3:55)
+4.Anivar feat. Adamyan - Руку Держи (3:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007C25FEF577B36CF81E3A15F1F46D3D7AE5A5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360225   (961853) от 14.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights 3:22
+02. SAINt JHN - Roses (Imanbek Remix) 2:56
+03. Zivert - Credo 3:04
+04. AronChupa & Little Sis Nora - Hole In The Roof 2:50(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B2B368A9B43F950F9F3AC6A39BD1B187D96C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360136   (961761) от 14.02.2020
+
+VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 1 (2020) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой подарок всем влюблённым! Аудио версия видеосборника о любви. Это 1я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Bryan Adams — Please Forgive Me
+02. Mr. Big — Wild World
+03. Рондо — Я буду помнить
+04. Michael Bolton — Time Love And Tenderness(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA241195D9D3605C84D46CA4C7EBC49531679209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747649   (961449) от 20.01.2014
+
+VA - The Official UK Top 40 Singles Chart (19-01-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот раз BBC очень поздно опубликовало свой традиционный UK Singles Chart . В 23.05 по Москве появился очередной официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Pharrell Williams - Happy (3:53)
+02. Pitbull Feat Ke$ha - Timber (3:24)
+03. Avicii - Hey Brother (4:14)
+04. Jason Derulo - Trumpets (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB208371828AAE09321F2321F91624099FAA33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979006   (961159) от 25.01.2016
+
+VA - I Love House Music 2016: The Finest and Deep House Music Collection (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ajad Samskara - Wine and Chocolate
+02. Andy Conan - XxSex
+03. Stefano Lot - Black Mamba
+04. Denny Lee - Tango and Love(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F0C086E1C6B4401BC35D15B5E8D06F9CFEF315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979070   (961138) от 25.01.2016
+
+VA - Sound Golden Sand: Relax Session (2015) [MP3|320 кб/с] <Chillout, Lounge, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961138.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michele Taylor - Morning Light (Original Mix)
+002. Gabriel Diggs - Ojala
+003. Living Room - Your Love
+004. Sensotango - Libre - Original Mix(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5101426A6D902D233852C26705EA4633B8F19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978943   (961060) от 25.01.2016
+
+VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, Pop, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roman Flugel - Wilkie (Original Mix)
+002. Rex The Dog - Musik Hypnotises (Original Mix)
+003. Rayko - Get Up
+004. NTEIBINT - A Baby For My Bass(   Читать дальше...   )Жанр: Funky House, Nu Disco, Pop, Indie DanceПродолжительность: 10:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B318C26DF8031AD3930C44BA6B3BE3673D647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979225   (961057) от 25.01.2016
 
 VA - Bass House Grooves Sense (2016) [MP3|230-320 кб/с] <Dance, Club House, Electro House>
@@ -545,211 +749,6 @@ VA - Blues Forever vol.05 - vol.08 (2015) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F794C561B12A3D4152EF4DB08BCB2F35441ADCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360605   (959408) от 16.02.2020
-
-VA - The Official UK Top 40 Singles Chart 14.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Roddy Ricch - The Box
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96937A1A7AC7866257DE1CD1B0A2E6D151B8F9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979618   (958434) от 27.01.2016
-
-VA - The Eurodance Evolution 2016 (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free 2 Night - Under the Sun (Eurodance Remix) [04:33]
-02. Real 2 Day Ft B.P. - Change Our Life (Radio Mix) [03:12]
-03. B.P.M - No End No Limit (Radio Mix) [03:27]
-04. Shilton - Don't Stop Your Dreams (Eurodance Radio Mix) [03:00](   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0668CD3F90102E813D953D89FEBF77FBE40D6026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979642   (958202) от 27.01.2016
-
-Ace Of Base - Super Hits Collection (2015) [MP3|320 кб/с] <Disco , Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always Have, Always Will
-02. Wonderful Life
-03. Dr. Sun
-04. All That She Wants(   Читать дальше...   )Жанр: Disco , EurodanceПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2DE72C3CC466BC8B7EF4033B98C33D58BB744D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360849   (958082) от 17.02.2020
-
-VA - Зимняя свежая 30-тка Vol.4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958082.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Anessa Kay - Уходи (3:00)
-2.Elbrus - Я Не Верю (3:07)
-3.Gezweirdo feat. Nomovoln - Цепи (3:18)
-4.HammAli & Navai - Где Ты Была (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D92F62ABCC0318416552ED6FCD5BE1F68F8D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856531   (957579) от 05.01.2015
-
-VA - The Official UK Top 40 Singles Chart (04-01-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую первый в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
-02. Philip George - Wish You Were Mine  (2:58)
-03. Ed Sheeran - Thinking Out Loud  (4:42)
-04. Ben Haenow - Something I Need  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066C24ABB9D11C5587701F3841365B9C8C992B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979918   (957459) от 28.01.2016
-
-VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957459.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Waas Van Siem - Cold Sun
-002. Blue Dolphin - Dreams
-003. Black Pulsar - Searching 4 Love
-004. ViDs - Passion Spills (DJ Brush vs Darren Tech Remix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 11:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980133   (957411) от 28.01.2016
-
-VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Cage - On Top of the World
-02. Jon Craig - Out of the Blue 2015 - Radio Edit
-03. Just Matte - Rusty Boat
-04. Jonathan Morning - Matter of Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,51 +1,31 @@
-###  Публикация: 1456510   (243091) от 22.03.2021
+###  Публикация: 477456   (98534) от 04.04.2012
 
-Sensei 1.4.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2021Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEFC764ADA4D1118C1C2D5D169E244C6AEF4E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634006   (243090) от 18.05.2023
-
-VA - 2Rock Club Hits Vol. 3 (2023) [MP3|320 Kbps] <Trance>
+Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243090.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lightstate & DJoy with Ria Joyse - Heartbliss (Extended Mix) [5:39]
-02. Mark Versluis - Flexwerk (Extended Mix) [7:26]
-03. Tycoos & Sandro Mireno & Natune - I Will Try (AV Extended Mix) [5:11]
-04. Ajam Shaz - Escapes (Extended Mix) [6:26](   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:12
+01.Tears Of Horizon (Breaking Dawn Mix) (02:23)
+02.The Rising Of a New Day (Original Mix) (09:07)
+03.Water (Original Mix) (05:13)
+04.Norther Lights (Extended Mix) (06:06)
+05.Falling Stars 9.0 (Radio Edit) (03:52)
+06.Nature 2.0 (Extended Mix) (09:04)
+07.No Silence (DNA Revolutions Remix) (08:28)
+08.When The Rain Falls (Original Mix) (03:52)
+09.The Beauty Of Life (Extended Mix) (09:28)
+10.Beach Breeze (Original Mix) (03:59)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:26:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFD2EECAD14AE00DC230B8D4D05D903F0182F2F9
+magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,214 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623951   (243086) от 03.04.2023
+###  Публикация: 477690   (98531) от 04.04.2012
 
-AquaSoft Stages 14.2.05 RePack (& Portable) by elchupacabra [Multi/Ru]
+Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243086.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AquaSoft Stages представляет собой мощный инструмент для профессионалов, фотографов, аниматоров и амбициозных продвинутых пользователей. AquaSoft Stages - это все что нужно для создания анимированных презентаций. В программу входят более 100 визуальных эффектов, большинство из которых могут быть настроены и использованы в различных формах, панорамное масштабирование, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE761D0A9D1409FB5716C03DEAF0E246C53499B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540383   (243085) от 29.03.2022
-
-GoodNotes 5 v5.8.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
-Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © 2011-2022 GoodNotes LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86CC33CBB869D7591C99BD1CE44CD978F52BB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456521   (243084) от 22.03.2021
-
-Alfred 4 Powerpack 4.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2021Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE38C099669F06092C11259A55FAC922E9C908D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623815   (243079) от 03.04.2023
-
-UniBook - Аудиокниги v0.5.6 [Ru/En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Облачный плеер для прослушивания аудиокниг напрямую из облачного хранилищаТип издания: AdfreeРелиз состоялся: 02.04.2023Разработчик: iSamodurovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3F8C0C4047C25913FBB15D0747515EDCD554F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353470   (243072) от 18.01.2020
-
-BusyCal 3 v3.8.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243072.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2286DCC1AE2BABC927FCDA31215CD57989823AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540434   (243071) от 29.03.2022
-
-Artstudio Pro 4.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB223F5352F39853535C130C2834044FBA73E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082295   (243068) от 12.12.2016
-
-Биатлон. Кубок Мира 2016/2017. 2-й Этап. Поклюка (Словения). Мужчины. Эстафета 4x7,5 км (11.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243068.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 декабря 2016 года, воскресенье. 13:15 МСК
-Кубок Мира 2016/2017. 2-й Этап. Поклюка (Словения)
-Мужчины. Эстафета 4x7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF435EE11BAE607ED85ED67D128363F0EDBAA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543059   (243058) от 09.04.2022
-
-BELOFF [dp] 2022.04.1
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
+1. Vid Elden (01:38)
+2. Ripeluokte (06:24)
+3. Himlalågor (07:40)
+4. Tjåkkå (04:22)
+5. Stállo (06:03)
+6. Ripeluokte II (08:50)
+7. Nordafejd (05:41)
+8. På Fjället (04:22)
 
-Приятного времяпрепровождения за компьютером!
+"...Lönndom seems to be situated elsewhere, in its own still lively world, listening to inner and outer voices most of the civilized people in the Western societies might never hear, even when they made a trip into the outback - these two musicians have a truly individual and sensitive approach towards nature and spiritual matters..."(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A6F94F58E88E17827AC6EB10D42EED42770CF0E
+magnet:?xt=urn:btih:8A675062C8B45827EF5121DDB8FE5DF22F42E8B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,25 +68,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623823   (243055) от 03.04.2023
+###  Публикация: 478138   (98529) от 04.04.2012
 
-TweakPower 2.036 + Portable [Multi/Ru]
+VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Time Happens Flying (Araya & Wach 'Polisia' Remix) 07:20
+02. Araya & Wach - Tunland (Aiera Remix) 07:11
+03. Miroslav Vrlik - Love In Us (Manuel Rocca Levitated Mix) 07:04
+04. Miroslav Vrlik - Sweetheart (Original Mix) 06:43
+05. Ahmed Romel - City Of Life (Running Man Remix) 08:46
+06. Ico - And She Made It All Of Light (Thomas G 303 Mix) 07:58
+07. Evo & Faveon - Essence (Denis Sender Remix) 07:01
+08. K-Narf & Tristan Armes - Glimmer (N&R Project Remix) 07:57
+09. Kaimo Kerge - For What Its Worth (Airway 7 Vs Alter Future Remix) 07:53
+10. Inca - Time (Original Mix) 08:362012Жанр: TranceПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489BABA50135FB59CD2814ACC6E1F3A42DE421BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477492   (98525) от 03.04.2012
+
+Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243055.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Sumatra PDF — это программа для просмотра файлов в формате PDF с минималистическим интерфейсом и только самыми необходимыми функциями. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Название программы: Sumatra PDFЯзык интерфейса: Мульти, есть русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:732F7B75B1465F82F9362B9F4CFCFF31C769ADA7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,27 +129,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082302   (243047) от 12.12.2016
+###  Публикация: 477438   (98522) от 03.04.2012
 
-Биатлон. Кубок Мира 2016/2017. 2-й Этап. Поклюка (Словения). Женщины. Эстафета 4x6 км (11.12.2016) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+[Wallpapers] Easter  Desktop Wallpapers
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243047.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 декабря 2016 года, воскресенье. 16:30 МСК
-Кубок Мира 2016/2017. 2-й Этап. Поклюка (Словения)
-Женщины. Эстафета 4x6 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумПродолжительность: 01:22:36
+[Wallpapers] Easter  Desktop Wallpapers 
+Название:  Easter  Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A261692F72DA7D64C19B0151ED240302EC682EB
+magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,25 +159,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568292   (243042) от 07.08.2022
+###  Публикация: 477327   (98520) от 03.04.2012
 
-ViMu Media Player for TV 9.15 Mod by Vildanoff [Ru/Multi]
+[Wallpapers] Retro AVTO Collection
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243042.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ViMu Media Player for TV - это гибкий и удобный медиаплеер для медиа-приставок на Android TV и FireStick. Воспроизводит видео с внутренней памяти, SD-карты или с подключенного USB-накопителя. В плеере ViMu имеется поддержка сетевых протоколов SMB, WebDAV и DLNA. Поддерживает большинство видео и аудио форматов, встроенные субтитры и внешние плейлисты. Он также умеет (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.05.2022Разработчик: GTVBox.netПоддерживаемая ОС: ATV 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+[Wallpapers] Retro AVTO Collection 
+Название:  Full Retro AVTO Collection 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:745AE96B7524D47DC41B9D5D9545A882D0E19478
+magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +189,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353559   (243039) от 18.01.2020
+###  Публикация: 477342   (98515) от 03.04.2012
 
-Tune Sweeper 4 v4.22 [En]
+[Wallpapers] Desktop Wallpapers Pack 35
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243039.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tune Sweeper - мощный инструмент для очистки вашей библиотеки iTunes. Приложение выполняет поиск и удаление дубликатов треков из вашей библиотеки iTunes на одном дыхании. Tune Sweeper также можно использовать для загрузки недостающей информации о треках и иллюстраций в ваши треки.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Wide AngleПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+[Wallpapers] Desktop Wallpapers Pack 35 
+Название:  Desktop Wallpapers Pack 35 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 5000х3000
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:208966DB844F18ECB944A59862C9B2E5EB56C640
+magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +219,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353481   (243032) от 18.01.2020
+###  Публикация: 477411   (98514) от 03.04.2012
 
-FigrCollage 2 Home Edition v2.5.17 (23) [Multi]
+[Wallpapers] Spring Desktop Wallpapers
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243032.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FigrCollage - программа для создания удивительных композиций, коллажей и мозаик, из любых цифровых изображений и текста. Приложение поддерживает обработку изображений в форматах JPG, PNG, TIFF, и дает возможность сохранять готовые файлы в высоком качестве.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+[Wallpapers] Spring Desktop Wallpapers 
+Название:  Spring Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4152х2757
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81B5DEF12A14B31F84F12C6F7109A249089F8CC0
+magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +249,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457230   (243027) от 25.03.2021
+###  Публикация: 477525   (98509) от 03.04.2012
 
-Paletter 4 v4.1.0 [En]
+VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243027.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самым сложным в дизайне может быть просто выбор цвета. Палитра призвана облегчить вам жизнь, помогая открывать и создавать красивые цветовые комбинации.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Toys, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+01 Adele - Set Fire To The Rain (The Perez Brothers Remix)
+02 Alexandra Burke feat. Erick Morillo - Elephant (Wideboys Club Mix)
+03 Alex M.O.R.P.H. feat. Sylvia Tousun vs. Gaia - An Angels Tuvan (Coleman Hamilton 'Stryker Memorial' Mashup)
+04 Armin Van Buuren - Orbion (Max Graham, Protoculture Remix)
+05 Betsie Larkin & Sied Van Riel - The Offering (Extended Mix)
+06 Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
+07 Courtney Argue & J.Greene feat. Pitbull - Make It Rain (RLS & 2Frenchguys Extended Remix)
+08 Daddy's Groove & Little Nancy - It's Not Right, But It's Okay (Extended Mix)
+09 Damon Paul Feat Patricia Banks - Without You (Sven & Olav Mix)
+10 Deep Voices feat. Alexander K.G. Klaus - Because The Rain (Space RockerZ Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 5:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90E81147C61F174553BE99C4F5BBB3A2C86BF7DE
+magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +284,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540317   (243026) от 29.03.2022
+###  Публикация: 477001   (98508) от 03.04.2012
 
-Stats 2.7.10 [Multi/Ru]
+Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic Death,with Middle Eastern influences>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243026.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+01. One Last Breath 05:36
+02. What Remains 03:45
+03. Voices From Within 05:28
+04. Fading 03:49
+05. A Soft Whisper 04:14
+06. Reveal My Path 03:41
+07. Escaping the Mind-Grid 06:03
+08. Obscure 03:24
+09. Theom 01:22
+10. Consistent Duality 05:22(   Читать дальше...   )Жанр: Gothic Metal,Melodic Death,with Middle Eastern influencesПродолжительность: 00:52:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10B760A4842452FB243DB2FC1E03530FE6A429A0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,26 +319,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457366   (243020) от 25.03.2021
+###  Публикация: 477660   (98504) от 03.04.2012
 
-Exposure Software Blow Up 3 v3.1.4.379 ARM [En]
+[Wallpapers] Computer Desktop Wallpapers Collection (04.04.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243020.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
-Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B590F0BCE6498115FC1B6CB6B606635A4AF4BD8A
+magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,27 +345,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353460   (243018) от 18.01.2020
+###  Публикация: 477623   (98503) от 03.04.2012
 
-Хоккей. НХЛ 2019-2020. Нью-Джерси Дэвилз - Вашингтон Кэпиталз (16.01.2020) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243018.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 января 2020 года, пятница 03:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100 % при вместимости 18 506)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Крис Шленкер (Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:27
+01 Contraband - Rocknrolla (Original Mix)
+02 Azari & Iii - Reckless (With Your Love)
+03 Bara Brost - Madame Mila
+04 Blue Foundation - Bonfires (Dubstep)
+05 Boris Brejcha - My Love
+06 Duck Sauce - Big Bad Wolf
+07 Maceo Plex - Ain't That Love
+08 Spektre - Get Together (Original Mix)
+09 Whitenoize - The Underground (Tjr Remix)
+10 Ticon - The Programmer (Spektre Remix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 10:27:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:299D0D6D2441F372B48840B08790E2F99AB6FAFB
+magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,26 +380,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540403   (243017) от 29.03.2022
+###  Публикация: 476231   (98501) от 03.04.2012
 
-Dropzone 4 Pro v4.3.0 [En]
+VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Techno, Dubstep, Drum&bass, Electronic>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243017.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+01. Marcel Woods - Champagne Dreams ( Original Mix )
+02. David Forbes - Safety ( Original Mix )
+03. Toper & Andrian - Laziness ( Original Mix )
+04. Octane & DLR feat TST - Red Tape ( Original Mix )
+05. Cliff Coenraad - Modulate ( Original Mix )
+06. Pfirter - The Dub Track ( Len Faki Remix )
+07. Tommy Trash - Cascade ( Original Mix )
+08. Broken Note - War In The Making ( Original Mix )
+09. Schelmanoff - Roof Wanted ( Original Mix )
+10. Utopia - Scan Me ( Original Mix )(   Читать дальше...   )1997-2012Жанр: Progressive house, Electro, Techno, Dubstep, Drum&bass, ElectronicПродолжительность: 01:30:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8086DA7E7F3EBCB43962EF95EABAEF79A3C0F87B
+magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,26 +415,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624181   (243010) от 04.04.2023
+###  Публикация: 477501   (98499) от 03.04.2012
 
-Alfred PowerPack 5.1 Pre-release [En]
+VA - Весенняя танцевальная вечеринка (2012) [MP3|160-256 кб/с]<Pop>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243010.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 2023 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+1. Аника Далински - От Заката До Рассвета (3:15)
+2. Шахзода - Нереально без тебя (DJ Kirill Clash radio remix) (3:27)
+3. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (3:27)
+4. Milena & Denis Murzin - До Утра (Filipp Aniskin Remix) (3:22)
+5. Leyla - Ночной DJ (3:45)
+6. Глюкоза - Кошка (3:23)
+7. Mixi - Между Мной И Тобой (Dj Andy Wait Remix) (4:02)
+8. Слава - Люди любят (3:11)
+9. Нимфа - Доминикана (3:30)
+10. Глюк`oza - Хочу мужчину (DFM mix) (3:15)2012Жанр: PopПродолжительность: 06:47:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79C0EE27B3AF227CB08FA925015CCD26FCAF9D58
+magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,26 +450,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540273   (243006) от 29.03.2022
+###  Публикация: 477662   (98497) от 03.04.2012
 
-Amadine 1.3 [En]
+[Wallpapers] Wallpapers Sexy Girls Pack (04.04.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243006.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
-Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: ©2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56708817B81A23911F5FDC00AD32B801C044E9FD
+magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,25 +476,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565031   (243005) от 07.08.2022
+###  Публикация: 477305   (98495) от 03.04.2012
 
-Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari – By Zak Boxall (2020) PCRec [EN]
+[Wallpapers] Desktop Wallpapers Pack 34
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98495.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 34 
+Название:  Desktop Wallpapers Pack 34 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1418х1065 - 4968х1572
+Расширение (тип) файлов: jpgСкриншоты::tongue:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477468   (98492) от 03.04.2012
+
+Журнал | Stuff №4 [апрель 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_243005.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В индустрии практически невозможно сделать ассет без фото-референсов, и этот курс сфокусируется как раз на фотореалистичных текстурах. Мы не будем создавать их из головы, вместо этого мы воспользуемся фотографиями в качестве направления работы и вдохновения. Разберем фотографии и на основе исследования сделаем наши текстуры, попутно составив план по работе над ассетом. (   Читать дальше...   )Производство: GumroadЖанр: Созданию текстурЯзык озвучки: АнглийскийПродолжительность: 04:05:00
+Журналапрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA5DDE00E37FCC021CD7D502CFD47306F7A8461F
+magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +532,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457285   (242998) от 25.03.2021
+###  Публикация: 477180   (98491) от 03.04.2012
 
-Stacks 4 (RapidWeaver plugin) v4.2.1 [En]
+Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive | Post-Metal>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242998.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stacks - это новый способ для создания страниц в RapidWeaver. Это плагин разработан, чтобы объединить простоту drag-and-drop с силой fluid layout.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2021Разработчик: YourHead SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01. Glasnost
+ 02. Murdocracy
+ 03. Division
+ 04. ReconnectЖанр: Alternative Metal | Progressive | Post-MetalПродолжительность: 00:52:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A52A9089F264125A14004E4EC5094798DFD4976
+magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +561,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624062   (242989) от 04.04.2023
+###  Публикация: 477185   (98486) от 03.04.2012
 
-Process Lasso Pro 12.1.0.26 RePack (& Portable) by TryRooM [Ru/En]
+[Wallpapers] Computer Desktop Wallpapers Collection (03.04.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242989.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45074B05FE59DF6067222A2D16DE3179DE795EC1
+magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,26 +587,208 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457199   (242975) от 25.03.2021
+###  Публикация: 477167   (98485) от 03.04.2012
 
-n-Track Studio Suite 9.1.3 [Multi/Ru]
+[Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242975.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для обеспечения студийного качества записи, редактирования и микширования.
-Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E32839758A7182D3FF88AC998CA21769218447EB
+magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476579   (98484) от 03.04.2012
+
+Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Grindcore / Goregrind / Death'Roll>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Nota Maron
+ 02. Fecal Deluxe Party
+ 03. El Modelo Shitman
+ 04. Lord Of The Gas
+ 05. Las Tías Buenas No Cagan
+ 06. Cagando En Arguelles
+ 07. Coprovoyeur
+ 08. Vejado Por Gordas Deprvadas
+ 09. Salcedo's Adventure
+ 10. Coprosicion Incedente(   Читать дальше...   )2011Жанр: Grindcore / Goregrind / Death'RollПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477392   (98483) от 03.04.2012
+
+VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Molla & Marquis - Self Control (Radio Edit)
+02. Tommy Vee, Nicola Fasano, Steve Forest & Luca Guerrieri Feat. Mat Twice - Tell Me Waf
+03. Example - Changed The Way You Kiss Me (Mike Candys Remix)
+04. Armin Van Buuren Pres. Gaia - Stellar (Original Mix Edit)
+05. Scooter Feat. Vicky Leandros - C'est Bleu
+06. Lady Gaga - Marry The Night (David Jost Twin Remix)
+07. Basto! - Again And Again (Bassanova And Moradzo Remix)
+08. Dj Smash & Chinkong - Lifemission (Radio Edit)
+09. Dj Rynno And Sylvia - Feel In Love (Radio Edit)
+10. Alexandra Stan - Crazy (Nir Ozer Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477701   (98481) от 03.04.2012
+
+Журнал | Академия домашней кухни №2 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит дом. В издании не только готовые рецепты блюд, но и разные кулинарные истории, советы по организации кухонного пространства, выбору посуды, кухонного оборудования, мебели и т.д., а также письма с вашими предложениями, рецептами, с вашим полезным опытом.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88CC9956DD010F4FE5DFEB8AF2849ED7DF587CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477116   (98478) от 03.04.2012
+
+VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256 kbps]<Pop | Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - Lika & Korol Lir - Любовь подставила (DJ Pomeha mix)
+002. A. Klimik - Blizhe
+003. Adrian Milena - Move Your Body (Original Mix)
+004. Alex Mica - Dalinda (Radio Edit)
+005. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+006. A-Lika & Korol Lir Ft. DJ Pomeha - Любовь Подставила (Original Radio Mix)
+007. Anton Neumark & Crime-A - Maria (Neumark Edit)
+008. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix)
+009. Anton Neumark vs Phunk Investigation, Aeronautics - Underground (Electrica Salsa Mash Up)
+010. Aqua - Come N' Get It(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFE5B3AA03947F403650CB52E702FB1472A2B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477661   (98477) от 03.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (04.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE600900D61CBCD8B061F9E2A392F109107F3196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476968   (98474) от 02.04.2012
+
+Джонатан Кэрролл | Цикл "Рондуа" [2002-2009] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный цикл мастера магического реализма, достойного продолжателя традиций, как своего знаменитого однофамильца, так и Ричарда Баха; впрочем, Кэрролл не любит, когда его сравнивают с Воннегутом или Дугласом Адамсом, предпочитая сравнения с Гессе, Маркесом и прочими, по его выражению, авторами «сказок для взрослых».2002-2009Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1603433   (1045743) от 09.01.2023
+
+VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive, Afro House, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Gunning - Uncertain Sky (Mimo Remix)
+02. Saintrop - Back in My Life
+03. D Seven - Pianodance (South Blast Showtime Mix)
+04. Q-Busta - This Feels Like(   Читать дальше...   )Жанр: Club, Progressive, Afro House, GrooveПродолжительность: 01:48:06 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A976EAAC31803F8C3D61473D653842BFA04B399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604110   (1045476) от 12.01.2023
+
+VA - Music News vol.237 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alessandra - Queen Of Kings (02:28)
+ 002. Alexandra Ungureanu feat. Paul Ananie - Cea Mai Frumoasa Iarna (02:31)
+ 003. Allnity - По Барабану (02:31)
+ 004. Almost Weekend feat. Michael Shynes - Nice Face (Konn Remix) (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B1876238906E1625F83B975EDEBF3D61B4747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604762   (1045125) от 15.01.2023
+
+VA - Свежаки Зимы 2023 Remix NNM (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Винтаж - Ева (DMC COX Extended Mix) (4:44)
+02. Зомб - Baby Tonight (Kalatsky Remix) (Radio Edit) (3:01)
+03. Yes17 - Мама (Alexandr Zarva Remix) (4:00)
+04. Мари Краймбрери - По городам (DJ Alex Ezhov Remix) (Radiio Edit) (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113AD8D7AD4E54358E91DBE0BC893CB6515A23E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605001   (1045054) от 16.01.2023
+
+VA - Music News vol.238 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chany Dakota feat. Thomas Sykes & Mark F. Angelo - In The Middle (02:28)
+ 002. All Time Low - Tell Me I’m Alive (02:36)
+ 003. Aluna feat. MK - Kiss It Better (MJ Cole Remix) (04:04)
+ 004. American Authors - Best Night Of My Life (02:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6129D94EA7C6704CE8D40C2C22CFACD566949687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599678   (1044941) от 17.01.2023
+
+VA - В машине с музыкой Vol.325 (2022) MP3 (320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ислам Итляшев - Ресторан (03:40) 2022
+02. Rasa Feat. & Dashi - Не Хочу Домой (03:08) 2022
+03. Nifiant - Never Let Me Go (03:23) 2022
+04. Александр Чурей - Застольно-Хулиганское (04:10) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2F3B42BA6A0CD3A31CB2A58653632B3E864E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604480   (1044937) от 17.01.2023
+
+VA - Старый Новый год Vol.01 (2022-2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044937.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kylie Minogue - Only You
+002. Никита Хазановский - Новый Год
+003. Paul Potts - Ave Maria
+004. Сергей Одинцов - Новый Год(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDA36032C4F5143C266F465970F512851930232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602922   (1044933) от 17.01.2023
 
 VA - Музыка для машины Vol.1 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -571,180 +745,6 @@ VA - Музыка для машины Vol.6 (2023) [MP3|320 Kbps] <Pop, Dance, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3B1444F831D43F6C5E5185C52B3E13CF0BB4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436881   (1042776) от 02.01.2021
-
-VA - Music News vol.61 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042776.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анастасия Рэй - Станем Cтранными (03:00)
- 002. Alex D'Rosso & Swizznife feat. Eeva - Good Vibrations (02:25)
- 003. AlphaLove feat. Conor Maynard - Don't Wanna Stop (02:37)
- 004. Anabel Englund - Picture Us (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AA33FF5F90DB7099FE23A34029FBBE5A846E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610036   (1042615) от 06.02.2023
-
-Soul Ballet - Compilation (2023) [MP3|320 Kbps] <Electronic, Smooth, Jazz-Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choose Me
-02. City of Desire
-03. Glitters is Gold
-04. Love, Juliet(   Читать дальше...   )Жанр: Electronic, Smooth, Jazz-Pop, OtherПродолжительность: 01:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3082FC28317E26294481106765B9C76F7A4DC22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610206   (1042593) от 06.02.2023
-
-Engelbert Humperdinck - Compilation (2023) [MP3|320 Kbps] <Pop, Vocal, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Time
-02. The Way it Used to Be
-03. Only a Lonely Child
-04. Without You(   Читать дальше...   )Жанр: Pop, Vocal, Easy ListeningПродолжительность: 02:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F87511DA437833F2AAA7CF2331FD0F9695F274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610207   (1042591) от 06.02.2023
-
-VA - Music News vol.243 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042591.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gerda - За Такую Любовь (02:16)
- 002. 52Ghz - Спасибо Тебе Бать (02:06)
- 003. 220 Kid feat. Kangdaniel & Willim - Look Where We Are (03:12)
- 004. Adesse - Dance With Me (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3427BF1EF23A7A3F41E7DB3968A56E5DDF3E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165962   (1042312) от 07.02.2023
-
-VA- 70 лучших композиций для романтического вечера [MP3|320 kbps]<PoP, Rock>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042312.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:35]  Connels - 74-75
-[04:28]  Enigma -  Boum boum
-[04:30]  Eros Ramazzotti - Cose Della Vita
-[04:20]  Bryan Ferry - Don`t Stop The Dance(   Читать дальше...   )Жанр: PoP, RockПродолжительность: 04:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8203EBFA457032E1558C6764D5296ED733CA91F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437161   (1042281) от 04.01.2021
-
-VA - Hard Fitness Dance Music (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляетесь на пробежку или в тренажерный зал? Закиньте этот плейлист в плеер, и вы сами поразитесь успехам, которые будут достигнуты на спортивном поприще!001. Exagon & The Unknown - Fight Back
-002. Hypnose - Phoenix
-003. Unifire - Generation Z
-004. N-Vitral - I'm A Rebel(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C06AE8C847D9F967D5F3E5F3B085E52448A1780
 ```
 
 https://mybot314.ru/tekegram_catalog/

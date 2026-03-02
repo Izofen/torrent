@@ -1,3 +1,206 @@
+###  Публикация: 984488   (939010) от 09.02.2016
+
+VA - In The Language Of Trance (2016) [MP3|320 кб/с] <Uplifting, Progressive, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939010.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cor Fijneman feat. Jan Johnston - Venus (Meant to Be Your Lover) (Tiesto remix)
+002. Marc Simz feat. Emma Lock - Untimate Love (Original Mix)
+003. Ruben De Ronde LTN feat. Kimberly Hale - Moment Of Truth (Ruben De Ronde Mix)
+004. Christian Peter Stier - Last Summer (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Progressive, Vocal TranceПродолжительность: 10:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A87599AA065326CE95A91C3B4942B9B87F6CC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092530   (938947) от 12.01.2017
+
+VA - Best Electronic Republic Trance (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Richard Durand - Breakdown (Original Mix)  7:40
+02.  Miroslav Vrlik - Soul Of Darkness  6:00
+03.  Denis Kenzo & Alexandra Badoi - More Time (Original Mix)  5:49
+04.  Gordey Tsukanov - Flight To Infinity (Original Mix)  6:47(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 02:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274F3E2F23DF81C766446D86280D4F501F8A61ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092505   (938943) от 12.01.2017
+
+VA - TrackStarter: Higher Funky Place (2017) [MP3|320 Kbps] <House, Tech House, Progressive, Tribal, Afrobeat>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pablo Dichiara - Move Body  4:27
+02.  Armin van Buuren & Garibay Feat. Olaf Blackwood - I Need You (Radio Edit)  3:27
+03.  Nacho Chapado - There's No Love (Ennzo Dias Circuit Mix)  6:53
+04.  DJ Farre & Celeste - What s Love (Extended Mix)  4:07(   Читать дальше...   )Жанр: House, Tech House, Progressive, Tribal, AfrobeatПродолжительность: 08:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BEFAE195329EB736052C95D0AABC119B0A8AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092410   (938941) от 12.01.2017
+
+VA - State Singles Home (Trance Pack  8 January) (2017) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen Watts & Jak Aggas - Spitfire (Original Mix)  6:37
+02.  Daydreamer - Levitation (Original Mix)  6:58
+03.  Masaru Hinaiji - Dear Yui (Original Mix)  10:53
+04.  Armin Van Buuren & DBX - Indestructible (Protoculture Remix)  4:04(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 05:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F51526CACD8B1B6578B0A24FBFAB7E4BD27CD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984561   (938923) от 09.02.2016
+
+VA - Xtreme Sounds: Original Mix (2016) [MP3|320 кб/с] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938923.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artful Dodger - Re-Rewind (feat. Craig David)
+002. DYKANE - Lost Summer (Original Mix)
+003. Daniel Bedingfield - Gotta Get Thru This (D'N'D Radio Edit)
+004. Benny Camaro - Something Inside (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1CE65B542994D57C858CD9C878782F44CB4FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984653   (938921) от 09.02.2016
+
+VA - Модный жаркий зимний хит (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lca & Melo D Bright - Rainbow 03:41
+02. Lx24 - Время-Предатель 03:32
+03. Kristina Si - Не Обижай Меня 03:01
+04. Jacquie Lee - Tears Fall 03:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611D7F0EC41E592E1C15190A675563F211BB4704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092384   (938879) от 12.01.2017
+
+VA - Зимний музобоз русский. Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938879.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Климашенко - Как Больно 3:31
+002. Slider & Magnit - До Утра 4:08
+003. Алира - Одинокое Солнце 3:49
+004. Григорий Лепс - Но Ты Не Я 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468DE599521A77CA8232FDF940DA8542EEDF2A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092391   (938874) от 12.01.2017
 
 VA - Блатной шансон на любимой волне Выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
@@ -539,209 +742,6 @@ VA - 100 Greatest Trance Anthems (2020) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743164582D5E9C7AF67794484DFCF8C70FA83B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364128   (937738) от 02.03.2020
-
-Pat Travers - Travelin' Blues (2020) 2CD Compilation [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life In London
-02. Calling Card Blues
-03. Who Can You Turn To
-04. Stevie(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74924FC012B9A4404C3593A0826159AA0E6B8FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364297   (937731) от 02.03.2020
-
-Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Time
-02. Mystery Of Love
-03. Work That Magic
-04. Cold Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092995   (937429) от 13.01.2017
-
-VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Reorder Extended Remix)  5:51
-02.  Xian - Equinox (Original Mix)  8:00
-03.  Stoneface & Terminal With Ana Criado - My Heart Wont Tell You No (Original Mix)  8:20
-04.  STA - Singularity  8:28(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092962   (937407) от 13.01.2017
-
-VA - SuperBomb Club Music Pack 60 (2016) [MP3|320 Kbps] <Progressive House, Big Room, Electro House, Trance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer & Ron Rockwell — Axel F. (Crew 7 Remix) (3:48)
-02. Armin van Buuren vs. Vini Vici feat. Hilight Tribe — Great Spirit (Extended Mix) (7:37)
-03. Bad Nelson — Babylonia (Original Mix) (3:35)
-04. Bassjackers vs. Skytech & Fafaq — Pillowfight (Extended Mix) (4:01)(   Читать дальше...   )Жанр: Progressive House, Big Room, Electro House, Trance, ClubПродолжительность: 03:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BF6DB08F970A465120FB446B60C16D71C89BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092841   (937340) от 13.01.2017
-
-VA - Aboved Singles Reviews (Trance Pack  9 January) (2017) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vadim Spark & Dennis Graft - Spells (Radio Edit)  3:23
-02.  Allen Watts - Square One (Original Mix)  6:44
-03.  Mario Piu - Thunderstruck (Voolgarizm Mix)  6:32
-04.  Alexander Dyomin - Reborn (Delta IV Remix)  6:16(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 05:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE30396F9C8C50A745FB4D37F81F60DEB87F177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092888   (937336) от 13.01.2017
-
-VA - The Big Party Omega (2017) [MP3|195-320 Kbps] <Club, Progressive, Vocal, Happy Sound, Funky, Bounce>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtek feat. MC Ambush - 90s By Nature (Original Mix) 04:34
-02. Robin S & R.O.N.N. (Aka Ron Carroll) - So Alive (Code3000 Remix) 06:44
-03. Luca Debonaire - Hung Up On You (Original Mix) 05:20
-04. Leston - Down The Drain (Crazibiza Remix) 04:37(   Читать дальше...   )Жанр: Club, Progressive, Vocal, Happy Sound, Funky, BounceПродолжительность: 06:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D81D5D53AA3C0C6DBB3E1FF4A9591CEF9856C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092793   (937322) от 13.01.2017
-
-VA - Respect System Groove Dancing (2017) [MP3|251-320 Kbps] <Club, Funky, Electro, Progressive, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gil Sanders - Funky Freedom (Radio Edit) 02:39
-02. Discorocks Feat Kalypso - Happy (Full Intention's Met Life Remix) 05:45
-03. Dj Leon El Ray Feat Anthony Poteat - If You Let Me (Original Mix) 06:07
-04. Dafunkeetomato - Everyone's Dancing (Original Mix) 06:34(   Читать дальше...   )Жанр: Club, Funky, Electro, Progressive, Nu DiscoПродолжительность: 06:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A9A256828E48D850EC6E989288B5A33764A2AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

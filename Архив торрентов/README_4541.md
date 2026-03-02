@@ -1,183 +1,30 @@
-###  Публикация: 1442760   (238443) от 26.01.2021
+###  Публикация: 457855   (94342) от 25.02.2012
 
-eBookBinder 1.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238443.jpg" />
-</div>
-
-
-###  Подробнее
-
-eBookBinder - это супер-простой инструмент для создания собственных электронных книг с использованием существующих документов. При компиляции проекта книги eBookBinder создает файл *epub.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2021Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100F8B69CAB0959137BD594853600A65FF635250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629045   (238438) от 25.04.2023
-
-Kdenlive 23.04.0 + Standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3147A29D35D587664312A632B59D3B2B1FB64D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548031   (238433) от 30.04.2022
-
-CPUID HWMonitor 1.46 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238433.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPUID HWMonitor - утилита предназначена для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. показателей накопителей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BA89868B5D46051A56ABEF357EEE7696A5275E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637319   (238431) от 03.06.2023
-
-IObit Uninstaller Free 12.4.0.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238431.jpg" />
-</div>
-
-
-###  Подробнее
-
-IObit Uninstaller представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное удаление" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8844994B3E0FE973E3683C47F8FF18EA8C8A4217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628801   (238429) от 24.04.2023
-
-Optimizer 15.1 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Optimizer - утилита расширенной настройки, которая поможет вам восстановить конфиденциальность и повысить безопасность.
-Optimizer рекомендуется использовать после свежей, чистой установки Windows для достижения максимальной конфиденциальности и безопасности.
-В зависимости от версии Windows, Optimizer также позволяет выполнять некоторые специфические настройки.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DDB273B5C7915A5DA7D646743E84FDC0F727B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639297   (238424) от 12.06.2023
-
-HDCleaner 2.051 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238424.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A289E1F688C932A4B23D6D6027333CEBEC6D98CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579974   (238418) от 30.09.2022
-
-Cher - I Paralyze (1982) Expanded Edition, 2016, Columbia/Legacy [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soft Rock, Ballad>
+VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238418.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rudy [00:03:50]
-02. Games [00:03:55]
-03. I Paralyze [00:03:49]
-04. When the Love Is Gone [00:04:02](   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, BalladПродолжительность: 01:15:37
+01. Zane - Shadows 06:36
+ 02. Eight Sin - Orchestra 05:57
+ 03. Naturalize - In Memory of a Friend 07:15
+ 04. Kularis - Fruitopia (Querox rmx) 07:27
+ 05. Monod - Calculations 08:04
+ 06. Klopfgeister - Progwarts 07:35
+ 07. Hi Profile - Today 09:47
+ 08. Mr Suspect - Diva 07:44
+ 09. Synsoniq - Point of Pleasure 08:112012Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22F728E5F4CF7FF4B723BF929B95BDF57AF95BF7
+magnet:?xt=urn:btih:3DA1C7C37A85A4EC9016AA93C27B12F5C94B2BAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,26 +32,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623642   (238415) от 02.04.2023
+###  Публикация: 457896   (94325) от 25.02.2012
 
-Invisible 2.6.2 [Multi/Ru]
+Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Progressive>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238415.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Invisible - надежная и ориентированная на пользователя утилита, которая позволяет защитить паролем ваши данные и скрыть свои личные данные с помощью нескольких щелчков мыши
-Invisible является простым в использовании и очень интуитивным инструментом, который предоставляет своим пользователям самый простой способ, чтобы скрыть и защитить свои личные данные от посторонних (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2023 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
+01 Jungle Of Sounds (With Iva) 07:53
+ 02 Electrify 06:36
+ 03 Dune (With Sideform) 07:05
+ 04 Synapse 06:31
+ 05 Borderland 06:26
+ 06 Vertigo (With E-Clip) 07:23
+ 07 Crystal 07:16
+ 08 Deep Blue (With Middle Mode) 08:04
+ 09 Quirky 07:452011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C9E22738F1AF5612761DC856996D96F020BE4E8
+magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +66,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628887   (238396) от 24.04.2023
+###  Публикация: 457275   (94279) от 24.02.2012
 
-CCleaner 6.11.10435 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
+Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, Fusion>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238396.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_94279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+01. Fire Dance (5:18)
+02. Spirits Ride (6:18)
+03. Caravans (6:13)
+04. El Mirage (5:09)
+05. Without a Word (6:16)
+06. September (3:17)
+07. Trio (5:24)
+08. Hope Rising (5:23)
+09. Journey Home (Birdsong Medley) (2:05)
+10. Birdsong (Birdsong Medley) (5:17)(   Читать дальше...   )2004Жанр: Contemporary Jazz, New Age, FusionПродолжительность: 00:58:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B79B01F811D14638733AD1716E38D4B52831ECA3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,26 +101,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628706   (238390) от 24.04.2023
+###  Публикация: 457099   (94277) от 24.02.2012
 
-Spotify 1.2.9.743 (Repack & Portable) by elchupacabra [Multi/Ru]
+[Фото знаменитости] Christina Aguilera
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238390.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
-Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+Фото Кристины Агиллеры в высоком разрешении
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5F1079DD61726AE5631FADD153BC0E4DC39F7E6
+magnet:?xt=urn:btih:1CC78A99957A6B3A0E1DCC82DB3FC8FE8A95951F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,25 +127,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580244   (238385) от 30.09.2022
+###  Публикация: 456944   (94274) от 24.02.2012
 
-Calibre 6.6.0 + Portable [Multi/Ru]
+[DE] Чужая душа - потёмки / Ihr koennt euch niemals sicher sein / None of you can ever be sure (2008) DVDRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238385.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Oliver (Ludwig Trepte) ist leidenschaftlicher Rapper. Nun soll er im Deutschkurs einen Aufsatz über "Die Leiden des jungen Werther" verfassen. Doch weil er den im Stile seiner Raptexte verfasst hat, erhält er von seiner Lehrerin eine Sechs. Enttäuscht und missverstanden verlässt er die Klasse. Dabei verliert er einen weiteren Text, in dem er ein Blutbad an seiner Schule ankündigt. Oliver wird zur Beobachtung in die Jugendpsychiatrie eingewiesen.
+Dort lernt er Katja kennen...
+
+Оливер (Ludwig Trepte) увлечен рэпом. Но когда ему приходится написать работу по немецкому на тему "Страдания юного Вертера", которую он создает в рэпперском стиле, учитель ставит ему самую низкую оценку. Когда подросток в расстроенных чувствах покидает занятие, он случайно теряет еще один из своих текстов - тот, в котором красочно описывает кровавую бойню в собственной школе. Оливера направляют к психиатру, где он знакомится с Катей, загадочной и неуравновешенной девушкой...Жанр: ДрамаРежиссер: Николь ВигманнАктеры: Людвиг Трепте, Дженни Шили, Юрген ТонкельПеревод: ОтсутствуетПродолжительность: 01:27:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C5AECD3DC9A6DC6608849D045AFE2F17ECC81CA
+magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,25 +156,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628760   (238359) от 24.04.2023
+###  Публикация: 457210   (94273) от 24.02.2012
 
-AIO Boot NewGen 23.4.20.0 Portable [Multi]
+VA - Royal Flush Vol. 4 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238359.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIO Boot NewGen - это мощное программное обеспечение, которое предоставляет пользователям удобное и простое в использовании решение для создания мультизагрузочных USB-накопителей. Разработанное командой AIO Boot, этот софт предлагает ряд расширенных функций, которые делают его идеальным инструментом для опытных пользователей и ИТ-специалистов.Язык интерфейса: Английский, Турецкий, Вьетнамский.
+CD1 :
+Продолжительность: 01:11:05
+
+ 01. Cimi vs Bomb Voyage - Particles and Waves 08:12
+ 02. Invisible Reality - Sunflower 07:42
+ 03. Meander & Ridden - Space Navigators 07:51
+ 04. Elecdruids - Insanity 08:16
+ 05. Jumpers & Analog Drink - Surrounded by Stars 07:18
+ 06. Abstract Sunrise - Butterfly 07:59
+ 07. Zyce - Gates 09:24(   Читать дальше...   )2012Жанр: Psychedelic / ProgressiveПродолжительность: 02:21:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F80CF4BC3145834EE8FABB99D2FFF675A7806612
+magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,25 +191,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573282   (238354) от 30.08.2022
+###  Публикация: 455783   (94259) от 24.02.2012
 
-CrystalDiskInfo 8.17.6 RePack (& Portable) by elchupacabra [Multi/Ru]
+ASM - Platypus Funk (2010) [MP3|192-320 kbps]<Hip Hop / Funky Breaks / Reggae>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238354.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1. Age of the Platypus
+2. Turnaround (ft Warrior Queen)
+3. Root to the Fruit (ft Wildchild)
+4. Certified Organic (ft Sadat X)
+5. Momentum (ft Kidnanevil & Bonobo)
+6. Move Like This (ft DJ Vadim & Mattic)
+7. 9-Fiddy Number (ft Fredo)
+8. Vanilla Phillie (ft Stab (Berry Weight))
+9. Guaranteed (ft Wax Tailor)
+10. Transatlantic (ft Maanumental GP)(   Читать дальше...   )Жанр: Hip Hop / Funky Breaks / ReggaeПродолжительность: 00:52:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F2A8B1E5AC3A370F37C8F8CCC87AFF6B0FF5BC8
+magnet:?xt=urn:btih:B291C0D1D571685A6BC470AF62E596D8C36D28C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,26 +226,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573132   (238344) от 30.08.2022
+###  Публикация: 457024   (94253) от 24.02.2012
 
-WiFi Explorer Pro 3 v.3.5 [Multi]
+VA - 10 Full Moons (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238344.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
+01. TighT - Magic 07:32
+ 02. Mind Oscillation - Life Is Just A Ride 05:30
+ 03. Abomination - Secret Sand (Noisixx Remix) 07:47
+ 04. Distortion Orchestra - Freefall 06:36
+ 05. Urantia - Inside 07:01
+ 06. Cozmographika - Solar Flare 05:30
+ 07. Cosmo Circle - Protocol 06:51
+ 08. Alien Radio - S.E.T.I.  07:50
+ 09. In Head - Levitate 07:50
+ 10. Frame - Lush Sceneries 06:362012Жанр: Psychedelic / Full OnПродолжительность: 01:09:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85B233BF7B4FEECA428E0D559A5CA40C654F5FE6
+magnet:?xt=urn:btih:07B511F179D9E6581F8B6BE5330A46F9B4CFF1BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,25 +261,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491302   (238342) от 24.08.2021
+###  Публикация: 456970   (94227) от 24.02.2012
 
-Deliver 2.6.24 [En]
+Ben Kweller - Go Fly A Kite (2012) [MP3|-V0 ~245 кб/с]<Indie Rock>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238342.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deliver - это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлением по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке электронной почты, сжатие, доставку по нескольким направлениям и многое другое. Сообщения уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.08.2021Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+01. Mean to Me
+02. Out the Door
+03. Jealous Girl
+04. Gossip
+05. Free
+06. Full Circle
+07. The Rainbow
+08. Justify Me
+09. Time Will Save the Day
+10. I Miss You(   Читать дальше...   )2012Жанр: Indie RockПродолжительность: 00:39:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25854888AF95180A7C31F25647868DF48B480E05
+magnet:?xt=urn:btih:1BC61418D7B74360546AA8E0232327004710D9FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,26 +296,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445668   (238341) от 06.02.2021
+###  Публикация: 456986   (94226) от 24.02.2012
 
-Dato 2.2.1 [En]
+DJ Kocmoc - Electro Sensation vol.19 (23.02.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238341.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2021Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 10.15.5+Язык интерфейса: Английский
+1. Ben DJ - I Wanna Take You Away (Quentin Mosiman Remix)
+ 2. Conrado - Should I Know (Crazy Disco Sound Remix)
+ 3. Daisy Hicks - Million Years (Bodybangers Extended Mix)
+ 4. Dirty Ztylerz & Stayc - Good Time (Extended Vocal Mix)
+5. LMFAO - Party Rock Anthem (Peppermint Private Rework)
+ 6. Mootz - Hyper Elastic (Vodge Diper Remix)
+ 7. Looneys - Freak Out (Original Mix)
+ 8. Looneys - Autopitch (Alex Cuccolini Remix)
+9. Philipp Ray & Viktoriya Benasi - Rock My Heart (DJ Nejtrino & Dj Baur Remix)
+ 10. S&H Project feat. Jades - Summer's Gone (Spencer & Hill Remix)(   Читать дальше...   )23.02.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:27:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25C062E6D268CA35019960F7B2C910BDAB9AB587
+magnet:?xt=urn:btih:47253484BC4654624719BA2AFBA3458D02F2A2FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,26 +331,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637399   (238332) от 03.06.2023
+###  Публикация: 456614   (94222) от 23.02.2012
 
-Perfectly Clear WorkBench 4.5.0.2519 RePack (& Portable) by elchupacabra [Multi/Ru]
+Сергей Щепетов | На краю империи: Камчатский излом [2011] [FB2]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238332.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Начало 18 века. Митрий Малахов был обычным казаком. Сын русского и ительменки, он нес государеву службу на Камчатке. Собственнаяжадность и беспечность однажды поставили его на край гибели. В предсмертном бреду сознание служилого сомкнулось с сознанием его«двойника» из 21-го века. Контакт был недолгим, но казак стал иначе смотреть на окружающий мир, вспомнил о своём родстве с ительменами. Среди прочего Митька узнал, что родная Камчатка будет разграблена, а древний народ ительменов исчезнет с лица земли. Сможет ли он изменить историческую судьбу своей малой родины? Это почти безнадёжно, но Митька Малахов будет пытаться – воевать безпощады к себе и другим, действовать хитростью и отвагой.2011Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F69B4104B8BB51C1626A2CC644EC1AF1EC759D1B
+magnet:?xt=urn:btih:FD0909A01E958CC705F62649B2C2945EF394B13D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +357,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491277   (238327) от 24.08.2021
+###  Публикация: 457001   (94220) от 23.02.2012
 
-Stats 2.6.6 [Multi/Ru]
+[Wallpapers] Hi-Res Wallpapers
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238327.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 22.08.2021Разработчик: Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+Весьма качественные обоины с сайта zastavki.com на разные темы кроме девушек. их выложу в другом релизе =)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CFE1BA8FD93F0F70E7AEF11E3A60A9B63E9CECB
+magnet:?xt=urn:btih:0BA163510E2942C425A2BC5AEA348DBC10ABB982
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,27 +383,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637325   (238325) от 03.06.2023
+###  Публикация: 457112   (94219) от 23.02.2012
 
-Balabolka 2.15.0.849 + Portable [Multi/Ru]
+[Wallpapers] HD Girls Wallpapers
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238325.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
-Для воспроизведения звуков человеческого голоса могут использоваться
-любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
+Пак из 244 обоин с девушками
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:340A296AD4F057B1C73EB1980CE61DF69C2E089F
+magnet:?xt=urn:btih:1A2D745A4C8B3BA9CD71652E7C803F32DB3A7A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,27 +409,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445537   (238323) от 06.02.2021
+###  Публикация: 456927   (94186) от 23.02.2012
 
-Duplicate Manager Pro 1.3.9 [Multi/Ru]
+Олег Зоин | Кремляндия [2012] [FB2]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238323.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Duplicate Manager Pro обнаруживает, управляет и удаляет:
-Дублированные фото, размноженное видео, размноженные звуковые дорожки, размноженные документы, размноженные другие файлы.
-Простота в использовании и скорость работы - это основные принципы в концепции приложения. Ваше время является самым ценным, что у вас есть! Мы заботимся о вашем времени. Не тратьте свое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+Роман написан в жанре альтернативной истории и рассказывает о судьбе России после гипотетического взрыва в результате терракта хранилища боевых отравляющих веществ в маленьком городке Кизнере в Удмуртии в конце 2011-го года.
+Ядовитое облако-убийца, уверенно расширяясь, относится ветром на Северо-Восток, постепенно накрывая Удмуртию, северную часть Татарии и Башкирию и нацеливаясь на Кировский регион, Пермский край и Средний Урал.2012Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87DA8BA970B597B7E575135B7DB0427EE4F7C6A1
+magnet:?xt=urn:btih:0F256EB188F1F7D9AA18D04A0E2A7D98676CD2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,25 +436,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491340   (238319) от 24.08.2021
+###  Публикация: 456890   (94172) от 23.02.2012
 
-TunesKit Screen Recorder 1.1.0 [En]
+VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238319.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Удобный аудио и видео рекордер , позволяющий одним нажатием кнопки захватывать любое видео и аудио с любого источника на экране компьютера, а также редактировать и сохранять записи в любом формате и на любом устройстве с сохранением высокого качества.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+01. Sex Addiction (Intro) (00:54)
+02. Making Good Love - Avant (02:54)
+03. No Bullsht - Chris Brown (02:55)
+04. So Anxious - Ginuwine (01:40)
+05. Jupiter Love - Trey Songz (03:06)
+06. T-Shirt And Panties - Adina Howard (02:34)
+07. Meeting In My Bedroom - Silk (03:00)
+08. (Untited) How Does It Feel - D'Angelo (03:08)
+09. Seems Like Your Ready - R. Kelly (02:28)
+10. Sex Room (feat. Trey Songz) - Ludacris (03:36)(   Читать дальше...   )Жанр: RnB, Rap, PopПродолжительность: 01:10:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BECFDBC0F6073143589DBDFD2012568C21EAA2FB
+magnet:?xt=urn:btih:60DAF4AABFF08413A6D0B34ADF706CEE0AD3D1F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,25 +471,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547856   (238318) от 30.04.2022
+###  Публикация: 456554   (94165) от 23.02.2012
 
-Corel VideoStudio Ultimate 2022 25.1.0.472 [Multi]
+Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]<Southern Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238318.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С НОВЫМ Corel VideoStudio Ultimate 2022 ваши фильмы каждый раз будут производить на зрителей неизгладимое впечатление! Эксклюзивные эффекты премиум-класса от признанных лидеров индустрии, настраиваемые 3D-титры, новые эффекты с лицом, анимированные AR-наклейки, GIF-файлы и переходы с имитацией движения камеры делают процесс создания захватывающих видеопроектов простым (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и т.д.
+1 Weedlust 06:03
+2 Overtaken 07:20
+3 Drowned 04:35
+4 Straight On 06:15
+5 Mind Trip 05:35
+6 The Lie 10:102011Жанр: Southern MetalПродолжительность: 00:40:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0DD078C0B3E7E38C7E8FC5753222811E6A9212B
+magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,26 +502,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637349   (238315) от 03.06.2023
+###  Публикация: 456876   (94164) от 23.02.2012
 
-TweakNow WinSecret Plus! 4.7.3 RePack (& Portable) by elchupacabra [En]
+Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238315.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
-Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+01. Space Meeting (05:51)
+02. Botanical Park (05:02)
+03. The Polar Lights (05:16)
+04. Micro Declines (04:26)2011Жанр: Dubstep, Drum & BassПродолжительность: 00:20:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C08CE85604D1B22EFD8417DAEC3BE18313791CD
+magnet:?xt=urn:btih:95E9515ED2FABDF588C1D6716540A97F22F90DB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,25 +531,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491344   (238294) от 24.08.2021
+###  Публикация: 455252   (94163) от 23.02.2012
 
-TunesKit AceMovi Video Editor 4.0.1 [Multi]
+November's Flame - На Обочине Больного Мира (ЕР) (2012) [MP3|320 kbps]<Alternative,Nu Metal>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238294.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+01. Другие Глаза  [03:21]
+02. Земля В Огне  [02:40]
+03. Краски Мая  [04:17]
+04. Обманутый Мир  [03:30]
+05. Сон  [04:28]
+06. Погоня За Мечтой  [03:17]
+07. Другие Глаза (instumental)  [03:21]2012Жанр: Alternative,Nu MetalПродолжительность: 00:24:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73BCA5BF7CCE2B9019F30CA5ABAF94B366B049E3
+magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -637,25 +563,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637370   (238291) от 03.06.2023
+###  Публикация: 455836   (94140) от 22.02.2012
 
-YT Downloader 7.27.5 RePack (& Portable) by Dodakaedr [Ru/En]
+VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238291.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Maldini, Vegas, Sylo - re-animator (06:01)
+02. The Upbeats - thinking cap (05:08)
+03. Bad Company UK - bullet time (spor remix) (05:49)
+04. Audio - control freak (07:20)
+05. Maldini, Sylo - oceanic (05:32)
+06. BLOKHE4D - last days of disco (04:52)
+07. Loki - splash damage (06:22)
+08. BLOKHE4D - great cites (05:22)
+09. Prolix - no pressure (06:04)
+10. BLOKHE4D - beyond the void (04:58)(   Читать дальше...   )2012Жанр: Drum & BassПродолжительность: 01:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC57D728A7CA026AC5B2573DBABB98F279EDC97E
+magnet:?xt=urn:btih:0F09AD1E47890CF648B511AECBE277536070E63D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,25 +598,244 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629284   (238274) от 26.04.2023
+###  Публикация: 456118   (94129) от 22.02.2012
 
-CyberLink AudioDirector Ultra 13.4.2817.0 (x64) [Multi]
+Paul van Dyk - Vonyc Sessions 286 (17.02.2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238274.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CyberLink AudioDirector Ultra – мощный инструментарий для обработки музыки. AudioDirector позволяет создавать собственные саундтреки с помощью многодорожечной записи, использовать средства микширования, автоматически удалять шумы и помехи и выполнять восстановление аудио. Благодаря возможности воспроизведения видео параллельно с редактированием звука пользователи (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (Русского нет)
+Paul van Dyk in the mix:
+ 01. Cosmic Gate & Arnej - Sometimes They Come Back for More (Alex O'Rion Bigger Room Mix)
+ 02. Paul van Dyk with Austin Leeds - Verano (Paul van Dyk's Evolution Mix)
+ 03. DNS Project - Exclusive (Bigroom Mix)
+ 04. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day
+ 05. Michael Woods - Full Access
+ 06. Envotion - Recoder (Extended Mix)
+
+Spotlight mix Moguai:
+ 07. Mord Fustang - We Are Now Connected(   Читать дальше...   )17.02.2012Жанр: TranceПродолжительность: 00:58:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E42FA9EEF76529B10F8A4A5F7BB04DB2FFC8F79D
+magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455878   (94120) от 22.02.2012
+
+VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sergio Mendes And The Black Eyes Peas - Mas Que Nada (4:27)
+02.Gabor Szabo - Breezin' (3:13)
+03.Andrй Previn, David Fnick Gershwin - Embraceable You (4:55)
+04.Wes Montgomery - Georgia On My Mind (2:48)
+05.Mark Murphy - My Foolish Heart (5:16)
+06.Ella Fitzgerald - My Funny Valentine (3:55)
+07.Tony Bennett - Isn't It Romantic (3:25)
+08.Johnny Hartman - Stairway To The Stars (3:08)
+09.Herbie Hancock - The Man I Love (5:59)
+10.Terry Callier - What Color Is Love (4:07)(   Читать дальше...   )2010Жанр: Lounge, Jazz, SoulПродолжительность: 02:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456059   (94114) от 22.02.2012
+
+Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calibre - Windows (Signature)
+02. Komatic - Make The Most Of Now (Technicolour remix) (Spearhead)
+03. Technicolour - The Harp Tune (Fokuz)
+04. Pennygiles - Au Revoir Blackbird (GLR)
+05. Bungle - The Siren (feat. Ayah) (Bladerunner remix) (Spearhead)
+06. dRamatic & dbAudio - 6 Degrees (Mars)
+07. Calibre - Hummer (Samurai Red Seal)
+08. Technicolour & Komatic - Those Feelings (Shogun LTD)
+09. Level 2 - No Time VIP (Liquid V)
+10. Atom - Dolly (Lynx remix) (Sonorous)(   Читать дальше...   )2012Жанр: Drum and BassФормат: Mp3, mixedПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456083   (94093) от 22.02.2012
+
+VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motta - Let Me Know [06:00]
+02. Celerity & DBR UK - Sonic Step [05:42]
+03. Undersound - Meet Me In My Shadow [06:52]
+04. Rene LaVice - Maintain [05:30]
+05. 2ndCityBlue - Bermudaz [06:55]
+06. Flatliners - Human Beings [06:25]
+07. SoliD - Blue Grooves [05:30]
+08. Grimm - Hunters March [06:20]
+09. Soultec Ft. Grimm - Last Call Of The Sun [06:12]
+10. Pouyah - Fooled [07:05](   Читать дальше...   )2012Жанр: Drum and BassФормат: WEBПродолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454669   (94087) от 22.02.2012
+
+VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
+ 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
+ 03. Atix - Divagation (Original Mix) (7:15)
+ 04. Audiowomb - Zoophyta (Original Mix) (7:56)
+ 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
+ 06. Danalog - Baked Beams (Original Mix) (8:13)
+ 07. On the Train (Derrick Carter Remix) (5:59)
+ 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
+ 09. Dima German - 2012 (D-Quattro Remix) (7:26)
+ 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454675   (94067) от 22.02.2012
+
+VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Lupe - Orchestra (Original Mix) (7:10)
+ 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
+ 03. Dani San - Clikity Clack (Original Mix) (6:44)
+ 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
+ 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
+ 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
+ 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
+ 08. Leeks - Amoeba (Original Mix) (7:17)
+09. Lowboys - Hall Of Panic (7:30)
+ 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455673   (94058) от 21.02.2012
+
+VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Globa - La Aurora Boreal
+02. John '00' Flemming - The Astrophysical Nebula
+03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
+04. Matisse & Sadko - Amulet
+05. Limbo - Paradox
+06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
+07. Talpa - The Moon (Flegma & Nerso Remix)
+08. Aggresivnes - Futurasia (Blazer Remix)
+09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
+10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 ```
 
 https://mybot314.ru/tekegram_catalog/

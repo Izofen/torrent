@@ -1,3 +1,119 @@
+###  Публикация: 1297879   (602640) от 25.04.2019
+
+Madonna - The Confessions Tour (2007) CD [FLAC|Lossless|tracks + .cue] <Dance-Pop, Euro House, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Future Lovers / I Feel Love (8:00)
+02.Like a Virgin (4:12)
+03.Jump (4:53)
+04.Confessions (3:53)(   Читать дальше...   )Жанр: Dance-Pop, Euro House, DiscoПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C209666C220F3F43FB80BF1D542815889FAA4B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298497   (601915) от 27.04.2019
+
+Rúzsa Magdolna (Ruzsa Magdolna) - Lélekcirkusz (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A bohóc (2:41)
+02. Lélekcirkusz (1:24)
+03. Széldal (3:39)
+04. Nekem nem szabad (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEFA911B93050D3F113DB0D2E8C9E2170A5AA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298930   (601586) от 29.04.2019
+
+P!nk (Pink) - Hurts 2B Human (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hustle (2:56)
+02. (Hey Why) Miss You Sometime (3:23)
+03. Walk Me Home (2:59)
+04. My Attic (3:02)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3259404185668B16B6942DAE48335BD5228BF0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548103   (600896) от 01.05.2022
+
+VA - Pure Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lauren Spencer-Smith - Fingers Crossed
+02. Becky Hill - Remember (Acoustic)
+03. Vanessa Carlton - A Thousand Miles (Acoustic)
+04. Us The Duo - Better Together(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC4A2DAB0937BEAFB75A5AC23F1641CE53AFB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298760   (600753) от 30.04.2019
 
 Marina - Love + Fear (2019) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -629,122 +745,6 @@ Lara Fabian - Mademoiselle Zhivago (2012) [FLAC|image + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF50C558C439ED14D5F0339D44CD4516A0D2644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918184   (587987) от 14.07.2015
-
-VA - Super Vara 2015 (2015) [FLAC|image + .cue]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587987.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-01.Amna feat. Glance - Evacuat (4:16)
-02.Anda Adam feat. CRBL - Seri de mai (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918307   (587869) от 14.07.2015
-
-Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cambodia [3:58]
-02. Kids In America [3:27]
-03. Love Blonde [3:33]
-04. Chequered Love [3:22](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B5433ECFC5158D24B17124013891B3F38111E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918005   (587759) от 14.07.2015
-
-VA - Radio 538: Hitzone 74 (2015) 2CD [FLAC|image +.cue]<Pop, Dance, Top40>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Mr. Probz - Another You
-02. Jess Glynne - Hold My Hand
-03. Avicii - Waiting For Love
-04. Magic! - No Way No(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040125   (587450) от 04.08.2016
-
-Newton Family - The Best Of Newton Family (1989) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile Again (English Version) (5:23)
-02. Jumpy Dance (3:49)
-03. Love Is Magic (4:08)
-04. Yo Yo (Hungarian Version) (4:03)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E723F6E584D8C55609616CBBC5C1C26A9CC36D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

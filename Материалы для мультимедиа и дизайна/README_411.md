@@ -1,3 +1,29 @@
+###  Публикация: 1812992   (7346) от 17.08.2025
+
+3D print - Cults3D - Sexy Videl - Dragon Ball [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видель из Dragon Ball для 3D печати.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E6DAE09F2DB59A7A432F941CABAB78F47E49E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811894   (7313) от 17.08.2025
 
 3D print - GeekSculpt3D (3D Collective) - Collection 3D Printable Miniatures 2020-2025 [STL, 3MF, MTL, OBJ]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF3DF5EA3403C87E35736A7D202CA63BC56223E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813631   (6750) от 20.08.2025
-
-Растровый клипарт - SAINT RICCHI - Chrome Knots - 3D PNG Shapes [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Chrome Knots — где элегантность встречается с изысканностью в 50 потрясающих фигурах PNG! Откройте для себя мир изысканных дизайнерских возможностей с Chrome Knots. Погрузитесь в коллекцию из 50 тщательно проработанных хромированных узлов в формате PNG, где искусство переплетения сочетается с блеском хрома. Выведите свои творческие начинания на новый (   Читать дальше...   )Формат: PNGРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454E055E3B906E5A744BD606A994FE7F35F4D027
 ```
 
 https://mybot314.ru/tekegram_catalog/

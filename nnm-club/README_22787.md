@@ -1,80 +1,27 @@
-###  Публикация: 595574   (132796) от 28.12.2012
+###  Публикация: 594907   (133198) от 27.12.2012
 
-VA - Hotel Lounge IV by Bar de Paris (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132796.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Avalounge - La Caina (Balearic Mix)
-02. Jaimee - Cherish the Day (Ultra Lounge Rmx)
-03. Sensual Seduction - Diamonds & Pearls (Re-Jazzed Mix)
-04. Nu Groove Theory - Here Comes the Sun (El Trombon Edit)
-05. Design Of Life - Victoria's Secret (feat. Kanya) (Ambrosia Mix)
-06. ZouaveLiv - Wonderful Life (Juan Padilla After Hour Remix)
-07. Dalai Lama Tribute) - Bhangralution - The Voice of Buddha (Eyes Of Truth, Pt2
-08. The Chillsetters - From Here to Eternity (Can Avenue Remix)
-09. Rhythms Del Mundo - Brazilian Dream (Carlos & Cubalos Dub)
-10. Beats & Pieces - Miracle (feat. Fab) (Signfield Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D95940268D695726E9A4FF462166C8B227021E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622730   (132795) от 02.12.2023
-
-Resident Evil 4 Remake Deluxe Edition (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.10 / DLC] [Ru/Multi]
-
->>След.
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil 4 - это ремейк оригинальной Resident Evil 4, выпущенной в 2005 году. Обновлённая к 2023 году, Resident Evil 4 сохраняет суть оригинала, используя фирменный RE Engine от Capcom, чтобы обеспечить модернизированный игровой процесс, переосмысленную сюжетную линию и яркую детализированную графику. Resident Evil 4 присоединяется к Леону С. Кеннеди через шесть (   Читать дальше...   )Тип издания: LicenseРазработчик: Consumer Games Development Division 1Жанр: Survival horror, TPSЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C8ECBEB8FC7B930A408EF59ED05F4CCA6CC820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680948   (132793) от 02.12.2023
-
-Нужен АнтиЗапрет в 2024? Голосуй!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор АнтиЗапрета проводит опрос по поводу нужности сервиса:ValdikSS:
-Ребята, как-то напряжно мне этим  уже одиннадцатый год заниматься. Из двух десятков друзей и знакомых едва ли кто-то может постоянно уделять время разработке и поддержанию работы сервиса, а почти все, для кого он создавался изначально, больше им не пользуются — 80+% моего окружения разъехались.С (   Читать дальше...   )
+01. Snowfall [05:35]
+02. Let It Snow, Let It Snow, Let It Snow [04:35]
+03. Santa Claus Is Coming To Town / Santa Man (Medley) [03:03]
+04. The Christmas Song (Chestnuts Roasting On An Open Fire) [04:40]
+05. Silent Night, Holy Night [05:56]
+06. Caroling, Caroling [01:24]
+07. Happy Holiday / The Holiday Season (Medley) [04:07]
+08. A Christmas Love Song [04:08]
+09. It Came Upon The Midnight Clear [05:55]
+10. Have Yourself A Merry Little Christmas [04:40](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:47:54
 
 ## Скачать торент
 ```bash
@@ -86,25 +33,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680661   (132792) от 02.12.2023
+###  Публикация: 510054   (133197) от 01.12.2023
 
-Госпожа (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+Библиотека Либрусек [lib.rus.ec] + MyHomeLib [FB2]
 
->>Отечественные сериалы
->>
+>>3
+>>50
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132792.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чтобы выплатить коллекторам долги матери, назанимавшей огромную сумму, сексуально и морально закрепощенная соцработница Маруся вынуждена стать доминатрикс в специфическом борделе. Это неожиданно помогает ей начать господствовать не только в постели, но и в жизни.Производство: Россия | «Star Media»Жанр: Драма, комедияРежиссер: Юлия ТрофимоваАктеры: Никита Ефремов, Евгения Громова, Дмитрий Лысенков, Павел Ворожцов, Ольга Тумайкина, Сабина Ахмедова, Мария Голубкина, Алексей Розин, Елена Николаева, Таисья КалининаСубтитры: РусскиеПродолжительность: ~00:23:00 серия
+Библиотека Либрусек - одна из самых больших сетевых библиотек художественной литературы на русском языке.
+Обновление раздачи - по мере выхода новых архивов (в среднем 1 раз в месяц).Жанр: Самые разнообразныеЯзык: В основном русскийФормат: FB2, OCR с ошибкамиКачество: Изначально электронное (e-book)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74893CFC615757C1FD1965FC027CC54240F0E3B0
+magnet:?xt=urn:btih:74C0588482AB82D7D727F12BD0961D6AB194D6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,25 +60,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595251   (132791) от 28.12.2012
+###  Публикация: 594732   (133196) от 27.12.2012
 
-Creative Wallpapers (26.12.12) [Wallpapers]
+Рождество возвращается в Канаан / Christmas Comes Home to Canaan (2011) HDTVRip [EN]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132791.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В этом повествовании Боббер, сын Даниэля, для восстановления после автокатастрофы. нуждается в сложной ортопедической операции и многомесячном курсе интенсивной физиотерапии. Родни Фриман, молодой афроамериканец, которого Даниэль взял в свой дом и воспитал как родного сына, предлагает Даниэлю провести операцию Бобберу в Сан-Франциско...Жанр: ДрамаРежиссер: Нилл ФернлиАктеры: Джина Холден, Лайам Джеймс, Билли Рэй Сайрус, Кэролайн Мэтьюз, Джейкоб Блэр, Мэтт Уорд, Марша Режис, Малкольм Стюарт, Джейшон Фишер, Саймон ЧинПеревод: ОтсутствуетПродолжительность: 01:24:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADA492C4EEDF8CC5889316F9E006569A89C4C1FC
+magnet:?xt=urn:btih:80F6895B647C2E32A2952833A38400286064AA94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,164 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680545   (132790) от 02.12.2023
+###  Публикация: 1681201   (133195) от 02.12.2023
 
-VMware vSphere ESXi 8.0U2 [amd64] 1xDVD
-
->>След.
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия гипервизора VMware vSphere ESXi для сервера.
-
-Новый апплаенс - vCenter Server Appliance Migration tool.
-Новый API (REST-based APIs for VM Management) для упрощения автоматизации и управления инфраструктурой.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028DAB0D08A1F4E0EC9C6FAF84E6B63FE4744E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681182   (132787) от 02.12.2023
-
-KMS Tools Portable by Ratiborus 01.12.2023 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132787.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D737F02FA0990166F9C59F3FB78F6E7264AFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675656   (132785) от 02.12.2023
-
-Убить Риту (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрупкая с виду учительница химии Рита остается без работы за связи с учеником. Но благодаря своим навыкам ей удается заработать лёгкие деньги уборкой коттеджа. Правда этот коттедж оказывается местом преступления, а сама Рита оказывается в эпицентре криминальных разборок местных бандитов. Однако Рита не так проста — все это время она жила под прикрытием по чужому (   Читать дальше...   )Производство: Россия / 1-2-3 ProductionЖанр: криминал, драма, комедияРежиссер: Мария АграновичАктеры: Евгения Борзых, Артём Быстров, Анна Слю, Алексей Агранович, Артём Ткаченко, Александр Мизёв, Алексей Филимонов, Олег Гаас, Игорь Грабузов, Артур Бесчастный, Эрик ЯраловПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40DEAB932266887C7E7E644FB23CA76D83C0619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673631   (132783) от 02.12.2023
-
-RoboCop: Rogue City (2023) [Ru/Multi] (1.4.0.0/00.014.037/dlc) Repack Other s [Alex Murphy Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте культовым полицейским, получеловеком-полумашиной, и попытайтесь восстановить справедливость на опасных, охваченных преступностью улицах Старого Детройта.Тип издания: RepackРазработчик: TeyonЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD229EFB0307934A4AB1DCB4D083E726ACA7D340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149789   (132782) от 02.12.2023
-
-Александр Март | Механики (2022) [FB2, DOC] [Обновляемая]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классические попаданцы в некие смежные с нашим миры. Сюжет интересен, качество на любителя.
-
-"Гром загремел так, что мне показалось, что рядом с нами что-то взорвалось.
-— Ничего себе — первый раз такой грохот слышу — сказал я пригнувшись. В ответ тишина. Обернувшись, я увидел что парень лежит на асфальте лицом вверх, широко раскинув руки.(   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: write2allФормат: FB2, DOCКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7040B466CC1A7A079E90AC49F400C50171E3C2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681492   (132781) от 03.12.2023
-
-Daimos - A World Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock>
+Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132781.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Divergence [00:02:42]
-02. The Watcher [00:05:16]
-03. Haunted by the Fear [00:03:46]
-04. Enter the Light [00:04:16](   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:43:17
+01. Bleed Afresh
+02. Sylphlike
+03. Avoid Secret Vanity
+04. Mindspawn(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:20:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D74E957A168F40DAF840EA9E36F9B2A7C0F2E778
+magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,251 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681503   (132780) от 03.12.2023
+###  Публикация: 1681183   (133194) от 02.12.2023
 
-Kafod - Ciclos (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Habitante (Remastered) [00:04:27]
-02. Unos y Todos [00:04:04]
-03. Déjennos Vivir [00:05:53]
-04. Racconto [00:04:16](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948BBAEE9769E1D145B5BAA1E2C050C84DFBDBF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594963   (132779) от 28.12.2012
-
-VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'Roll>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Glitter - Another Rock and Roll Christmas [0:03:45.66]
-02. Chicory Tip - Rockin' Fround The Christmas Tree [0:02:07.36]
-03. Showaddywaddy - Perfect Harmonie [0:04:35.20]
-04. Jona Lewie - Stop The Cavalary [0:02:57.01]
-05. Dik Cadbury - The Star That Fell To Earth [0:04:25.03]
-06. Noel Redding & Friends - No More Christmas [0:03:04.63]
-07. Edison Lighthouse - Feel Christmas [0:04:01.04]
-08. Fancy - Jingle Bells And Candy Canes [0:04:06.70]
-09. Santa Claus & His Rockin' Snowmen - Mary's Boy Child - Oh My Lord [0:05:17.73]
-10. Greg Lake - Believe In Father Christmas [0:03:31.49](   Читать дальше...   )Жанр: Pop, Swing, Rock'n'RollПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C368D8F92EA22A44D92660DCF32E74209244F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595252   (132778) от 28.12.2012
-
-F1 Wallpapers (26.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95EB126FC615484087FDE828437CE643D911F776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681487   (132777) от 03.12.2023
-
-Apoplexy - Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Symphonic gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny / Labyrinth Without End [00:06:58]
-02. In the Carpathian's Woods [00:04:53]
-03. Silent Autumn of Life [00:04:35]
-04. Pandora's Box [00:05:53](   Читать дальше...   )Жанр: Death Metal, Symphonic gothic MetalПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF98F9933D54F532FDDF944080585FD44F6CEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595248   (132776) от 28.12.2012
-
-Winter Wallpapers (26.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D98596C7C150370606726EFA42C4656D2D4983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595245   (132775) от 28.12.2012
-
-58 HQ Wallpapers (26.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBB5742015A4048479272DD9E557D82C5996E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595272   (132773) от 28.12.2012
-
-50 HQ Wallpapers (27.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C873B6B512A7A11268C5C175B3717D5DED3ECF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595361   (132772) от 28.12.2012
-
-Ли Ванс | Расплата [2008] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тонкий, умный, захватывающий детектив. Успешного бизнесмена обвиняют в убийстве собственной жены. Ему нужно найти убийцу до того, как полиция поймает его самого.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3432E3AA200C2C28D6316E75D02B191C025093FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681441   (132771) от 03.12.2023
-
-VA - The Birth Of Hard Bop (Donald Byrd, Horace Silver, Hank Mobley, Lee Morgan) (1956) 2CD, 2000, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132771.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Donald Byrd & Hank Mobley - B. for B.B. (previously unissued) [6:31]
-02. Donald Byrd & Hank Mobley - B. for B.B. [6:29]
-03. Hank Mobley & Lee Morgan - Hank's Shout [7:02]
-04. Hank Mobley & Lee Morgan - Bet [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:54
+01. Sarum [6:43]
+02. Gateway [7:17]
+03. Soulscape [3:03]
+04. Magical Space [4:43](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:06:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44213EC3FDDB3C6488E778DE290969B6FF294A36
+magnet:?xt=urn:btih:82EC856655BC387580D6AF929B28A4995ECD50D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,27 +144,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595437   (132770) от 28.12.2012
+###  Публикация: 594904   (133193) от 27.12.2012
 
-Николай Прокудин | Пиратские войны [2006] [RTF, FB2]
+Журнал | 100 битв, которые изменили мир №100 [2012] [PDF]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132770.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В результате природного катаклизма полковник российской армии Сергей Строганов очутился в 1789 году. Там он стал одним из организаторов мятежа на шхуне «Баунти», потом вел борьбу со свирепыми каннибалами, попытался создать цивилизацию на тихоокеанском Острове Амазонок, спасал от расправы оставшихся в живых участников экспедиции Лаперуза.
-
-И вот теперь его ждут остров с сокровищами пиратов и живущий на этом клочке земли «робинзон». А также плаванье на корвете, морские сражения, нежданная любовь и многое, многое другое…Формат: RTF, FB2
+Серия «100 битв, которые изменили мир» предлагает вам описание самых значительных сражений в мировой истории. В каждом выпуске журнала вы найдете рассказ об одной из самых известных битв, включая ярчайшее описание самого сражения, а также мнения экспертов о противоборствующих сторонах. В каждом номере - воспроизведение сражения; очерки о полководцах; детальное описание хода битвы.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:913B79DB30F3148F7743889E6B9BF040CC8F89BD
+magnet:?xt=urn:btih:018ABD8065363FA9A902E84E1CA926A5BAAB978E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,121 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681608   (132769) от 03.12.2023
+###  Публикация: 592831   (133192) от 27.12.2012
 
-Pathetic Madness - Destroying The Harmony (2005) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:33
-02. Destroying the Harmony 04:48
-03. Bombhead 04:30
-04. Social... Denied 04:02(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AA561E24E9E05A1FD4785DE7EDEAAFD77CBAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681482   (132767) от 03.12.2023
-
-Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gates of Destiny [00:01:22]
-02. Warchild [00:06:20]
-03. Castillo De Trueno [00:05:09]
-04. When the Swords Cries [00:08:27](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FEA55EBC8E3FFCFACAD052243927AC46F64EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681512   (132763) от 03.12.2023
-
-PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faded [00:03:19]
-02. Your Prize [00:04:20]
-03. Diverge [00:04:38]
-04. Fire When Ready [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A453C41BF249DFB0FED213260D509C0C9CFCAE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593991   (132762) от 28.12.2012
-
-Diplo & Friends - Dada Life Guest Mix (23.12.2012) [MP3|320 кб/с]<House / Electro House>
+Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320 кб/с]<Dark Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132762.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dada Life - Happy Violence (Vocal Mix)
-02.TJR - Ode To Oi 
-03 .Qulinez - Bamf 
-04.Dada Life - Rolling Stones T-Shirt 
-05.Sebjak - Follow Me (Gregori Klosman Remix)
-06.Mick Kastenholt & Andrew Dee - One Two Fuck You 
-07.Jochen Miller - Cheer Up
-08.R3hab & ZROQ - Skydrop
-09.Dada Life - Feed The Dada
-10.Basto! - Stormchaser(   Читать дальше...   )Жанр: House / Electro HouseПродолжительность: 00:59:08
+1. Morbid Silence - Малоохтинское Кладбище I
+2. Дом Вдовы - Малоохтинское Кладбище II
+3. Morbid Silence - Малоохтинское Кладбище III
+4. Дом Вдовы - Малоохтинское Кладбище IVMorbid Silence - единоличный dark-ambient проект Harakiri. Его музыку можно охарактеризовать как магически-мрачную с почти медитативными, трансовыми переходами между живыми или искаженными звуками природы и созданными искусственно с применением различных техник. По словам автора, каждая композиция непременно пронизана определенной, иногда почти невыражаемой словами, идеей. Тем самым любой трек непременно экстраполируется к теме альбома, обобщающей их общую составляющую. Что зачастую делает альбомы целостными и неделимыми произведениями автора. Все это переливчатое многообразие звуков, порождающее целостные образы, находит проявление через созерцание автором мира через призму собственного мировосприятия и древних идей: хаоса, Ницшеанского безумия и страхаЖанр: Dark AmbientПродолжительность: 06:11:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1237169CD6FC6FB190446ACCC45163CE4AEE6258
+magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,28 +199,543 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681475   (132761) от 03.12.2023
+###  Публикация: 594918   (133191) от 27.12.2012
 
-Way2far - Red Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocals>
+Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132761.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mirage- Lost in the Desert [00:04:54]
-02. Red Star [00:04:52]
-03. Devil's Flame [00:05:23]
-04. You Can't Hurt Me [00:04:31](   Читать дальше...   )Жанр: Melodic Metal, Female VocalsПродолжительность: 00:41:34
+01. O Holy Night [01:48]
+02. It Came Upon A Midnight Clear [03:20]
+03. Hark! The Herald Angel Sings [01:49]
+04. Away In A Manger [02:13]
+05. Joy To The World [01:40]
+06. The First Noel [01:50]
+07. Silent Night [02:51]
+08. O Come All Ye Faithful [02:45]
+09. Sleep, My Little Jesus [02:17]
+10. Angels We Have Heard On High [01:46](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:28:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10ECB7AA15A1C1DF2CE7A70554BA1B3B3B029DB1
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681044   (133189) от 02.12.2023
+
+Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Intro - At the Fathomless Depths
+2.	Retribution - Storm of the Light's Bane
+3.	Unhallowed
+4.	Where Dead Angels Lie(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9E6200E9D71F40B9F86AA578B1789EEDDE797C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595182   (133188) от 27.12.2012
+
+VA - Alex Ultrawox - YearMix 2012 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralphie B - The Holy Grail (Original Mix)
+02. Tenishia - Where Do We Begin (Andrew Rayel Remix)
+03. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Alexander Popov Remix)
+04. Emma Hewitt -  Colours (Cosmic Gate Remix)
+05. Faruk Sabanci - Elveda (Original Mix)
+06. Andrew Rayel - How Do I Know
+07. Alexander Popov - Attractive Force (Original Mix)
+08. Armin van Buuren and Orjan Nilsen - Belter (Edit)
+09. Alexandre Bergheau - Colors Of Persia (Original Mix)
+10. Fady & Mina - Kepler 22 (Andrew Rayel Aether Remix Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7709374D97ADBDD2756F54674F5810F03415B4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594841   (133186) от 27.12.2012
+
+DropDMG 3.2 [Eng]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое в работе приложение, выполняющее следующие основные функции:
+- создание образа диска DMG, конвертирование его в другие форматы, слияние файлов и многое другое путем перетаскивания файлов или каталогов мышью (drag and drop) в окно программы
+- сохранение конфигурации для выполнения аналогичных действий в будущем или создание одноразовой настраиваемой конфигурации
+- прожиг файлов и каталогов на CD, DVD, или Blu-ray.
+- прожиг инсталляционных DVD OS X
+- приложение оптимизировано для многоядерных процессоров и может работать в фоновом режиме, не мешая выполнению других задач
+- сохраняет детальный лог всех успешных операций и ошибок
+- монтирует образы дисков как каталоги в указанное место
+- позволяет добавлять в образ локализованную версию лицензионного соглашения, ваши иконки и фоновый рисунок
+- поддерживает множество форматов, в том числе .dmg, .sparsebundle, .zip, .tar.gz(   Читать дальше...   )Название программы: DropDMGРелиз состоялся: 7 ноября 2012 г.Тип издания: Mac OS X SoftwareЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681188   (133185) от 02.12.2023
+
+Пятеро на одного (02.12.2023) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0193BC6476F3871B7AEB0B1517A86DE42E8582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681241   (133183) от 02.12.2023
+
+Благовест | Преподобные Антоний и Феодосий Печерские (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133183.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, посвященной отцам русского монашества, преподобным Антонию и Феодосию Печерским, представлены их жития, а также некоторые поучения преподобного Феодосия. Молитвенный раздел включает в себя акафист и молитвы преподобным. Сборник также содержит подробный рассказ о Киево-Печерской Лавре, основанной преподобными, ее храмах и пещерах. В приложениях представлен (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA65360F9145BCB09C3B790D857A4E432E6047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681184   (133181) от 02.12.2023
+
+VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo Parker - Solitude (2:54)
+02. Stan Getz - Don't Worry 'Bout Me (2:37)
+03. Fats Navarro - Maternity (Lard Pot) (3:02)
+04. Allen Eager - Donald Jay (2:33)(   Читать дальше...   )Жанр: BopПродолжительность: 01:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1723C2E3C424B4A1B5C159E9F9FFA25B7E72E727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595000   (133180) от 27.12.2012
+
+Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chemical Age (6:35)
+02. Watching the Radio (8:43)
+03. Broken Toys (5:59)
+04. Prelude to Farewell (1:37)
+05. Relic of the Modern World (19:12)Жанр: Crossover ProgПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595084   (133178) от 27.12.2012
+
+RonyaSoft Poster Designer 2.01.42.02 [Multi/Русский]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133178.jpg" />
+</div>
+
+
+###  Подробнее
+
+RonyaSoft Poster Designer - легкая в использовании программа для дизайна и печати привлекательных индивидуальных постеров и баннеров. Коллекция готовых шаблонов плакатов и интуитивный пользовательский интерфейс позволяют создавать собственные постеры и баннеры практически за несколько кликов. Любая деталь в шаблоне постера может быть изменена соответственно вашим требованиям, например: рисунок, текст, цвет, размер, стиль и т.п. Мастер печати поможет распечатать плакаты на домашнем или офисном принтере. Также вы сможете экспортировать плакаты в изображения для печати в службах печати или для использования в блогах, на форумах или социальных сайтах. Возможность печати многостраничных постеров и баннеров также предусмотрена.Название программы: Poster DesignerЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681360   (133177) от 02.12.2023
+
+Наша банда. Детские наряды / Our Gang. Baby Clothes (1926) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистер и миссис Уидл обманом заставили своего богатого дядю платить за содержание двух несуществующих детей. Когда дядя объявляет о неожиданном визите, Уидлы должны как-то выкручиваться из этой ситуации...Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Джонни Даунс, Мэри Корнман, Эд Бранденбург, Гарри Эрлс, Уильям Гиллеспи, Хелен ГилморПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0901A42B7399EE30A92D9053F0761C46FA6B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594906   (133172) от 27.12.2012
+
+Журнал | Вышиваю крестиком №1(102) [2013-рождество] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите внести новые краски в картину своей жизни, ищете душевного покоя и мечтаете о творчестве - читайте самый популярный в Европе журнал о вышивке крестиком - инновационное в России издание о рукоделии - журнал Вышиваю Крестиком!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A28FF671BAB57E16B529381664F4897D3EF23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681245   (133171) от 02.12.2023
+
+Святитель Симеон Солунский | Премудрость нашего спасения (2013) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга святителя Симеона Солунского объясняет символику и смысл совершаемых в храме таинств и других священнодействий. В ней также подробно рассматриваются различные стороны (аспекты) храмовой жизни, правила поведения верующих в Церкви и совершения богослужений, даются ответы на многие насущные вопросы, касающиеся священнослужения, на основе Священного Предания. Книга (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7477EAAED98AAB56C2DB4BC4DFC5F661A4AB0E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594890   (133170) от 27.12.2012
+
+Журнал | Школа гастронома. Коллекция рецептов №1 [январь 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133170.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Коллекция рецептов» - специальный проект журнала "Школа гастронома". Каждый выпуск посвящен определенной теме. В каждом номере журнала - кулинарные рецепты с подробнейшим поэтапным описанием приготовления блюда. Каждый шаг на пути к кулинарному шедевру иллюстрирован цветными фотографиями. Все рецепты подобраны так, чтобы входящие в них продукты могла позволить себе любая семья. Каждый выпуск посвящен определенной теме.
+Тема номера: Кулинарные хиты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8ACCE950488A1C74DC6EBC10089A0DBF7C4541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681248   (133169) от 02.12.2023
+
+Благовест | Главное – быть с Богом. По трудам архимандрита Иоанна (Крестьянкина) (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архимандрит Иоанн (Крестьянкин; 1910–2006) – священнослужитель Русской Православной Церкви, архимандрит. Около сорока лет был насельником Псково-Печерского монастыря. Один из наиболее почитаемых старцев Русской Православной Церкви. Труды архимандрита Иоанна, из которых взяты высказывания для данной книги, содействуют духовному возрождению общества и рассматриваются (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E064F156C72EB8916C57D85A24F2BFE10B2A5288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681353   (133166) от 02.12.2023
+
+Николай Ахшарумов, Екатерина II | Золотая коллекция сказок. Царевич Хлор (2008) [MP3, Александр Гусев, Галина Лебедева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Золотая коллекция сказок.
+Предлагаем вашему вниманию аудиокнигу со сказками:
+1.Жанр: Русская литература для детей, сказкаИздательство: Детское музыкальное издательство «ТВИК»Продолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D3893EEE4F18A5273424164D3E467FA3A04FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681127   (133165) от 02.12.2023
+
+S-VOX feat. Давид Тодуа, Вадим Самойлов - Моя звезда (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сердце [00:04:33]
+02. Нейлон [00:03:50]
+03. Моя звезда [00:04:39]Жанр: RockПродолжительность: 00:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FDEC732ABC75DB6A64698D9421F23A7382BEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681338   (133163) от 02.12.2023
+
+Льюис Кэрролл | Алиса для малышей (2011) [MP3, Алла Човжик, Владимир Левашёв]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: ДЕТЯМ от  до 5 лет.
+Спустя четверть века после первого издания «Приключений Алисы в Стране чудес» ее автор Льюис Кэрролл пересказал историю про Алису для малышей, которые еще не умеют читать сами.
+«У меня есть все основания полагать, что «Приключения Алисы в Стране чудес» причитали сотни английских детей в возрасте от пяти до пятнадцати лет, а также дети (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6208DCB296F476B6449FA2F3A9F524F061DBC9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681246   (133160) от 02.12.2023
+
+Brian Durbin - Only Jams (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake This City [00:04:00]
+02. Give Me Your Love Tonight [00:04:45]
+03. Something New [00:04:10]
+04. Make A Scene [00:04:38](   Читать дальше...   )Жанр: Glam, Hard-RockПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F36A46E9DD52AD85FB2AD75EAF7CCD4F12E3614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595115   (133159) от 27.12.2012
+
+Джонатан Сантлоуфер | Сборник книг [2005-2009] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_133159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонатан Сантлоуфер (1946) - известный американский художник и писатель.
+Первый же его роман "Живописец смерти" (The Death Artist, 2002) возглавил списки бестселлеров журнала "People".
+Теперь Сантлоуфера называют одним из самых одаренных авторов, работающих в жанре триллера.
+Все книги Сантлоуфера связаны с живописью.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD42F5A338A7180E795E81A202297ABDDA19BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

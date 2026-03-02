@@ -1,3 +1,29 @@
+###  Публикация: 1351751   (1001210) от 13.01.2020
+
+Шрифты - 250 русских шрифтов [TTF, OTF, FON]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция из двухсот сорока восьми (248) красивых рукописных и декоративных шрифтов.Формат: TTF, OTF, FON
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B40D2314507CC8765AB8BAED137D283F84484F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489055   (1001151) от 14.08.2021
 
 Фоны - Сборник фонов #3 [JPG, PNG]
@@ -660,41 +686,6 @@ PSD многослойный каждная белочка на отдельно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD53B885DA5A30C9D5A03109A27AD1A85AC8E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602651   (997326) от 13.01.2013
-
-Шаблоны визиток для Photoshop - Rounded Clean Business Card – GraphicRiver / Бизнес Визитки
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визитные карточки для бизнеса.
-2 PSD файла + тхт файл
-300 DPI высокое разрешение
-Высококачественные фоны
-Легкое использование
-Готовность к печати
-==============================================================
-For those who make a difference in highlighting the seriousness and professionalism of the business card, you feel that you are different from your customers.
- Detail
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BAAD2064274235421A8704895BC8C9F62E893E
 ```
 
 https://mybot314.ru/tekegram_catalog/

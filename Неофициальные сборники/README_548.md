@@ -1,3 +1,230 @@
+###  Публикация: 495157   (251184) от 11.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495159   (251183) от 11.05.2012
+
+VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F512B5264CE791976C015CBA064C16DDA55EA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494834   (251170) от 11.05.2012
+
+VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Потап и Настя - Прилелето
+002 Don Omar - Zumba
+003 Авраам Руссо - Нелюбимая
+004 Javi Reina & Alex Guerrero & Syntheticsax - Oig 2011 (DJ V1t & Fast Food remix)
+005 G-Nise & Алексей Кабанов feat. DJ Half - Наше Лето
+006 Chris Parker - Space
+007 Ксения Малинка - 5 Минут
+008 Inna - Alright
+009 NikitA - Авокадо
+010 Fidel Wicked - Enjoy your life (Radio mix)2012Жанр: PopПродолжительность: 05:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494937   (251150) от 11.05.2012
+
+VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ M.E.G feat. Карина Кокс - Там Где Ты (UnorthodoxX Classic Vox Remix)
+02. Asino Di Medico vs Terry Stone - In My Mind (Club Mix)
+03. Инфинити - Где ты (Alex Menco 2012 remix)
+04. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
+05. DJ Miller feat. Батишта - Почти Ничего
+06. Christopher S feat. Max Urban - Star (Organ Mix)
+07. Каста - Сочиняй Мечты (DJ Kopernik Remix)
+08. DJ Antoine vs. Empire Of The Sun - Walking On A Dream (DJ Pitchugin Booty Mix)
+09. Руки Вверх - Крошка моя (Wellski Radio Remix)
+10. Brilliant - Action Mode (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 04:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494795   (251145) от 11.05.2012
+
+VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251145.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
+2. Любовь Фоменко - Знаешь Сам (Dance Version) (3:17)
+3. Катя Чехова - Птица (3:47)
+4. Светлана Разина - Радио НАХ (3:33)
+5. Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased) (7:13)
+6. Валерий Меладзе - Потерян И Не Найден (4:02)
+7. Тамерлан И Алена Омаргалиева - Не Смотри Назад (3:23)
+8. Арина Перчик - Шторм (3:33)
+9. DJ Сателлит & Marlena ft. PolCox - Почему (Tonada Radio Mix) (3:14)
+10. Женя Тополь - Осколки (3:20)2012Жанр: PopПродолжительность: 06:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677E2B36336FB44F7DBF2CF84BE6346D5AC29B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494754   (251135) от 11.05.2012
+
+VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Haenni - Don't Think About Me [03:45]
+ 02. Alex Clare - Too Close [04:16]
+ 03. Die Toten Hosen - Tag Wie Diesen [04:28]
+ 04. Daniele Negroni - Don't Think About Me [03:43]
+ 05. Taio Cruz - There She Goes [03:30]
+ 06. Train - Drive by [03:16]
+ 07. Of Monsters and Men - Little Talks [04:26]
+ 08. DJ Antoine Feat. The Beat Shakers - Ma Cherie [03:48]
+ 09. Cro - Easy [02:52]
+ 10. Caligola - Forgive Forget [02:51](   Читать дальше...   )10.05.2012Жанр: Pop, DanceПродолжительность: 06:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494794   (251117) от 11.05.2012
+
+VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251117.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. KET - U feat. DJ Space One Project - Равнодушна (Remix Radio Edit) (3:24)
+2. Катя Чехова - Я Тебя Люблю (3:22)
+3. T - Killah Feat. Настя Кочеткова - Над Землей (Anna Muza Radio Mix) (3:44)
+4. Настя Ясная - Река (3:05)
+5. Татьяна Котова - Вампирица (3:12)
+6. Винтаж - Деревья (Ural Djs Dance Remix) (5:02)
+7. Andry Makarov & Ирина Кулькова - Между Двух Огней (4:02)
+8. Анна Седокова - Космос (3:14)
+9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
+10. Modern Tracking - Верь В Мечту (Believe In Dream) (Gold Version) (4:01)2012Жанр: PopПродолжительность: 06:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495164   (251070) от 11.05.2012
 
 VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
@@ -581,209 +808,6 @@ VA - Music News For Forum vol.144 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00D03757B2B016F74C90E90643523D951D30C9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536797   (250309) от 13.03.2022
-
-VA - Шансон 2 (2022) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Константин Деев - Зима (2:44)
-02. Авет Маркарян - Валентинки (3:47)
-03. Виталий Синицын - Такую, как ты (3:30)
-04. Дэн Ясюк - Сапфировая любовь (3:32)(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BC121688D6AA3F9C47493E43CE9FB55CDD01F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562938   (250246) от 11.07.2022
-
-VA - Наш Тик Ток 3 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250246.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luxor - 10 выходных (2:24)
-002. Batrai - Зачем ты в сердце (2:39)
-003. WEGAS, LIANTO, ARCHI - И пусть (2:26)
-004. DIP Project - So Goodbye (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 18:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D2894BB2E4892BD79A86CB21DBFC28B9585408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562552   (250196) от 12.07.2022
-
-VA - Retro remix Апрель (2022) [MP3|320 Kbps] <Club House, Russian Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250196.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Brothers On The 4th Floor - Dreams (Hypelezz Mashup) 02:17
-002. 5sta Family - Вместе Мы (Lesnichiy & Delaud Extended Remix) 03:59
-003. 20 Fingers feat Gillette - Short Dick Man (Barthez Remix) 03:52
-004. 50 Cent - Disco Inferno (Mamoru & Lesha Dias Remix) 04:25(   Читать дальше...   )Жанр: Club House, Russian PopПродолжительность: 01:04:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECD2658856EA3F58683E4B818BDDAFF2D65AC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563333   (250138) от 13.07.2022
-
-Marie Laforêt - Compilation (2022) [MP3|320 Kbps] <Pop, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viens, Viens
-02. Pourquoi
-03. Tu Fais Semblant
-04. Lettre De France(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 03:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479D91A61F97CA559FD684F2D1635B29DA3E3F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563300   (250128) от 13.07.2022
-
-VA - Music News vol.202 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250128.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doda - Melodia Ta (02:30)
- 002. 7even - Nopti Albe (03:06)
- 003. Улицы - Ночное Такси (Andrey Bo Remix) (02:29)
- 004. Alexa - Wonderland (Nevada Remix) (03:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0649D2271C3A452B5E006FCEDF93D1796A7A424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618207   (250096) от 10.03.2023
-
-VA - Music News vol.250 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lolita Jolie feat. Rob & Chris & Rocco - Ella Elle L’a (02:24)
- 002. 2xA feat. VORTEX - So Good (02:33)
- 003. 6LACK - Talkback (03:04)
- 004. a.Ja - Помни (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71A458FC5E86F6CBA30D19210B73158CA69BFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563448   (250034) от 14.07.2022
-
-VA - Motivation Mix 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noro - Deep End (10:15)
-02. Twin - Leave the Lights On (5:27)
-03. Ed Marquis - Pon De Replay (4:17)
-04. Mika - Yo Yo (Retriv Remix) (3:58)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EBCD2444BFB5BF76549D6716648D03303E6ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

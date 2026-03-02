@@ -1,3 +1,119 @@
+###  Публикация: 1777463   (28469) от 06.02.2025
+
+VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - 24K Magic (3:45)
+02. Pet Shop Boys - Go West (2003 Remaster) (5:04)
+03. Ed Sheeran - Shape of You (3:53)
+04. Madonna - Hung Up (5:36)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390435BADA7DFDF8DDF443FB35F851D21D3FB6D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777464   (28463) от 06.02.2025
+
+VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Williams - Feel    [0:04:23.37]
+02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word    [0:03:40.70]
+03. Everything but the Girl - Mirrorball    [0:03:25.00]
+04. Atomic Kitten - No One Loves You    [0:04:00.52](   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40390B659AA5BC0A94D953B27D8B7A2B6685CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777972   (28376) от 07.02.2025
+
+Falco - Ultimate Hits - A New Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Kommissar
+02. Junge Roemer
+03. Rock Me Amadeus
+04. Vienna Calling(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5197BE22BB8CA0C9C3354D617482C947B994E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778000   (28358) от 07.02.2025
+
+VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian Pop, Vocal, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shel Shapiro - Moon River (02:58)
+ 02. Bobby Solo - Bla bla bla (04:19)
+ 03. Manuela Villa - L' amore e un frutto raro (03:31)
+ 04. Donatella Milani - Non gridare (02:54)(   Читать дальше...   )Жанр: Italian Pop, Vocal, Pop RockПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511D4127A0C9ABCB57614ACCB4F546741D157BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780715   (27119) от 19.02.2025
 
 VA - Best 80s Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Craig David - Commitment (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398D7B5E40B3F2B685C8D34FBBD58B61D60E7713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800710   (15595) от 05.06.2025
-
-V.A. - 80's Best Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphaville – Forever Young
-02. Tina Turner – What’s Love Got to Do with It
-03. Alien – Only One Woman (US Mix)
-04. George Benson – Nothing’s Gonna Change My Love for You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E33C1B92188AC27A0E508868B66986ACC45DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800669   (15550) от 05.06.2025
-
-Queen Latifah - Trav'lin' Light (2007) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Dance, Soul, R&B, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetry Man    [0:04:40.26]
-02. Queen Latifah feat. Stevie Wonder / Georgia Rose    [0:03:43.52]
-03. Quiet Nights of Quiet Stars    [0:03:54.16]
-04. Don’t Cry Baby    [0:02:53.40](   Читать дальше...   )Жанр: Dance, Soul, R&B, FunkПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0395799C592EBDE8293469EC17A05BD74910DABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800752   (15547) от 05.06.2025
-
-VA - Sunny Day 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz Feat. Francesco Yates - Sugar (Feat. Fransesco Yates) (03:39)
-02. Madonna - La Isla Bonita (04:02)
-03. David Guetta Feat. Anne-Marie & Coi Leray - Baby Don’t Hurt Me (Feat. Anne-Marie & Coi Leray) (02:20)
-04. Daniel Seavey - Sleeping With The Lights On (03:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B50A5AE27D465A9F68D9D698F0E9DA9896EF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800970   (15397) от 07.06.2025
-
-VA - 100 Greatest Pop Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Levitating (feat. DaBaby) (3:23)
-002. Disturbed - The Sound of Silence (CYRIL Remix) (3:05)
-003. Tina Turner - What's Love Got to Do with It (3:50)
-004. James Blunt - You’re Beautiful (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF92A4FE3F742D88446AF6A9099C6377BFB8AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

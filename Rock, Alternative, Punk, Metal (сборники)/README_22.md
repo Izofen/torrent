@@ -1,3 +1,32 @@
+###  Публикация: 1033210   (639767) от 10.07.2016
+
+Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. A Winter Shade Of Pale
+03. Make My Day
+04. Let It Down Easy(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109E70BDDEE658E0A4F3112C7E19C83A33308D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228237   (638893) от 30.05.2018
 
 VA - Super Хиты Зарубежного Рока (2018) [MP3|256-320 Kbps] <Rock>
@@ -716,35 +745,6 @@ VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0B7089853C7AEDA06D6C9B9FCA20A4F5445980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230547   (613947) от 13.06.2018
-
-VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613947.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marilyn Manson - The Beautiful People
-002. Monster Magnet - Space Lord
-003. Bai Bang - Crazy Night
-004. Atomic Rooster - I Can't Take No More(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative, MetalПродолжительность: 10:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13832FB16407C67DE1C080A651AB9FDD7D54201D
 ```
 
 https://mybot314.ru/tekegram_catalog/

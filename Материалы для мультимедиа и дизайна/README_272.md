@@ -1,3 +1,29 @@
+###  Публикация: 1184580   (299144) от 18.11.2017
+
+Растровый клипарт - Soon New Year #12 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Скоро Новый Год на прозрачном фонеФормат: PNGРазрешение файлов: 104x477-1432x1370
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE098509DA1A41106AB0A9F8D0B902BEB8242792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184581   (299023) от 18.11.2017
 
 Векторный клипарт - Backgrounds with Snowflakes [AI]
@@ -648,34 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91ED90FC2D185BC551E55A3540A5534E9F02DA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184985   (297027) от 19.11.2017
-
-Векторный клипарт - Happy New Year and Merry Christmas [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С Новым годом и Рождеством
-18 files EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FBC39BAC3492E21699E1ECA2A6C4F723037E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

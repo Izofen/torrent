@@ -1,25 +1,25 @@
-###  Публикация: 1336782   (277528) от 08.11.2019
+###  Публикация: 252371   (184769) от 26.11.2020
 
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instrumental, Smooth Jazz, Saxophone>
 
 >>Other Styles
->>OST
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277528.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_184769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
+01. Acker Bilk - A Rainy Night in Georgia - Acker Bilk - A Rainy Night in Georgia (4:21)
+02. Samantha Blue - Orfeo Negro - Samantha Blue - Orfeo Negro (4:25)
+03. Lalo Shiffrin - Dim - Lalo Shiffrin - Dim (2:50)
+04. Grover Washington Jr - In the name of love - Grover Washington Jr - In the name of love (5:27)(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, SaxophoneПродолжительность: 01:07:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
+magnet:?xt=urn:btih:0979A8896E5A669C7496AB4043B68A27D897CFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336783   (277526) от 08.11.2019
+###  Публикация: 1662299   (184735) от 27.09.2023
 
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Electronic, Stage&Screen>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277526.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
+01. I. The Beginning [1:08]
+02. The Dread Templar [4:40]
+03. Flesh Against Steel [5:33]
+04. Bloodstained Hollows [5:39](   Читать дальше...   )Жанр: Electronic, Stage&ScreenПродолжительность: 02:07:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
+magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,86 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 170341   (277404) от 25.11.2018
+###  Публикация: 1592237   (184275) от 21.11.2022
 
-Зодиак - 7 альбомов (1980-2008) [MP3|320 kbps]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зодиак - 05:24
-02. Рок на льду - 02:50
-03. Пасифик - 04:02
-04. Мираж - 04:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B654C0122E9F57DEF12EE4515762B7F07B0FECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081748   (277375) от 13.12.2016
-
-Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Void
-02. Engine Malfunction
-03. The Red Queen
-04. Sea of Tears(   Читать дальше...   )Жанр: OST, ScoreПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187622   (277295) от 30.11.2017
-
-Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
 
 >>Other Styles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277295.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Winter Story (04:08)
- 02. Season Romance (04:53)
- 03. Life Journey (03:48)
- 04. Cherish (04:19)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:40:56
+01. Matt Sour – Calm Before the Storm
+02. Sami Sivananda – Tao Tunes (Original Mix)
+03. La Estación Del Mar – Bajo Un Sombrero De Paja
+04. Filalete – Sakura(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:19:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
+magnet:?xt=urn:btih:DF8C570DFA2E0B66904996BE82F74A0B9A2DA407
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336803   (277184) от 08.11.2019
+###  Публикация: 1664944   (182996) от 29.09.2023
 
-Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+Richard Clayderman - When a Man Loves a Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Lounge>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You (4:09)
+02. When A Man Loves A Woman (2:56)
+03. Goodnight Girl (3:31)
+04. Streets of Philadelphia (3:29)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, LoungeПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D092CD1ABE8B939A554D4FB14AE4240351BF78D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427804   (181460) от 30.11.2020
+
+North Americans - Roped In (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 
 >>Other Styles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277184.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Исполняют музыку, звучавшую в 1920–40 годах на улицах, в кафе и в популярных танцевальных залах Парижа. Репертуар квартета состоит из вальс аккордеон, танго, пасодоблей, фокстротов, маршей и песен из классического французкого шансона. Они записали пять компакт-дисков: A La Noce (2010), Toujours (2004), Chez Moi (2001), Rendez-Vous (1998) и L'air de Paris (1995). (   Читать дальше...   )Список альбомов:
-1995 - L'air de Paris
-1998 - Rendez Vous
-2001 - Chez Moi(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:55:00
+01. Memory of Lunch
+02. Rivers That You Cannot See
+03. Furniture In The Valley
+04. American Dipper(   Читать дальше...   )Жанр: FolkПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
+magnet:?xt=urn:btih:27E2F253288A8E5BE31BE03AACBC368BB8A4B3C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,25 +143,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265222   (276417) от 26.11.2018
+###  Публикация: 1592648   (181024) от 26.11.2022
 
-Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, Pagan folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Arrows [00:03:17]
+02. Óðinn feat. Fuimadane [00:04:12]
+03. Sjaund [00:06:13]
+04. Medieval [00:03:49](   Читать дальше...   )Жанр: Ambient folk, Pagan folkПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808001   (180650) от 26.11.2022
+
+Daft Punk - Трон: Наследие / TRON: Legacy (Original Motion Picture Score) (Recording Sessions) (2010) [FLAC|Lossless]<Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276417.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Big Unknown (4:21)Жанр: Pop, SoulПродолжительность: 00:04:21
+01. Legacy Open (1:40)
+02. Bedtime Story (1:33)
+03. Creation of Tron (by Jeff Bridges) (0:05)
+04. News Report (1:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:08:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B0799FBB6ED10C363B5E3A5408FFF2C19029044
+magnet:?xt=urn:btih:603149A2D82FF324BC65320C6BE2B8E90EC8F133
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336604   (276042) от 09.11.2019
+###  Публикация: 1665612   (180169) от 03.10.2023
 
-Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano, Relaxation>
+VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276042.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Your Song (3:48)
-02. Heroe (4:34)
-03. Can't Get You out of My Head (3:09)
-04. Morning Has Broken (3:10)(   Читать дальше...   )Жанр: New Age, Instrumental, Piano, Relaxation |Продолжительность: 00:56:34
+01. EASTERN WIZARD - The Mystic Lady (Mikhail Catan Remix) (6:56)
+02. Michael Simon - Umami (6:45)
+03. Michael Simon - Canzul (6:28)
+04. Mikhail Catan - Solace (OneRec Remix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4B4C0457D502EBDD21A19E696182DA91C04EA7D
+magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337185   (276010) от 09.11.2019
+###  Публикация: 1666184   (180151) от 03.10.2023
 
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
+VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
->>OST (Lossless)
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276010.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+01. Hansonic - Streets of Khartoum (6:40)
+02. Ibrahim Babayev - Summer Memories (4:32)
+03. DaDa Sound Project - Obuada (6:55)
+04. 2 Sides Of Soul - Oriental Coffee (7:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:10:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
+magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188262   (275974) от 01.12.2017
+###  Публикация: 1666235   (180112) от 03.10.2023
 
-Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
+VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275974.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Embrace of Silence (2:53)
- 02. Dance (4:05)
- 03. Lamentation (3:42)
- 04. Papillon (Replayed Version) (3:10)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:37:11
+01. FIN Project - Vision (JosSync Remix) (6:15)
+02. Ali Termos - Qartaba (5:38)
+03. Tamer ElDerini - Fagr (5:42)
+04. Kakura - Savannah (7:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9338C1C271840B91C7F517FECD8489F60A6E991F
+magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188082   (275957) от 01.12.2017
+###  Публикация: 1666125   (180108) от 03.10.2023
 
-Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|320 Kbps] <New Age, Relaxation>
+VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
->>New Age/Meditative/Relax
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275957.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Genesis (Part 1) (6:26)
- 02.  Genesis (Part 2) (7:05)
- 03.  Genesis (Part 3) (6:37)
- 04.  Chromatic Vibrations (7:36)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:24:21
+01. UMANNTO - Mahedi (feat. Soulpacifica) (7:17)
+02. Dmitry Kostyuchenko - Hiddekel (6:51)
+03. Den Macklin - Mad Emotional (5:29)
+04. Kakura - Bazaar (7:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:13:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F3556559CA4267724A06A7DB756544301BDCCB
+magnet:?xt=urn:btih:7230C89842CC562942E4698828BBFCD62371E5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337184   (275860) от 09.11.2019
+###  Публикация: 1665885   (180070) от 03.10.2023
 
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
 >>Other Styles
->>OST
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275860.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
+01. Andrew Holt - Marrakech Dreaming (Ali Termos Remix) (6:50)
+02. DaDa Sound Project - Golden Desert (MI.LA Remix) (6:12)
+03. Ali Termos - Ederlezi (6:57)
+04. Amine'O - Kamanja (5:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:23:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
+magnet:?xt=urn:btih:2CB1CA031FC9D1D14A7F04161F051BCA788763FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,173 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337186   (275540) от 09.11.2019
+###  Публикация: 1666139   (179937) от 03.10.2023
 
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2.0|48/44.1/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7C0F8C48E6BB1298864FC403E2475009C67ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337228   (275007) от 10.11.2019
-
-Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Waterfall 04:22
-2. Yoga Mat Sessions 02:02
-3. Serenity  02:44
-4. In the Distance 02:24(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337219   (274805) от 10.11.2019
-
-Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels We Have Heard On High
-02. My Favorite Things
-03. We Three Kings
-04. Christmas Time Is Here/O Christmas Tree (Medley)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA27CDB31B44A33BD74DD6B3A71EDF920C7CADF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336947   (274760) от 10.11.2019
-
-Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ceriam 02:44
-2. Breath In Yoga Sounds 03:00
-3. Inhalar Exhalar 03:04
-4. Amrita 02:54(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A64ECD66D29204E9D2FE132B98B30AAE5B2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083134   (274735) от 15.12.2016
-
-Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Planet [00:06:42]
-02. Secret Dreamtime [00:04:38]
-03. Snowboard [00:04:00]
-04. Great Ocean Dream [00:05:52](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337347   (274641) от 10.11.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
 
 >>Other Styles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274641.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_179937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carmen Disco (from Carmen) - Ron Barden's Computer Symphonics (7:15)
-02. Poem - New Rock Philharmonics (2:37)
-03. A Hard Day's Night / All My Loving - Symphonic Rock Orchestra (6:26)
-04. Menuett - Jacques Winter Orchestra & Singers (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:45
+01. Kiss N’ Ride (3:55)
+02. Double Pleasure (2:57)
+03. Gangsta Lovin (2:51)
+04. Lost in Xtazy (3:27)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:50:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3D9774B1D733C0EE9D41BC77A13BD4C8E8F859E
+magnet:?xt=urn:btih:09694A3A08B0307DB131E9859427098256F35D48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,57 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337354   (274582) от 10.11.2019
+###  Публикация: 1428773   (178243) от 04.12.2020
 
-VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air / Philharmonic Orchestra London - Johann Sebastian Bach (8:13)
-02. Hornkonzert Nr. 4 / Fatra String Sound Orchestra - Wolfgang Amadeus Mozart (3:47)
-03. Can't Buy Me Love / Philharmonics of London - Lennon, McCartney (2:27)
-04. Concerto / Ziliniana String Sound Orchestra - Antonio Vivaldi (3:07)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BE2640995D9B99C7191C0287974481E7794388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336706   (274580) от 10.11.2019
-
-Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+Christian Grey & Sasha Black - The Fire of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 
 >>Other Styles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274580.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Away from Home 05:16
-2. Open Skies 04:00
-3. As Beautiful as You	04:44
-4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
+01. The Fire of Love (3:22)
+02. Sex and Love (3:33)
+03. Lounge for Love (3:38)
+04. Red Room - Sax Bondage (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
+magnet:?xt=urn:btih:A99D9257FDE88F0C423F9497BAFCD4DF94D67B15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +404,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083546   (273638) от 16.12.2016
+###  Публикация: 1664857   (178067) от 06.10.2023
 
-Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
+neowake Biofrequencies - Утренняя мотивация 16 Гц: бинауральные ритмы для позитивной энергии (2023) [MP3|320 Kbps] <Instrumental, meditation>
 
 >>Other Styles
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273638.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_178067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 -  Luchia [00:05:01]
-02 -  Fantasyland [00:06:05]
-03 -  Quasi Una Fantasia [00:05:54]
-04 -  The Blue Whale vs. the Giant Squid [00:07:31](   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:01:06
+Пусть позитивная энергия neowake morning motivation не только украсит ваше утро, но и сопровождает вас в течение всего дня! Этот специальный сеанс с бинауральными ритмами  на частоте 16 Гц даст вам дополнительную дозу позитивной энергии в любое время дня.
+
+Если вы просто готовитесь к новому дню утром, нуждаетесь в зарядке энергии во время работы или делаете перерыв, (   Читать дальше...   )01. Morning Motivation 16Hz - Binaural Beats for Positive Energy (neowake®).mp3 [00:59:59]Жанр: медитация, бинауральные ритмы, InstrumentalПродолжительность: 00:59:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A7BCE20829DC3007DC10ACE9FE130F218A3CEB3
+magnet:?xt=urn:btih:1A415BD7B34A67A87BD6A3CDAEC0FB0BF73101A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083589   (273630) от 16.12.2016
+###  Публикация: 1665949   (177874) от 06.10.2023
 
-James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbps] <Score>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273630.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rose Creek Oppression (01:55)
-02. Seven Angels of Vengeance (03:25)
-03. Lighting the Fuse (01:22)
-04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
+01. Prognosis
+02. Henry Hope
+03. Meet Gabriela
+04. Tequila(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
+magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083416   (273554) от 16.12.2016
+###  Публикация: 1593776   (177836) от 01.12.2022
 
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrumental, Hammond>
 
 >>Other Styles
->>OST (Lossless)
+>>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273554.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+01. Vive l'amour (Original Mix) [02:25]
+02. Barcarole (Original Mix) [02:32]
+03. La Bamba (Original Mix) [03:02]
+04. La Matchiche (Original Mix) [02:11](   Читать дальше...   )Жанр: Instrumental, HammondПродолжительность: 01:06:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4385431F23DDBD6921A8C54494670E35CF284DD8
+magnet:?xt=urn:btih:3787BC41B6ECED2E88AA488B3E0AECA1E4CBB9A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083590   (273551) от 16.12.2016
+###  Публикация: 1429166   (177371) от 05.12.2020
 
-James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Blackmore's Night - Here We Come A-Caroling (2020) EP [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Folk Rock>
 
 >>Other Styles
->>OST (Lossless)
+>>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273551.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rose Creek Oppression (01:55)
-02. Seven Angels of Vengeance (03:25)
-03. Lighting the Fuse (01:22)
-04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
+01. Here We Come A-Caroling
+02. It Came Upon a Midnight Clear
+03. O Little Town of Bethlehem
+04. Silent NightЖанр: Folk RockПродолжительность: 00:10:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FB4A57C439AC79A5EE881AE1504CC6B0AB679B0
+magnet:?xt=urn:btih:DEA3AF3FE364386D7D96A48A78A0FD48E16F3099
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188865   (273520) от 03.12.2017
+###  Публикация: 1428728   (176682) от 06.12.2020
 
-Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
+Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 
 >>Other Styles
->>New Age/Meditative/Relax
+>>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273520.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  Apres La Pluie (6:36)
-2.  Ruparahi (5:51)
-3.  Olive Grove (8:31)
-4.  Subandallah (9:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:33
+01. She's So Intoxicating [03:47]
+02. Got My Country Girl [02:59]
+03. Cherokee Butterfly [03:54]
+04. Somehow I Know You [03:05](   Читать дальше...   )Жанр: Country, RockПродолжительность: 00:53:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5BD19A3F64D5E7D259F49E4B1B5C73FB9B3F589
+magnet:?xt=urn:btih:FEC35178BB5B563B0985E5CFCC2C505DDB9B39FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +548,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083592   (273473) от 16.12.2016
+###  Публикация: 1429491   (176529) от 06.12.2020
 
-Михаил Костылев - 28 Панфиловцев (Оригинальная музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House, Miscellaneous>
 
 >>Other Styles
->>OST
+>>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273473.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_176529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пролог (00:54)
-02. То ли легенда то ли миф (08:29)
-03. Стоять намертво (15:02)
-04. Фашистская гидра (06:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:18
+01. Tebra - Jovano (6:33)
+02. Kled Mone - Manastir (6:06)
+03. Tebra - Sve Na Crno (6:58)
+04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: Chillout, Downtempo, Deep-House, MiscellaneousПродолжительность: 04:58:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8506B3631D55FE06318A1658CF89AEAC1D6B2AEE
+magnet:?xt=urn:btih:661A109E5AAC441D7C672E1930CA46BA4112896D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595337   (175130) от 06.12.2022
+
+Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blameless [00:04:28]
+02. Green Cross [00:02:58]
+03. Shadowforce [00:03:40]
+04. Flowers of Essence [00:04:10](   Читать дальше...   )Жанр: Post-Punk, Dark FolkПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344599   (175018) от 08.12.2020
+
+Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanuman
+02. Buster Voodoo
+03. Triveni
+04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668166   (173691) от 12.10.2023
+
+Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:25)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1A3E1D01D3694B969B777321FA0F886DD9ED22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668360   (173656) от 12.10.2023
+
+VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Piano Jazz Collection - Body Language (3:31)
+02. Jazz Erotic Lounge Collective - Sink in You (3:52)
+03. Sensual Lounge Music Universe - Motel 69 (3:00)
+04. Sexual Piano Jazz Collection - Nasty Thoughts (4:33)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826920   (173516) от 19.10.2025
+
+VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - The Moon of Flowers (7:43)
+02. Noam Garcia - The Dreams (9:40)
+03. Tibetania - Zawadi (8:58)
+04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF86EB36FFE7576EA3E14427F4ED732EF8E0748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668634   (173341) от 13.10.2023
+
+VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neo Tantra - Sensual Mood (4:05)
+02. Erotic Massage Music Ensemble - Slow Hands (3:14)
+03. Erotic Music Zone - Temple of Love (3:14)
+04. Neo Tantra - Into Ecstasy (3:00)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB45D998F78F0223C2DD5EDDF34989013969BC7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

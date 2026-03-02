@@ -1,3 +1,206 @@
+###  Публикация: 994199   (891644) от 07.03.2016
+
+VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankyboy - You Make Me (Original Mix) 05:00
+02. Escadia - Far Cry (Original Mix) 06:48
+03. Delighters, Viofly & Stev Dive - My Music (Original Mix) 05:01
+04. Yanter - Down Dugs (Original Mix) 05:21(   Читать дальше...   )Жанр: Soulful, House, Funky, Nu DiscoПродолжительность: 02:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994346   (891616) от 07.03.2016
+
+VA - Star Hit. Самая желанная (2016) [MP3|192 kbps - 256 kbps] <Pop, Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Бандера - Самая желанная
+002. Владимир Асмолов - Рядом быть хочу
+003. Любовь Успенская - К единственному нежному
+004. Гости из будущего - Самый любимый враг(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 06:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C13D7D33BADDD4F017077D179A4A9B94D88AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993801   (891612) от 07.03.2016
+
+VA - Судьба злодейка (2016) [MP3|224-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Жека - Шуршу ля фам
+002. Иван Кучин - Судьба злодейка
+003. Трофим - Густо-не пусто
+004. Трофим - Горько(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7721F87C2EE87F27FAA9FC7A766019F31A7D1BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994081   (891605) от 07.03.2016
+
+VA - Electro Life 41 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (Rob & Chris Remix)
+02. Aerosoul vs. Aruna - Sunrise (Original Mix)
+03. Bali Bandits - Mr.Meow (Extended Mix)
+04. Carlos Jean & Aqeel - Movin Up (Original Mix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Electro Progressive, DubstepПродолжительность: 02:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64E2E323E160717B88E5B8EDDDAA3E7C5054159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994334   (891600) от 07.03.2016
+
+VA - Душевный шансон Любимая женщина (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Михаил Бублик - Музыка Про Нее.mp3
+002.  Александр Ягья - Любимая Женщина.mp3
+003.  Александр Бешеный И Надежда Шеина - Без Тебя.mp3
+004.  Сергей Вольный - До Фонаря.mp3(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD57CED12045A7CD83B305BF8726726577459E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994177   (891599) от 07.03.2016
+
+VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical, UK Garage, Bigroom, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891599.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaskade feat Kolaj - Whatever (Neus Remix) 03:54
+002. Noisy Bears - Hold You (Feat SevenEver) (Original Mix) 06:54
+003. Gestort Aber Geil & Marc Narrow - geh nicht weg (extended mix) 04:41
+004. Aki - Heroin (Club Mix) 03:39(   Читать дальше...   )Жанр: Future House, Tropical, UK Garage, Bigroom, Nu DiscoПродолжительность: 09:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4293611B2300902F4BF0DDBC27E0385B64C415D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371213   (891579) от 30.03.2020
+
+Deep Forest - 100% Deep Forest (2020) [MP3|320 Kbps] <Alternative, Enigmatic, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anasthasia
+02. Bohemian Ballet
+03. Marta's Song
+04. Gathering(   Читать дальше...   )Жанр: Alternative, Enigmatic, New AgeПродолжительность: 03:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA39BD071BEE7C7B56314252E47230314067F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994198   (891570) от 07.03.2016
 
 VA - TOP 100 Club Tracks (February) (2016) [MP3|96-320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
@@ -547,209 +750,6 @@ VA - Top 100 Order Vocal Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661515929CBE5DE7F1F1861EA201640DEF7F3375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994470   (889801) от 08.03.2016
-
-VA - Радио Шансон. Подарок любимой женщине (2016) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889801.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Александр  Маршал и Ариана-Я тебя никогда не забуду
-002.  Владимир  Асимов-Ближе тебя
-003.  Анатолий  Корж-Красивая  и  смелая
-004.  Виктор  Королев-Алые  розы(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6919EC60E5C3194F76642AEF71A5837C961F0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994535   (889790) от 08.03.2016
-
-VA - Музыка для души на стильном радио (2014) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Егоров - Берегите любимых
- 02. Николай Старченков - Рябина
- 03. Андрей Бандера - Любимая
- 04. Виктор Калина - Ты высшая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9968854C1FFA292951F7B6F8398EB269E68FCB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994551   (889780) от 08.03.2016
-
-Va - Подарок любимой женщине (2016) [MP3|320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алла Пугачёва - Тянет сердце руки 04:05
- 02. Григорий Викторович Лепс - Одиноко 03:55
- 03. Стас Михайлов - Золотое сердце 03:48
- 04. Андрей Бандера - Любимая 03:53(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 03:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4F61B6B5BCBAC7B4C98AE303F99C92C8535AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994317   (889740) от 08.03.2016
-
-VA - Самая лучшая женщина. Праздничный сборник (2016) [MP3|256 кб/с] <Шансон, Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889740.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Игорь Наджиев - Самая лучшая женщина.mp3
-002.  Александр Куданов - Счастье мое.mp3
-003.  Олег Голубев - Я Буду Рядом.mp3
-004.  Александр Антонов - Двое Под Дождем.mp3(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 06:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316ED3DA261219725A5F101A776903B2D10C75E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994254   (889692) от 08.03.2016
-
-VA - 8 Марта Хиты Для Единственных И Любимых (2016) [MP3|320 кб/с] <Pop, Шансон>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лев Лещенко - Моя любимая.mp3
-02. Рождество - Карандаши.mp3
-03. Евгений Росс - Милая, единственная, нежная.mp3
-04. Фристайл, Сергей Кузнецов - Самая любимая.mp3(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 01:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C71FBF3A83DAB0A1268F29EF6E64AFC2F2E1751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102631   (889682) от 10.02.2017
-
-VA - Trance Elegance On This Year 009 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Allen & Envy With Andy Elliass Ft. Natalie Gioia - In Love (Somna Remix)  6:40
-02.  Mike Saint-Jules & Amy Kirkpatrick - Galaxy (Original Mix)  6:10
-03.  Nomosk & Ansia Orchestra - Adventure (UDM Remix)  7:54
-04.  Roger Shah & Antillas Ft Zara Taylor - Fire (Extended Mix)  7:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal, Tech Trance, BlissfulПродолжительность: 02:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAB03B57DE231FA8D5D63C462419D43FDA4274F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994782   (889627) от 08.03.2016
-
-VA - 80-90th Discotheque In A New Way Vol.24 (2016) [MP3|320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Damiani & Tayma vs. Savage - Only You (Alexandra Damiani Extended Mix)
-02. Desireless - Voyage
-03. New Mode - Enjoy the Silence (Depeche Mode)
-04. Baccara - Cara mia (mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 05:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763848254FD8D159D1222E52650C444FE7F15C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

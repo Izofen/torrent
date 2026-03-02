@@ -1,32 +1,3 @@
-###  Публикация: 1470125   (1015972) от 15.05.2021
-
-Lester Young - 1936 - 1943 (2003) Columbia [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoe Shine Boy [2:59]
-02. Boogie Woogie [3:15]
-03. He Ain't Got Rhythm [2:51]
-04. I Must Have That Man [2:56](   Читать дальше...   )Жанр: SwingПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15289C0F8D5E9905B1FA8BCE95253739625B1511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470091   (1015888) от 15.05.2021
 
 The Black Keys - Delta Kream (2021) [FLAC|Lossless|image + .cue] <Electric Blues, Blues Rock>
@@ -745,6 +716,35 @@ David Kikoski With Boris Kozlov - Sure Thing (2021) HighNote [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF464A1AD63E1AEFAF0EA39F4498A7422E0FF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473593   (1013553) от 30.05.2021
+
+Marc Antoine - Something About Her (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Still In Love (4:11)
+2. Something About Her (feat. Brian Simpson) (3:26)
+3. Marco Polo (4:40)
+4. Groovy Sunday (3:47)(   Читать дальше...   )Жанр: Guitar Jazz, Smooth JazzПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6638F5BC235F05286E44C03DAF504ADDAA66C49E
 ```
 
 https://mybot314.ru/tekegram_catalog/

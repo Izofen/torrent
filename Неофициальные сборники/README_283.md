@@ -1,3 +1,206 @@
+###  Публикация: 1538640   (662198) от 21.03.2022
+
+Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I See the Sky
+02. Eternamente (Eternally)
+03. Y Volvere - El Triste - La Nave Del Olvido - Orfeo Negro
+04. One Voice Concerto(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AF151D6C85AB777C70B14A7A1B20C8C5881F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538643   (662194) от 21.03.2022
+
+Ernesto Cortazar - Compilation part 4 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Vida Es Bella
+02. Winter
+03. Sol'itude (Concerto)
+04. Our Wedding Day(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 03:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D6DF217E16DFDB25ADDB796D9BFF1BD3FB87E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538639   (662191) от 21.03.2022
+
+Ernesto Cortazar - Compilation Part 1(2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My First Love
+02. Faces of Nature
+03. Emmanuelle's Theme
+04. Perpetual Breeze(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 05:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8010430E56B74FBBD84B3C315BA4390D18086748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538649   (662189) от 21.03.2022
+
+VA - Music News vol.174 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662189.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inna - Up (Arem Ozguc & Arman Aydin Remix) (02:17)
+ 002. Akmal' - За Твои Глаза (03:00)
+ 003. Akmal' - Нарисуй Любовь (03:04)
+ 004. Akmal' - Окна (02:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DDA2AA8054B0D2EAAF3BE6CBA96A3096C8F5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138725   (662035) от 31.05.2017
+
+Willie Dixon - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 29 Ways
+02. After Five Long Years
+03. Back Door Man
+04. Help Me(   Читать дальше...   )Жанр: BluesПродолжительность: 02:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76431680895BB5643C71E0821C64826F6A0CD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138807   (661962) от 31.05.2017
+
+VA - Summer Nostalgia: Cherry Disco 80s (2017) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam & The Ants - Stand And Deliver
+002. Deacon Blue - Real Gone Kid
+003. Dead Or Alive - You Spin Me Round (Like A Record)
+004. Journey - Don't Stop Believin'(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 07:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B578504363B4A31544C72AF1B84461F42BB0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138710   (661961) от 31.05.2017
+
+The Bee Gees - The Platinum Collection (2017) 2CD [MP3|320 Kbps] <Pop-Rock, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tragedy
+02. How Deep Is Your Love
+03. It's My Neighborhood
+04. Living Together(   Читать дальше...   )Жанр: Pop-Rock, FolkПродолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE60C2CC8DDDCD2EBEFCD567CA4A98F42779759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902217   (661791) от 27.05.2015
 
 VA - Top 100: Radio Record (2015) [MP3|320 кб/с]<Dance, Club, Trance, House>
@@ -566,209 +769,6 @@ VA - Deep Vocal Relax (2022) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDEB547C7C8A620810F6FBD1F3E24F5356BDF343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902823   (659914) от 29.05.2015
-
-VA - I Love Italo Disco ot Vitaly 72 - 3 (2015) [MP3|320 кб/с]<Italo-Disco, Synth-pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aldo Lesina - Goodbye (Extended Power Mix) (07:18)
-002. Tonschatz - Midlife Dreams (Extended Club Mix) (04:57)
-003. Boris Zhivago - Once Upon A Time (05:21)
-004. The Crosslines - In The Heaven Of The Night (Sp Records Version) (05:29)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 03:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34DBF5275973BE498344D9C4E105DC6C89E02FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139523   (659703) от 02.06.2017
-
-VA - Дискотека 2017 Deep House - The Best Vol.3 от NNNB (2017) [MP3|320 Kbps] <Nu Disco, Indie Dance, Electronic, Club, House, Synth Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RoelBeat & Pruchkovsky feat. Vika Grand - Ocean Drive (Radio Edit)
-02. Tosel & Hale, Heavy Pins feat. Veselina Popova - Read The Signs
-03. Anton Chumakov - Tomorow (Original Mix)
-04. MCB 77 - Dangerous Game (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Indie Dance, Electronic, Club, House, Synth PopПродолжительность: 15:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF1A32F44E3C57C5D9D0F50D2618872DD0CB919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225548   (659668) от 16.05.2018
-
-VA - Deep House Collection Vol.170 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7even (GR) - Love Untold (RAFO Remix)
-002. Active Child - Johnny Belinda (MDK Remix)
-003. Adam Nathan - Us And Them (Original Mix)
-004. al l bo - Supernow (The Soap Opera Remix, Special Edition)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAF47F18B6DD5EB27766270E852BFD9D0743F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902958   (659598) от 29.05.2015
-
-7Б - Лучшее (2015) [MP3|320 кб/с]<Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659598.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Молодые Ветра (04:25)
-002. Я - Любовь (03:26)
-003. Бессмертие (04:59)
-004. Руки В Небо (03:30)(   Читать дальше...   )Жанр: РокПродолжительность: 03:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E8DC26ABC73D5DBAFE0BF99B83A9D48DE03B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902634   (659566) от 29.05.2015
-
-VA - Top 100 Русский Рок от Зайцев. Нет (2015) [MP3|256 кб/с]<Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659566.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Серьга - Чай С Лимоном (Папе) (04:15)
-002. Чичерина - Конец Света (03:53)
-003. Город 312 - Друзьям (03:54)
-004. Чичерина - Тибет (03:38)(   Читать дальше...   )Жанр: РокПродолжительность: 06:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF5D9868ACC691A7B09642F4B8E8606C3BFE929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225543   (659529) от 16.05.2018
-
-VA - Зайцев.нет: Музыкальные новинки. Май (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ульяна Ми - Завтра 3:43
-02. Gazelle - Stay For The Night 3:32
-03. Anzheli - Когда ты рядом 4:02
-04. Денис Майданов и Юные Александровцы - Тишина 4:36(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A2BA0705F9230451F43B12F56B4E0EF7DF30FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903114   (659323) от 30.05.2015
-
-VA - Ibiza Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - South River [05:59]
-02. El Nicoya - Andando [05:42]
-03. The Magical Corner - Laguna [06:03]
-04. Cesar Martinez Ensemble - Little Drops of Love [06:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287F673355F6B16C54ED5AC2583AC455926DB18E
 ```
 
 https://mybot314.ru/tekegram_catalog/

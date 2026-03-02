@@ -1,32 +1,3 @@
-###  Публикация: 1620294   (1032360) от 19.03.2023
-
-PD Martin - Soulbeat Incarnate (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Me Pay (4:09)
-02. Come To Bed (3:01)
-03. Strip It Down (3:29)
-04. Burn The Witch (4:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A021E2CB2217B1223D8B622787E6B071A65A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620229   (1032358) от 19.03.2023
 
 The Answer - Sundowners (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock, Hard-Rock>
@@ -745,6 +716,35 @@ Big Shoes - Fresh Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A7917BB95C5748897A9127B3F5427FEC4EB1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620697   (1031857) от 21.03.2023
+
+Elles Bailey - Shining in the Half Light (Deluxe Edition) (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheats and Liars (3:49)
+02. The Game (3:04)
+03. Stones (3:25)
+04. Colours Start To Run (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E83ED192D622FDC6DD0FABCE3340D58A624852
 ```
 
 https://mybot314.ru/tekegram_catalog/

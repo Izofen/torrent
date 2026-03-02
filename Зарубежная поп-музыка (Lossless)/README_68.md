@@ -1,3 +1,119 @@
+###  Публикация: 1266455   (270035) от 02.12.2018
+
+The Hollies - Live at the BBC (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Here I Go Again
+02.  Jennifer Eccles
+03.  I've Got a Way of My Own
+04.  Wings(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CC1B1B80B18CDF0475FD0E6BE7748AECA6F327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338564   (269819) от 15.11.2019
+
+Peter Hahn & Anna Maria Kaufmann - CD3 Pop (2010) [FLAC|Lossless|image + .cue] <Pop, Cover, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Maria Kaufmann - Kann Es Wirklich Liebe Sein (Can You Feel The Love Tonight) (3:57)
+02. Anna Maria Kaufmann - Kiss From A Rose (4:49)
+03. Anna Maria Kaufmann - Dir Gehört Mein Herz (You'll Be In My Heart) (3:17)
+04. Anna Maria Kaufmann - Das Andere Leben (3:47)(   Читать дальше...   )Жанр: Pop, Cover, Classical CrossoverПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D897C3517049BD4D28FA624016FB603728486D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189349   (269484) от 07.12.2017
+
+Lenka - Attune (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Bird That Sings (3:13)
+02. Arrow (3:18)
+03. Heal (4:00)
+04. Lucky (3:20)(   Читать дальше...   )Жанр: Pop, Indie Pop, Singer/SongwriterПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5DA50A478468DBF048F68293B95B563B0A1552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189314   (269468) от 07.12.2017
+
+Juanes - Mis planes son amarte (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perro viejo (3:16)
+02. Ángel (3:52)
+03. Fuego (2:46)
+04. Alguna vez (feat. Fonseca) (2:59)(   Читать дальше...   )Жанр: Pop, Pop Rock, LatinПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8431CEB624E74767B276F16B270E0669BE46CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266785   (269190) от 03.12.2018
 
 Karizma Duo - Acoustically Covered (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191784   (263715) от 15.12.2017
-
-Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, Elektro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruleta (feat. Erick) (3:18)
-02. Gimme Gimme (2:57)
-03. My Dreams (3:11)
-04. Tropical (3:14)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, ElektroПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340667   (263613) от 24.11.2019
-
-Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessun grado di separazione (3:40)
- 02. L'amore esiste (3:33)
- 03. Lontano (3:06)
- 04. Amazing (3:27)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C03658C1A045A3BAD092B763F2DBAF740C2AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340710   (263591) от 24.11.2019
-
-Thegiornalisti - LOVE (2018) Carosello Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (1:25)
- 02. Zero stare sereno (3:15)
- 03. New York (3:40)
- 04. Una casa al mare (2:55)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735736A7631C66366F6917842D2A1733A1C62241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340541   (263577) от 24.11.2019
-
-VA - 100 Greatest Acoustic & Chill Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Chill>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263577.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Be the One (Acoustic)
-002. Maisie Peters - Feels Like This
-003. Birdy - Wings (Acoustic)
-004. Coldplay - The Scientist(   Читать дальше...   )Жанр: Pop, R&B, ChillПродолжительность: 06:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B250BF200D7F5A6A71077D2DB33C090270A80AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

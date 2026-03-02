@@ -1,525 +1,3 @@
-###  Публикация: 1121443   (794255) от 05.04.2017
-
-Øfdream (Ofdream) - Real Answer (2016) [MP3|320 Kbps] <Сhill Trap, Liquid Trap, Future Bass>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Answer
-02. Fallen Angel
-03. Out Of Trouble
-04. First Woe(   Читать дальше...   )Жанр: Сhill Trap, Liquid Trap, Future BassПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C155F96B947D8278BAABE19194829D0F6575FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509704   (793860) от 13.11.2021
-
-Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мох
-2. Погружение
-3. Flashback
-4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509819   (792844) от 14.11.2021
-
-B.o.B - Murd & Mercy (2021) Deluxe [MP3|320 Kbps|Web-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Loves Violence (3:10)
- 02. Built Like This (3:18)
- 03. DoGG feat. Sonny Digital (2:57)
- 04. OTS (3:28)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAB8AE6381EEDFEFAE7265BFCFE8E81DB688408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388044   (790058) от 04.06.2020
-
-Run The Jewels - RTJ4 (2020) [MP3|320 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yankee And The Brave (02:27)
- 02. Ooh LA LA (Ft. Greg Nice and DJ Premier) (03:01)
- 03. Out Of Sight (Ft. 2 Chainz) (03:21)
- 04. Holy Calamafuck (03:58)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89F67B56B63D35776D9C3492DC212D83B138A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510919   (789710) от 19.11.2021
-
-Noize MC - Выход в город (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выход в город
-2. Миокард
-3. Сельма Лагерлёф
-4. Двадцатые годы(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0625C38AEBDD6DBE6AE046EC8F15F3D57EB1FDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511190   (789465) от 20.11.2021
-
-Макулатура - большая мечта (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. из зтм [01:20]
-02. папа [03:19]
-03. дьявол (feat. Михаил Енотов) [04:58]
-04. отмена [02:50](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A0F9DC6792DA186B51EF4E79AA3E2D49E6E43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511193   (789432) от 20.11.2021
-
-Заги бок - Сложносочинённый (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хроническое [02:35]
-02. Как перестать думать [02:57]
-03. В осаде [03:11]
-04. Стыдно [03:40](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35FE089A3D522B42EFDD637342B4EEE73267993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511204   (789421) от 20.11.2021
-
-Саша Скул - Конец детства (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А вот и мы [02:35]
-02. Марадонна [02:18]
-03. Шёпот [01:51]
-04. Снова (feat. Metox) [04:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D3A56B81D3590DEEC94B0BDBC8CF572F273425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511194   (789420) от 20.11.2021
-
-Рыночные Отношения - 2021 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Позывные [03:18]
-02. Забитый сектор [03:10]
-03. Грязные рэперы [02:24]
-04. Улица (feat. Magu) [02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B3FF0E2CA2D7CBB20BC66E891CE5C7FAE16464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511195   (789419) от 20.11.2021
-
-ChipaChip, Vnuk - Дохлый номер (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шизгаре [02:35]
-02. Поцелуй (feat. NyBracho) [03:23]
-03. Ералаш [03:54]
-04. По ошибке [03:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2A33D6620BA2F5312D28FD406AFB7AA49E5FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511202   (789370) от 20.11.2021
-
-Redo - ARKTECH (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X.R.O.M [02:17]
-02. RIZZLA [02:26]
-03. PETROL (feat. BATO, RAM) [03:25]
-04. OCHERED' [02:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECF52A39E9C60D7CAC4DED71C90CDD23AB9AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511201   (789364) от 20.11.2021
-
-Bahh Tee - 33 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые Найки [04:24]
-02. Ветер и Берёза (feat. Turken) [06:43]
-03. Три сестрёнки [02:56]
-04. Прожигаю [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC1661988A2B58D9C2A7084506D17558896D90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511205   (789361) от 20.11.2021
-
-ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ради нее [03:37]
-02. Время [03:23]
-03. Без тебя [03:30]
-04. Пацаны [03:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E04498F1EF9FF10B84E93D3C61EFC46678E888B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511198   (789315) от 20.11.2021
-
-Loc-Dog - Счастье в простом (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интерес [02:41]
-02. Иду к ней [03:08]
-03. Подгрузило 2021 [02:21]
-04. Счастье в простом [02:49](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81784306FC438182F92F4EC3654EC790E48E8582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511211   (789314) от 20.11.2021
-
-Zambezi - CHIPS (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Потерян [02:54]
-02. Помолчи [02:57]
-03. Рахманинов [02:56]
-04. Плач гитары [03:29](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420190CAF7ED2EB3935779ADFB71BABBDE0A9D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511207   (789311) от 20.11.2021
-
-ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цитрус [03:00]
-02. Лимб [03:47]
-03. Карантин (feat. СД) [02:40]
-04. Насквозь [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDDB4DB85C237FEC95D5508A3FF0D0CBF9BDAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511214   (789310) от 20.11.2021
-
-SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO [02:03]
-02. FLOWJOB [01:58]
-03. МИКРОЗАЙМ [03:28]
-04. МНОГА ТРОЕК [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436FEA215CD80968C05B7015B6EBE6A0A0B46827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511206   (789309) от 20.11.2021
-
-Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Картина мира [02:49]
-02. Голгофа [03:51]
-03. Монархия 2.0 [03:05]
-04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511200   (789304) от 20.11.2021
 
 VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -745,6 +223,528 @@ Run The Jewels - RTJ4 (2020) [FLAC 2.0|48/24|tracks|WEB-DL]  <Hip - Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA1324611A46EF8F06F1098F5582C25845072B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389050   (785111) от 08.06.2020
+
+VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biz Markie - Nobody Beats The Biz 5:03
+02. Ice-T - Colors 4:26
+03. Grandmaster Flash & The Furious Five - Gold 4:21
+04. Ultramagnetic Mcs - Traveling At The Speed Of Thought (Remix) 1:52(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7CA622FD458C40FE8CD4729A32C9F390A49F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205171   (784008) от 08.02.2018
+
+Каста - Лучшие песни (2014) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Корабельная песня
+02. Мы берем это на улицах
+03. На порядок выше
+04. Горячее время(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91010D33893FE0A8C913E7109B5DACD308829CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389915   (783935) от 12.06.2020
+
+Макулатура - утопия (2020) [MP3|320 Kbps] <Hip-Hop, Abstract, Indie>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. утопия [03:55]
+02. пепел [05:17]
+03. тиссеран [04:32]
+04. проклятие [06:15](   Читать дальше...   )Жанр: Hip-Hop, Abstract, IndieПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE893B03B9165842DABF93E1A6CD311AAAB37A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389922   (783685) от 13.06.2020
+
+Fardi - Черный сад, часть 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. СНГ [02:20]
+02. Нарды/Домино [02:38]
+03. Чернила [03:04]
+04. АУЛ [02:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E629E940F82EF15EFF8B2CAFA07CC6FB566759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389919   (783679) от 13.06.2020
+
+DA108 - Это всё не то... (Чужие 2005-2011) (2020) [MP3|320 Kbps] <Hip-Hop, Underground>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город снов (feat. DJ108) [03:35]
+02. Без перерыва на обед [05:44]
+03. Два слова на рассвете (Исповедь) [06:09]
+04. Angels from da Sky [03:45](   Читать дальше...   )Жанр: Hip-Hop, UndergroundПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC54315C63603A7316285FEA5BDB539AC84E5B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389913   (783668) от 13.06.2020
+
+SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. КУСЬ [02:19]
+02. НЕ БАБУШКА [03:03]
+03. ОЙ [02:37]
+04. THAI TRAP [02:33](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B9C915BE24B6410A2D5FE96F40674CB8F4862E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389911   (783650) от 13.06.2020
+
+Scarlxrd - FANTASY VXID; SUMMER. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WELCXME TX THE GULAG. [01:58]
+02. FXRCES. [03:39]
+03. HXPE FXREVER. [03:32]
+04. I LXST THE WILL TX WIN. [04:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC187E771224B4DDB10F22F0C7882B580E9C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199614   (782707) от 10.05.2010
+
+DMX - 10 Albums (1998 - 2010) [MP3|320 kbps]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - It's Dark And Hell Is Hot
+1998 - Flesh Of My Flesh Blood Of My Blood
+1999 - And Then There Was X(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:55:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206880   (781662) от 15.02.2018
+
+Onyx - Black Rock (2018) [MP3|320 Kbps] <Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onyx!!
+02. Black Rock (feat. DJ Nelson)
+03. What U Want from Me
+04. Blinded by the Light (feat. Optimus)(   Читать дальше...   )Жанр: Hardcore Hip-HopПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5556E7B2CD3A984E3BF2F95546C09BC8AC828048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209006   (779650) от 24.02.2018
+
+Krec - Атом (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рядовой
+02. Серьезно
+03. Атом
+04. Монстр(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03543358513CEE9DCA39EF8CD0BCB7B1967D9086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014847   (775415) от 09.05.2016
+
+MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HAJIME (INTRO)
+02. OneLove
+03. God Bless
+04. Санавабич(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212646   (775034) от 13.03.2018
+
+Грот - Лучшее (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обитатели рая
+02. Лиза
+03. Кровь с кислородом
+04. Рубежи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB7E7134B33A3713024DB5071E3548D4A43749A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117653   (773441) от 13.04.2017
+
+SERPO & DJ MTR - На осколки (2017) EP [MP3|320 Kbps] <Hip-Hop, Reggae, House>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773441.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вести из прошлого
+2. Пока горит моя звезда
+3. Я налью вина
+4. На Осколки(   Читать дальше...   )Жанр: Hip-Hop, Reggae, HouseПродолжительность: 00:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51DB225515EE48FBBEDDD7992810F2CB2E9BB69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124917   (772904) от 13.04.2017
+
+Rag'n'Bone Man - Human (2017) [MP3|320 kbps] <R'n'B, Soul, Indie>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human (3:20)
+02. Innocent Man (3:07)
+03. Skin (4:00)
+04. Bitter End (3:40)(   Читать дальше...   )Жанр: Funk, Soul, Blues, Pop, Rhythm & Blues, Ballad, IndieПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BD58C5BF3D76C478C6ADC4B7EEB5BA71F8C743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016069   (772232) от 12.05.2016
+
+Баста - Баста 5. Часть 1 (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772232.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первую часть нового альбома Басты вошли одиннадцать треков, в том числе песня «Голос», записанная с коллегой по одноимённому шоу — Полиной Гагариной. «У меня не было задачи сделать именно двойной альбом, просто накопилось много песен. Вообще, очень мрачный и странный альбом получился, но мне нравится», — говорит рэпер.01. Интро (Моё время в пути)
+02. Удивительный мир
+03. Фонари (feat. Тати)
+04. Голос (feat. Полина Гагарина)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D724D3682AA28543C8836C1077B81D2725ABC769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279278   (765875) от 29.01.2019
+
+Группа «Антиреспект» - Тишина... (2018) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Заветная
+02 - Летай
+03 - Нарисуй (feat. Мафик)
+04 - Одинокие берега(   Читать дальше...   )Жанр: RapПродолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BE68C482DF1E622D61B59BDF1506D444CB25BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214715   (763927) от 22.03.2018
+
+Toni Braxton - Sex & Cigarettes (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deadwood 03:59
+2. Sex & Cigarettes 03:48
+3. Long As I Live 04:51
+4. FOH 02:47(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF5D1C74B357872FFDCC33DD89BBE4A9C700D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280073   (763517) от 01.02.2019
+
+MATRANG - DA (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Иди
+2. Луной
+3. Заменители
+4. Камень(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A936B4CE3C260E47DF9B95166D98DA48BFB34F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

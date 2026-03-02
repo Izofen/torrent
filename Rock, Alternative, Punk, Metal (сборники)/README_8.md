@@ -1,3 +1,32 @@
+###  Публикация: 765274   (872982) от 13.03.2014
+
+VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Years Hollow - For Life (Feat. Clint Lowery)
+02. Rave The Reqviem - Exhale
+03. Fuel - Cold Summer
+04. An Early Fall - Soma(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496435   (872865) от 17.09.2021
 
 VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -722,35 +751,6 @@ VA - Alterportal HITS 15 Vol. 78 - February (2015)  [MP3|128-320 кб/с]<Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D66F4FAAC42E5FBF4E96065707C95ABE79FFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376391   (860156) от 17.04.2020
-
-Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great American Success Story
-02. Caught in a Dream
-03. Under My Wheels
-04. School's Out(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46706EA4F3AC18FEE84A4A809B7274A849E13CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

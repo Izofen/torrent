@@ -1,3 +1,203 @@
+###  Публикация: 1466505   (1018416) от 30.04.2021
+
+VA - Workout Motivation 3 (2021) [MP3|320 Kbps] <Dance, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MOHA, Irma, Meqq - ily (2:18)
+02. Oliver Heldens, Firebeatz, Schella, Carla Monroe - Lift Me Up (2:57)
+03. Player1 - Changed the Way You Kissed Me (2:33)
+04. Jordan Davies, Gavin Francis, Ishod Blaq - Let Me Love You (3:06)(   Читать дальше...   )Жанр: Dance, House, OtherПродолжительность: 03:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EC8B76A5C1E9DE10CDF85AD0BAFF5181F4226B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466404   (1018393) от 30.04.2021
+
+VA - Beast Mode Rock (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Roach - Ricochet (3:09)
+02. The Prodigy - Firestarter (4:39)
+03. Sixx A.M. - Rise (3:53)
+04. Bush - Machinehead (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89EF3CE75FD5482E4D1C1B749DDD178629FA2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466622   (1018273) от 01.05.2021
+
+VA - Beast Mode Dance (2021) [MP3|320 Kbps] <House, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ytram, Elderbrook, Martin Garrix - Fire (2:43)
+02. Tujamo - I Don't Wanna Go (3:06)
+03. Bassboy, Salo - With Me (3:48)
+04. R3HAB, Fafaq, DNF - Sorry I Missed Your Call (2:35)(   Читать дальше...   )Жанр: House, Dance, OtherПродолжительность: 04:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09AF1A1B493FE481C901921633C490182E2B84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466744   (1018262) от 01.05.2021
+
+VA - German Top 100 Single Charts 30.04.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saweetie - Best Friend (feat. Doja Cat & Katja Krasavice)Жанр: PopПродолжительность: 04:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEF8B5695588800890B260F5A443CF89C5514C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466869   (1018105) от 02.05.2021
+
+VA - EDC Radio: Beat Dance Set (2021) [MP3|320 Kbps] <EDM, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот микс изначально нацелен на клубный драйв, нежели на прослушивание в наушниках дома за чашкой кофе. Однозначно, придется по вкусу любителям заводных ритмов и тем, кто до без ума от воскресных тусовок.001. Relanium - Home Alone
+002. Munez - Tonight
+003. Stompy & Eazyvibe - I Just Wanna Party
+004. Laconic - Laconic & Deanna(   Читать дальше...   )Жанр: EDM, Dance, House, ElectroПродолжительность: 08:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337E473D7DBB835689DF3170B9A47075A7892D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466866   (1018101) от 02.05.2021
+
+VA - Electropop Dance Party (2021) [MP3|320 Kbps] <Pop Dance, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкий, незаезженный саунд, стильная атмосфера, оригинальное и запоминающееся звучание, красивый вокал почти в каждом треке – всё вместе звучит очень круто и небанально – как минимум в рамках нашего портала. Настроение во время прослушивания этого микса поднимается на максимум! А это значит, что автор подборки постарался на славу!001. Andrew Spencer - It's A Rainy Day 2021
+002. Carlosh Garzat - Obrigado
+003. Lonnel & Brsg - Alone
+004. Cirrel Sneer - Blue Monday(   Читать дальше...   )Жанр: Pop Dance, ElectropopПродолжительность: 07:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A7B107459FC59C4A74F609F424AF2C59313FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466831   (1018098) от 02.05.2021
+
+VA - Beast Mode Latin (2021) [MP3|320 Kbps] <Pop, Latin, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duki - Chico Estrella (2:50)
+02. Bhavi, Pi’erre Bourne - CINEMA (3:04)
+03. Daddy Yankee - EL PONY (3:32)
+04. Sech - 911 (3:35)(   Читать дальше...   )Жанр: Pop, Latin, OtherПродолжительность: 05:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F138D24F88C6FD9D425E651287F4D328D9F39C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466863   (1018090) от 02.05.2021
 
 VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -542,209 +742,6 @@ VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:227AA6F29E6E9EB9251A6544DFA1EA607F66190F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468945   (1016765) от 10.05.2021
-
-VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скандальный имидж, распущенная и зачастую агрессивная манера исполнения - это всё панк рок! Вам предлагается послушать эту музыку на сборнике под наименованием "Punk Rock Bulldozer". Любителей этого жанра порадуют мощные синтезаторные рифы, брей бит, новаторские аранжировки и вокал их исполнителей.CD 01:
-
-001. Daysworth Fighting - Warm Hands, Warm Heart
-002. 999 - Doctor Nick(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61586CCDAFFF7B41F35E268DE00C7233D6538AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469104   (1016749) от 10.05.2021
-
-VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция транс музыки с наименованием "Top 100 Euphoric Trance", станет Вашим проводником в мир самой актуальной и нестандартной музыки. Пластичные переходы от агрессивного строю к растянутому лаунжу и резкие амплитудные всплески электронной музыки под аккомпанемент пространственного бита, под который тело само стремиться в движение будут с Вами на протяжении (   Читать дальше...   )001. Spyndl - Dark Spaces
-002. Vinny Degeorge - Forza
-003. Genetic - Revelations
-004. DJ Sakin - Dream Of Eternity(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14C713DB0DA9A512CF4C210242D35611ED98B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469078   (1016746) от 10.05.2021
-
-VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ONI - Barn Burner (04:00)
- 02. Interloper - Glasshouse (04:31)
- 03. Monuments - Animus (03:41)
- 04. Fiends - Keep Me in the Dark (06:35)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9686B02628928B86ED36A967D377F2A561D94155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468750   (1016733) от 10.05.2021
-
-VA - Soft Pop Hits 2 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoobastank - The Reason (3:53)
-02. Matchbox Twenty - If You're Gone (4:34)
-03. Macy Gray - I Try (3:51)
-04. Bruno Mars - The Lazy Song (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A1128360FA36296B92BB81634DF70F6F6A8676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469010   (1016718) от 10.05.2021
-
-VA - 30(4) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Hot (DJ Ramirez Mike Temoff Radio Remix) (2:50)
-02. Far East Movement ft. The Cataracs DEV - Like A G6 (DBL Remix) (4:03)
-03. DeepSystem - Dame Locura (Robber DJ Remix) (2:56)
-04. Мэвл - Не бои774ся (Glazur XM Remix) (2:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908D836903E6075BBBDDBBA9B956A7B7E8899AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468974   (1016706) от 10.05.2021
-
-VA - Новички в попсе Vol 8 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MAKF - Все мои здесь (2:56)
-02. Koles, Paha - Звездопад (2:50)
-03. Lima Osta - Без тепла (3:06)
-04. Luverance - Где я (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9908B8F8FEBD8D06E10C75533D0F65716ACCC5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468973   (1016576) от 11.05.2021
-
-TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Юлия Морозова & DJ G-Neo G - Фотообои
-02.Юлия Морозова - Зажигай (Eugene Star Remix)
-03.Юлия Морозова - Всегда с тобой рядом (Eugene Star Remix)
-04.Проект НаЗаре, DJ DimixeR - На Заре 2020 (Extended Mix)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 02:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10BCDD6257044624852C26651AEE0C0999C8427
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1192104   (263523) от 16.12.2017
+
+VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Weekend - That On
+02. Roger Mills - U and I
+03. Mooqee, Beatvandals - Player (Original Mix)
+04. Mutehead - Bee(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 06:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192006   (263498) от 16.12.2017
+
+VA - Electro Rhythms Funky Disco House (2017) [MP3|320 Kbps] <Dance, Funky, Disco House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Phuture Point - The Mission (Wavegrooves Mix)
+002. Dele Sosimi Afrobeat Orchestra - Too Much Information
+003. Frank Vision - My Dad Is Gone (Dolphin Mix)
+004. Osunlade - Envision (Yoruba Soul Mix)(   Читать дальше...   )Жанр: Dance, Funky, Disco HouseПродолжительность: 14:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96916A3D1020FA8AF20EA8F6741C9735869BD8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340613   (263420) от 24.11.2019
+
+VA - Свежий Русский Хит от ALEXnROCK часть 4 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263420.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2019 год. Это 4я часть сборника. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Filatov & Karas — Не Было Никогда
+02. Ольга Бузова — Вот он я (DJ Karimov & DJ Oskar remix)
+03. St Feat. Artik & Asti — Моя Вина
+04. Molly — Красивый Мальчик (Leo Burn Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EFEFB4DAEAB199EEEB959C00A486E4442EC0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192209   (263393) от 16.12.2017
+
+VA - Top 100 Зайцев.Нет Ноябрь (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Slon & Katya feat. Роман Василенко  -  Life Is Good  3:01
+002.  J. Balvin & Willy William  -  Mi Gente  3:09
+003.  Дима Билан  -  Держи  3:41
+004.  Serebro  -  Между нами любовь  3:11(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB62FDF644C27FEB1F7AC12AB45EF203966740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192386   (263245) от 17.12.2017
+
+VA - Zone Remixes - Fundamental Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik - Hold Me (Extended Mix) 7:00
+02. Carl Nicholson & K-Complex - Outta Here (Nicholson & Redrive Remix) 7:36
+03. Ayk - Rumination (Original Mix) 7:12
+04. Vince Schuld - Altered Nature (Extended Mix) 6:55(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFEDD41F2373988F9B6E3FCCD6BBE0E224DAA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192398   (263207) от 17.12.2017
+
+VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alternative, Indie, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect 4:23
+02. Mariah Carey - All I Want For Christmas Is You 3:58
+03. Wham! - Last Christmas 6:49
+04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C03E5E7C265E9A6D6AD6B5F9A920684B6643BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192381   (263199) от 17.12.2017
+
+VA - Record Super Chart #516 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo  -  Momentum  3:28
+02.  EKTONIX  -  Vuono Matyn  2:30
+03.  Alan Walker  -  The Spectre  3:14
+04.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD8A72516D19C90410CE6D58EAA4BD4FA43EF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192354   (263105) от 17.12.2017
 
 VA - 70's Monday Morning Lights (2017) [MP3|320 Kbps] <Rock>
@@ -542,209 +745,6 @@ VA - Amazing Vocal Future Bass 2 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADAE1D5A5967C1DB9F909D9024037FE0B3188C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192890   (262494) от 19.12.2017
-
-VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262494.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electro Beat Orchestra - Make Me Fly (Extended Mix)
-002. EUCARIONTES - Tell Me More (Original Mix)
-003. Achtabahn, Matt Andersen - Ain't No Sunshine
-004. Fly & Sasha Fashion - Wake Me Up (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192996   (262493) от 19.12.2017
-
-VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Click feat. Sting - Running Down Again (Mason Extended Remix) 5:58
-02. A-Mase & Sharliz - I Never Felt So Right (Original Mix) 5:38
-03. Abity - Love Parttern (Original Mix) 7:07
-04. Alex Panchenco, Bogdan Shuvalov - Escobar (Original Mix) 6:24(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE4B9B05F978DDCFDAE82EFDFBD0B1046E9EF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193029   (262482) от 19.12.2017
-
-VA - Amazing Vocal Future Bass 3 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aero Chord & Anuka — Incomplete (4:17)
-02. Anevo feat. Heather Sommer — Can’t Stop (Original Mix) (3:25)
-03. Armin van Buuren & Garibay feat. Olaf Blackwood — I Need You (ANGEMI Extended Remix) (5:00)
-04. Audien + 3LAU feat. Victoria Zaro — Hot Water (YOOKiE Remix) (3:23)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87359491134A5236646604C607933BAD944184D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192983   (262443) от 19.12.2017
-
-VA - Кудесница Осень (2017) [MP3|256-320 Kbps] <Шансон, авторская Песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262443.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Новиков - Девочка-огонь
-002. Группа Братва & Игорь Махачкалинский - За Пацанов
-003. Александр Келеберда - Было В Жизни Все По Масти
-004. Андрей Бандера - Заплутала Моя Душа(   Читать дальше...   )Жанр: Шансон, авторская ПесняПродолжительность: 12:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A390F03284D569C9449ED7E72F0FBB0C4EB2917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192999   (262428) от 19.12.2017
-
-VA - Deep House Collection vol.149 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix) 5:48
-02. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover) 4:17
-03. Abity - Blood Project (Original Mix) 7:33
-04. Ace - Need to Feel Loved (Original Mix) 8:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 14:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7056BB128BD5CF63D270F7EA7798BB8C982E741A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341461   (262351) от 28.11.2019
-
-VA - Green Rave Bass (2019) [MP3|320 Kbps] <Drum And Bass, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devastate - Trust Issues
-02. Didier Lomba - Opening
-03. Prolix - Snake
-04. E Lisa Ft Iffy Palmer - Let Go(   Читать дальше...   )Жанр: Drum And Bass, JungleПродолжительность: 05:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B0E78BB27A814F90A626252C12B871B886F477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341553   (262349) от 28.11.2019
-
-VA - The Taste Of Gold (2019) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262349.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jclarke1880 - Mekhong (Original Mix)
-002. Chiqito - Get Funky (Original Mix)
-003. Traumfabrik - Jack To Jack (Original Mix)
-004. Hokasa Toro - Build Up Drop (A.I. Beats Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 11:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1238EEE677112928ED473B2E20AD4E8982B89941
 ```
 
 https://mybot314.ru/tekegram_catalog/

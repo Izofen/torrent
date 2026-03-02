@@ -1,3 +1,117 @@
+###  Публикация: 1762824   (35962) от 27.11.2024
+
+Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson - Love Never Felt So Good (3:56)
+02. Michael Jackson & Justin Timberlake - Love Never Felt So Good (4:06)Жанр: PopПродолжительность: 00:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2B95F6FB6EA3BB50A313B5572A00E903EEB48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763105   (35749) от 29.11.2024
+
+VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You (3:53)
+002. Bruno Mars - Locked Out of Heaven (3:53)
+003. Coldplay - Viva La Vida (4:02)
+004. Ava Max - Sweet but Psycho (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5269B49211FC46A2851AA29428F204A20CB581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763241   (35630) от 30.11.2024
+
+Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|tracks] <R&B / Soul / Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Definition of Love [00:03:15]
+02. If This Is Love [00:03:26]
+03. Another Life [00:04:31]
+04. Myrrh [00:03:16](   Читать дальше...   )Жанр: R&B / Soul / PopПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE013297F9058F4C79CA2D7A7871383AC0A83C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763252   (35622) от 30.11.2024
+
+Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Music[FLAC|Lossless|WEB-DL|tracks] <Dance pop, Christmas Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mother's Christmas Wish (Reimagined) [00:03:08]
+02. We Three Kings (Reimagined) [00:03:15]
+03. Christmas On The Radio (Reimagined) [00:03:21]
+04. Underneath The Same Sky (Reimagined) [00:02:55](   Читать дальше...   )Жанр: Dance pop, Christmas MusicПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763225   (35614) от 30.11.2024
 
 Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -630,122 +744,6 @@ Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD6701C19A1C013A817ABBE1BA91418E6DA422C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777463   (28469) от 06.02.2025
-
-VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - 24K Magic (3:45)
-02. Pet Shop Boys - Go West (2003 Remaster) (5:04)
-03. Ed Sheeran - Shape of You (3:53)
-04. Madonna - Hung Up (5:36)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390435BADA7DFDF8DDF443FB35F851D21D3FB6D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777464   (28463) от 06.02.2025
-
-VA - Golden Ballads 2003 (2003) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Williams - Feel    [0:04:23.37]
-02. Blue feat. Elton John - Sorry Seems To Be The Hardest Word    [0:03:40.70]
-03. Everything but the Girl - Mirrorball    [0:03:25.00]
-04. Atomic Kitten - No One Loves You    [0:04:00.52](   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40390B659AA5BC0A94D953B27D8B7A2B6685CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777972   (28376) от 07.02.2025
-
-Falco - Ultimate Hits - A New Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Kommissar
-02. Junge Roemer
-03. Rock Me Amadeus
-04. Vienna Calling(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5197BE22BB8CA0C9C3354D617482C947B994E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778000   (28358) от 07.02.2025
-
-VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian Pop, Vocal, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shel Shapiro - Moon River (02:58)
- 02. Bobby Solo - Bla bla bla (04:19)
- 03. Manuela Villa - L' amore e un frutto raro (03:31)
- 04. Donatella Milani - Non gridare (02:54)(   Читать дальше...   )Жанр: Italian Pop, Vocal, Pop RockПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511D4127A0C9ABCB57614ACCB4F546741D157BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

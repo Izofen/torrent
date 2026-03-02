@@ -1,3 +1,206 @@
+###  Публикация: 1189871   (269490) от 07.12.2017
+
+VA - По волне моей памяти 2: Том34 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Жанна Агузарова и Браво  -  Кошки  2:50
+02.  Дюна  -  Коммунальная квартира  3:02
+03.  Несчастный Случай  -  Генералы песчаных карьеров  4:12
+04.  ЧайФ  -  Я рисую на окне  3:47(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613EA4A0EC19C1D17290FBCC44E5D759814BB9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189850   (269486) от 07.12.2017
+
+VA - German TOP100 Single Charts 08.12.2017 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bausa - Was du Liebe nennst
+002. Camila Cabello - Havana (feat. Young Thug)
+003. Ed Sheeran - Perfect
+004. Justin Bieber - Friends(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AC217DAF0384D077B463EC12BFD21E8BC38641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189970   (269466) от 07.12.2017
+
+VA - По волне моей памяти 2: Том37 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Несчастный Случай  -  Что ты имела  4:07
+02.  Чайф  -  Время не ждет  4:32
+03.  Браво  -  Пилот 12-45  2:22
+04.  Любэ  -  Спят курганы темные  3:26(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 01:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA285617748AABEC1FC0686648BB08D1C829D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189927   (269437) от 07.12.2017
+
+VA - По волне моей памяти 2: Том36 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Чиж&C  -  Полонез  6:13
+02.  Браво  -  Лучший город земли  2:54
+03.  Ва-Банкъ  -  Эльдорадо  3:08
+04.  Любэ  -  Скворцы  4:43(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC8BF3C382F41AA56167779FFF90BC871DD455D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189730   (269355) от 07.12.2017
+
+VA - Дискотека Руки Вверх 66 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! - Плачешь в темноте
+02. Serebro - В космосе
+03. Инфинити - Танцуй
+04. Hello - Чёрти чё(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7947C3DC5AAC798939631CEA8AD9F2946B9622B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189805   (269353) от 07.12.2017
+
+VA - Music Magic - 100 Classical Works (2015) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bach - Brandenburg Concerto #2 In F, BWV 1047 - 3. Allegro Assai
+02. Charpentier (MA) - Te Deum In D, H 146 - Fanfare
+03. Radovan Vlatkovic (horn);English Chamber Orchestra;Jeffrey Tate (conductor)Mozart Horn Concerto No. 4 - II Romanza Andante
+04. Grieg - Peer Gynt - Prelude To Act 4 (Morning)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EAC36ABFEFCC034851B2A259323ECBC200F12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189798   (269328) от 07.12.2017
+
+VA - Melody Instrumental Classic (2017) [MP3|320 Kbps] <Instrumental Classic, Neo Classic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elo - Another heart breaks 3:46
+002. Azyl Y Negro - Isadora 4:03
+003. Vangelis - Love theme 4:56
+004. Goran Bregovic - Old home movie 5:06(   Читать дальше...   )Жанр: Instrumental Classic, Neo ClassicПродолжительность: 09:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5340F2C2EC0548DE3EEDD18D75380544521172B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190188   (268889) от 08.12.2017
 
 VA - Underwater Dance: 130 Downtempo Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -542,206 +745,6 @@ VA - Зайцев.нет Лучшие новинки Ноября (2019) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:784579ED1C64BBF7D26A08334C6D4E8A0BAAC836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266992   (267897) от 05.12.2018
-
-VA - Beatspot Winter '18 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo Boy — Obsession (Original Mix)
-02. Johanna Lopez — Feels Like Heaven (Teddy Brown Remix)
-03. Patrick Richmond — Deceiver (Dub Mix)
-04. John Blame — Back in Town (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5516D40F4E7236CB536C082EA7F4D5391EDCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338780   (267680) от 17.11.2019
-
-VA - Radio DFM: Top D-Chart (15.11) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey (Remix) 3:33
-02. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-03. Audiosoulz - Dancefloor 3:13
-04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863447D05E91C75D4BD0504E2C822FA9AB499C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190369   (267665) от 09.12.2017
-
-VA - Clubland House: The Diamond Edition (2017) [MP3|320 Kbps] <Electro, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267665.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Versus 5 - Locked (Original Mix)
-002. TimeKube - Sordid (Original Mix)
-003. Antrim - Niger Mulier
-004. Save The Rave - Drugstore (Original Mix)(   Читать дальше...   )Жанр: Electro, Progressive HouseПродолжительность: 08:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F249EB8E411C31D43C7C518AF8FA4E345BE3141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 108400   (267426) от 05.12.2018
-
-Дживан Гаспарян и др. - Armenian Duduk (2006) [MP3|192 kbps]<Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267426.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Djivan Gasparyan - Soorp Soorp (Holy, Holy) (5:17)
-          2. Ludvik Garibian - Strange and empty (4:28)
-          3. Ludvik Garibian - The call of the shipherd (3:37)
-          4. Ludvik Garibian - The world is a window (3:56)(   Читать дальше...   )Жанр: FolkПродолжительность: 03:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B615103484DBC8D10DFE9EF7CF847AA77794F6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172628   (267270) от 05.12.2018
-
-VA - Мировые инструментальные хиты. Тома 101 - 150 (2009) [MP3|320 kbps]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами сборник лучшей инструментальной музыки. Тут собраны хиты всех времён и народов. Для тех, кто любит инструментальную музыку - коллекция Мировые инструментальные хиты придется как раз по вкусу.Жанр: InstrumentalПродолжительность: 67:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6DE7D7F63A6C09080A388571E57C5A27169CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190549   (267131) от 10.12.2017
-
-VA - Project Deep House: Sky Flower Mixtape (2017) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267131.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Derek Christopher - Mojave (Original Mix)
-002. Ajda Pekkan - Hayk?racak Nefesim (Ali Arsan Rework)
-003. Discoplex - Losing My Mind (Original Mix)
-004. DJ Unprotected - Midnight Lover (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFF2006A1435596F6E8FC24FC8E9C405A20A440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190570   (267104) от 10.12.2017
-
-VA - The Official UK Top 40 Singles Chart 08.12.2017 [MP3|320 Kbps] <Alternative, Indie, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect 4:23
-02. Rak-Su Feat. Wyclef Jean & Naughty Boy - Dimelo (X Factor Recording) 3:02
-03. Rita Ora - Anywhere 3:35
-04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF75CCAFF88AD80B65341A928A7EF6BBCFBF6521
 ```
 
 https://mybot314.ru/tekegram_catalog/

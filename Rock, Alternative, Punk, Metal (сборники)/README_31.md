@@ -1,3 +1,32 @@
+###  Публикация: 1413982   (406811) от 06.10.2020
+
+VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Disembodied - Burning Cupid
+002. Simbiose - Realidade
+003. Diploid - Dissolve Myself
+004. Skullcrack - What Did You Expect(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 09:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC07ED411AFC28BDB98042EEFF0D8D8098F738E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413904   (406726) от 06.10.2020
 
 VA - Rock And Roll: British Classic Style (2020) [MP3|320 Kbps] <Rock & Roll, Classic Rock>
@@ -719,35 +748,6 @@ VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CCB8D9C2C2D419575EC22DC452C7FAA6F875FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459570   (365485) от 28.10.2015
-
-VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24 Black - All She Wrote
-02. System of a down - Attack
-03. Scars On Broadway - Babylon
-04. Ill Nino - This Is War(   Читать дальше...   )Жанр: Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk RockПродолжительность: 03:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F792E7D36FCAED26D09A0C725FC6A314E0F302FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

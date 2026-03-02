@@ -1,73 +1,3 @@
-###  Публикация: 599590   (998593) от 09.01.2013
-
-New Order - Lost Sirens (2013) [MP3|~201 кб/с (V1)]<New Wave / Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. I'll Stay with You (4.22)
-2. Sugarcane (4.47)
-3. Recoil (5.08)
-4. Californian Grass (4.38)
-5. Hellbent (4.28)
-6. Shake it Up (5.21)
-7. I've Got a Feeling (4.29)
-8. I Told You So (5.05)
-
-8 ранее не выпущенных треков с альбома Waiting for the Sirens' Call.Жанр: New Wave / Post-PunkПродолжительность: 38:22 min
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FD4543565DDD9C533F98622A105770FFD70B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601220   (998338) от 10.01.2013
-
-Prime Circle - Evidence (2012) [MP3|320 кб/с]<Alt.Rock | Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Evidence
-3. Change
-4. Time Kills Us All
-5. Answers
-6. Know you Better
-7. King for a Day
-8. Room of Ghosts
-9. Staring at Satellites
-10. Only Way Out(   Читать дальше...   )Жанр: Alt.Rock | Modern RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB1C2AAE612AC7FED1EDE68F19148809549EF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602511   (997597) от 13.01.2013
 
 MadLove - White With Foam (2009) [MP3|~245 кб/с (V0)]<Alternative Rock>
@@ -397,76 +327,6 @@ Everything Everything - Arc (2013) [MP3|320 кб/с]<Indie-Rock, Indie-Pop, Expe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB740502B1BD782E5A7763084D2E5D7EAA5FC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604572   (996041) от 18.01.2013
-
-Dropkick Murphys - Signed And Sealed In Blood (2013) [MP3|320 kbps] <Alternative, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys Are Back (03:20)
-02. Prisoner's Song (02:47)
-03. Rose Tattoo (05:06)
-04. Burn (02:39)
-05. Jimmy Collins' Wake (02:59)
-06. The Season's Upon Us (04:02)
-07. The Battle Rages On (02:17)
-08. Don't Tear Us Apart (03:01)
-09. My Hero (03:10)
-10. Out On The Town (03:02)(   Читать дальше...   )Жанр: Alternative & PunkПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61863EC4819F159E915FC36EB3C1E215E2B8B22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603751   (995828) от 19.01.2013
-
-Bad Religion - True North (2013) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. True North
-2. Past is Dead
-3. Robin Hood in Reverse
-4. Land of Endless Greed
-5. Fuck You
-6. Dharma and the Bomb
-7. Hello Cruel World
-8. Vanity
-9. In Their Hearts is Right
-10. Crisis Time(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -848,34 +708,162 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 162449   (990998) от 02.01.2010
+###  Публикация: 610725   (989221) от 30.01.2013
 
-Slam-428 - 17 Единиц Душевного Взрыва (2009) [MP3|128 kbps]<Alternative>
+Mogwai - Les Revenants (2013) [MP3|320 кб/с]<Post-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. intro
-02. для тебя
-03. другая жизнь (акустика)
-04. депрессия
-05. прыгай вниз… (caver)
-06. индустрия мира
-07. ты оставляешь многоточия…
-08. догмы существования
-09. interlude
-10. больше, чем жизнь(   Дальше...)Жанр: Alternative
+01. Hungry Face 02:24
+02. Jaguar 02:19
+03. The Huts 04:02
+04. Kill Jester 03:29
+05. This Messiah Needs Watching 04:37
+06. Whisky Time 01:39
+07. Special N 03:49
+08. Relative Hysteria 03:40
+09. Fridge Magic 03:22
+10. Portugal 04:01(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:50:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0B82645F6FB36FA919F579C7B6FF7AE7C52B3735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354758   (987016) от 23.01.2020
+
+Breaking Benjamin - Aurora (2020) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987016.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Cold (Aurora Version)
+2. Failure (Aurora Version)
+3. Far Away
+4. Angels Fall (Aurora Version)(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C003730DE485422A45E843F8FBB8B7E4C6EC23C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612688   (986099) от 02.02.2013
+
+Local Natives - Hummingbird (Deluxe Edition) (2013) [MP3|320 кб/с]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You & I [04:22]
+2. Heavy Feet [04:07]
+3. Ceilings [02:56]
+4. Black Spot [04:41]
+5. Breakers [04:09]
+6. Three Months [04:30]
+7. Black Balloons [03:08]
+8. Wooly Mammoth [03:27]
+9. Mt. Washington [03:19]
+10. Colombia [04:50](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5BF24540748D91F3D87770EF5A3B1E1167D57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613323   (984433) от 03.02.2013
+
+Message Through Motion - Earthshaker (2013) [MP3|320 кб/с]<Alt.Rock / Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veins (3:15)
+02. Born to Breathe (3:13)
+03. Ecclesia (3:13)
+04. Panic (4:23)
+05. Only Love (3:31)
+06. Selah (2:21)
+07. Walk on Water (3:23)
+08. Fearless Fire (3:25)
+09. Earthshaker (3:11)
+10. I Am (3:23)(   Читать дальше...   )Жанр: Alt.Rock / Post-HardcoreПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E241C34A680BA7ED1A68933E06EE3A70A2D92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972724   (981861) от 06.01.2016
+
+Thousand Foot Krutch - Oxygen: Inhale (2014) [MP3|320 кб/с] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Machine
+02. Untraveled Road
+03. Born This Way
+04. Set Me on Fire(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60924A2C1E896157F9FD26F1A90934EEF638CA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

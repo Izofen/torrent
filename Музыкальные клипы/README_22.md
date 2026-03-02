@@ -1,26 +1,22 @@
-###  Публикация: 1034797   (629931) от 15.07.2016
+###  Публикация: 550366   (458365) от 22.09.2012
 
-Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
+Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629931.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
-Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
-Alan Walker - Sing Me To Sleep
-Sigala ft. Imani & DJ Fresh - Say You Do
-Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
+Жанр: DanceПродолжительность: 00:03:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
+magnet:?xt=urn:btih:BF6BC7560FDA7E1AACD5C6BC7F0AC48BE6DC1659
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,28 +24,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293943   (629620) от 07.04.2019
+###  Публикация: 388575   (458069) от 17.09.2011
 
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+Legends Disco Star-80 (2009) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629620.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
-01. Guns N' Roses - You Could Be Mine
-02. Kingdom Come - Should I
-03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
+Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
+хркъSandra:
+Maria Magdalena
+The Night is Still Young
+ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
+magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,25 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 682031   (628610) от 24.07.2013
+###  Публикация: 1321667   (456447) от 25.08.2019
 
-Chicane - Saltwater (2000) WEB-DLRip
+Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628610.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:37
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
+01. La Bouche - Be My Lover
+02. Backstreet Boys - Everybody
+03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
+magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,25 +83,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 682059   (628542) от 24.07.2013
+###  Публикация: 694859   (456154) от 27.09.2013
 
-David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
+LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628542.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
+Маргарэт Лиэнн Раймс (Margaret LeAnn Rimes, род. 28 августа 1982 года) — американская исполнительница в стиле кантри, которая известна тем, что начала серьёзную музыкальную карьеру уже в 11 лет, а в 14 лет выиграла свою первую «Грэмми».
+Трек - (Не Можешь Биться с Лунным светом), саунтрек к фильму «Бар „Гадкий койот“»Жанр: PopПродолжительность: 00:03:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
+magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 682051   (628538) от 24.07.2013
+###  Публикация: 389049   (456112) от 18.09.2011
 
-David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
+ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628538.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
+“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
+magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,394 +136,39 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034983   (628296) от 16.07.2016
+###  Публикация: 550793   (455017) от 23.09.2012
 
-Сборник - Bollywood Summermix (2016) BDRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний сборник клипов из индийских фильмов01. Bajirao Mastani (Priyanka Chopra)
-02. Bahubali (Tamanna Bhatia)
-03. Krishnam Vande Jagadgurum
-04. Arinthum Ariyamalum (Sameksha)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан, Каджол, Варун Дхаван, Крити Санон и др.Перевод: ОтсутствуетПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682205   (626553) от 25.07.2013
-
-TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
+Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626553.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TV Rock ft Rudy - 'In The Air' (Axwell Remix Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD421C610E6F4DD6353911FCB38464DBA4E377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682204   (626153) от 25.07.2013
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (HD)Жанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAFAF352FB7AC80F5C204F0BD52AAE305377F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682206   (626007) от 25.07.2013
-
-William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626007.jpg" />
-</div>
-
-
-###  Подробнее
-
-William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198AF6FBEBE876527FFD9E4A2F3BCE48E29E324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521994   (624673) от 12.07.2012
-
-Сборник Советской Эстрады №3 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE4C67E60310F3F38423B7E80ABC788D0DE5CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682098   (624633) от 26.07.2013
-
-Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Angello & Laidback Luke Ft Robin S - Show me LoveЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C656AB3549EAA1867C46FF0D2772F176F9684F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521923   (624409) от 12.07.2012
-
-Сборник Советской Эстрады №2 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1967EA70ED57E64F5E711E26ECD96708E2DED495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521918   (624405) от 12.07.2012
-
-Сборник Советской Эстрады №1 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8796FB1C3C372D6F6C5ACB566BD106877B3B36F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682105   (624359) от 26.07.2013
-
-Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swedish House Mafia - Miami 2 Ibiza ft. Tinie TempahЖанр: DanceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E3F729D37ED0005C33A5BD00D5C0CDF7879D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682117   (624088) от 26.07.2013
-
-Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin Van Buuren Ft. Sharon Den Adel HD - In And Out Of LoveЖанр: DanceПеревод: ОтсутствуетПродолжительность: 00:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3505C2DD6D60DC7787EE61FCB9D2D8BB5E5A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522632   (620979) от 14.07.2012
-
-Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РокПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BA7D32490D6353D3AB02066D62C0D26C9C3039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522370   (620697) от 14.07.2012
-
-Сборник Советской Эстрады №4 (2011) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E454A2DE7084B9497018EBB461C112C9443A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522791   (620260) от 14.07.2012
-
-Сборник Советской Эстрады №5 (2012) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99C85641E560177A0414DFE573805114DAEEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523226   (619227) от 15.07.2012
-
-Gia. Lights Out (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC88D61856C6F2931B1DBAAC223998A9FC3FB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523704   (616473) от 16.07.2012
-
-Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеография группы Girls' Generation (SNSD)
+На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
+  - Beat-Club
+  - Musikladen
+  - Disco
+  - Top Of The Pops
+(в хорошем качестве VH1)Slade 71-82
 
-Girls' Generation (аббревиатура So Nyeo Shi Dae - SNSD)- корейская группа которая состоит из девяти девушек: Лим Юна (Lim Yoona), Стефани Хвон (Tiffany), Квон Юри (Kwon Yuri), Ким Хёён (Kim Hyoyeon), Чхве Суён (Choi Sooyoung), Сэ Чжихён (Сэхён (Seo Juhyun (Seohyun))), Ким Тэён (Kim Taeyeon), Джессика Чон (Jessica Jung), (   Читать дальше...   )Жанр: POP (kpop)Перевод: ОригинальныйСубтитры: Корейские, Японские, Китайские, Английские (вконверчены в некоторые файлы)
+1. Get Down And Get With It (promo) (1971)
+2. Coz I Luv You (Top Of The Pops, 1971)
+3. Hear Me Calling (Beat-Club, 28.11.71)
+4. Look Wot You Dun (promo) (1972)
+5. Mama Weer All Crazee Now (Disco, 09.12.72)
+6. Gudbye T’Jane (TOPPOP, 1972)
+7. Bangin’ Man (Disco, 26.10.74)
+8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94D1FD9FD137642EA1B2990849A1716C6CE45179
+magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,57 +176,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 410381   (616151) от 16.07.2012
+###  Публикация: 389409   (453773) от 19.09.2011
 
-Girls' Generation (SNSD) - Music video collection. Part 1 (2007-2012)
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обалденный концерт!Жанр: KPopПеревод: ОригинальныйСубтитры: Корейские, Английские
-
-Dvd, который прилагается к первому фотоальбому группыФормат: DVD videoПродолжительность: 3:29:48 (1:28:48+1:18:47+0:42:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254713F0F4D1FCD55F161B5294D57B858A2EB4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146627   (614320) от 29.06.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 2) (2017) WEB-DLRip [H.264/720p-LQ]
+Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614320.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Вторая часть этой серии также посвящена музыке в стиле Rock Ballads, Reggae и R&B. Композиции этих стилей составляют данный сборник. Садитесь поудобней, расслабьтесь и наслаждайтесь спокойной и приятной музыкой 90-х!
-- Разбивка по трекам отсутствует.Savage Garden – Truly Madly Deeply
-Katrina & the Waves - Love Shine A Light
-Bob Marley ft. Lauryn Hill – Turn Your Lights Down Low
-Michael Jackson – Will You Be There(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:12
+Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37333C5D962095B14E865D2670C6BEBCB2475106
+magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,30 +202,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 685718   (609434) от 03.08.2013
+###  Публикация: 389423   (453750) от 19.09.2011
 
-Сборник клипов - Philizz Videomix "Sunshine-Mexilum" (2013) BDRip [720p]
+Миша Маваши - Помнить должен (2011) [720p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609434.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед вами очередной третий сборник видеоклипов "Sunshine"
-от голландского ви-джея Philizz. В качестве дополнительного
-бонуса - минимикс "Mexilum" (Philizz ft. MM²).01. Austin Mahone – What About Love
-02. Major Lazer ft. Busy Signal – Watch Out For This
-03. Stromae – Papaoutai
-04. Nelly – Hey Porsche(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: ~01:25:12
+Жанр: МузыкаРежиссер: Миша МавашиАктеры: Миша МавашиПродолжительность: 00:03:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED1BF441C2E9EE96C557D37C477F94B193B65B14
+magnet:?xt=urn:btih:B0001AE56E6F55B2FD71870EEA9D2247AB3921D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,25 +228,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 525321   (607502) от 21.07.2012
+###  Публикация: 551393   (453457) от 24.09.2012
 
-Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
+Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607502.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: HouseПродолжительность: 00:05:37
+Жанр: Pop, DanceПродолжительность: 00:04:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB1AFC183DE74A2C2F3B88C53FBAE6A3714FAC98
+magnet:?xt=urn:btih:3D736EF05D0FA48817BF1443B358D8F602FF5644
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,29 +254,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547041   (603798) от 26.04.2022
+###  Публикация: 551385   (453324) от 24.09.2012
 
-Музыка для души (2022) WEBRip [H.264/1080p]
+Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603798.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любимые песни и хиты, которые можно включить для фона и погрузиться в гармонию.
-Приятного просмотра.00:00 - Artik & Asti - Любовь после тебя
-03:52 - Мари Краймбрери ft. Звонкий - Как дела, малыш?
-06:09 - Ханна ft. Миша Марвин - Убью тебя
-08:34 - IOWA - В танце(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:33
+Жанр: DubStepПродолжительность: 00:03:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:140F60377362B70EC49B5BD23BF3151672C23FF9
+magnet:?xt=urn:btih:1DB504065C09E284A569DEB9588DC5E1893F3536
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,28 +280,421 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149003   (602399) от 09.07.2017
+###  Публикация: 551388   (453319) от 24.09.2012
 
-Сборник клипов - Philizz "Back To The 90s" (episode 3) (2017) WEB-DLRip [H.264/720p-LQ]
+Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602399.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Третья часть серии видеомиксов, основа которых - популярные клипы легендарных 90-х. Немного ускоряем темп. К уже привычным по первым двум сериям клипам в стилях  Rock Ballads, Reggae и R&B добавляется не менее любимый всеми стиль Eurodance!  И вновь Philizz предлагает (   Читать дальше...   )Ace of Base – All That She Wants
-Robyn – Show Me Love
-Texas – Say What You Want
-Steps - Say You'll be mine(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:21
+Жанр: PopПродолжительность: 00:03:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A8B5C970CDE2A47DB4E454D2387D559A347A022
+magnet:?xt=urn:btih:7E9FD177EE015E37D8B471FF1BA7C4CD3C54056F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551375   (453317) от 24.09.2012
+
+Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF37E63A28282B455859465B1D91157CC07907D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551378   (453120) от 24.09.2012
+
+Booba - Caramel (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-HopПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F639A9DB86D19E1C2F114F96149EE5EEDCDF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551840   (451422) от 25.09.2012
+
+Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69685E22BD73416FC7763E257CD5FF611A63DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390016   (451413) от 20.09.2011
+
+C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов популярной и легендарной певицы 80-х, 90-х  C.C.Catch.Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49950984D61DF6AAC0EDE5DD5D20714279470836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551839   (451408) от 25.09.2012
+
+Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9C9E62A2AA1B1AA402B0CCCE0588F40F1728A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942906   (451364) от 02.10.2015
+
+VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 02 октября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе использованы официальные видеоролики.01. Justin Bieber - What Do You Mean  (4:58)
+03. R. City - Locked Away ft. Adam Levine  (4:25)
+04. Calvin Harris & Disciples - How Deep Is Your Love  (4:21)
+05. The Weeknd - Can t Feel My Face  (3:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD40758EADD23E0671FFDD593EFFF1ABB53EEA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551914   (448413) от 26.09.2012
+
+Cinnamon Chasers (2009-2011) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B412144D340C5E69A01ECA5EA823799774CABE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552162   (448163) от 26.09.2012
+
+Альборада Дель Инка / Alborada Del Inka - Восход Инков (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивая этническая музыка на фоне природы запада Южной Америки (Перу). Приятно как посмотреть так и просто пустить фоном. Ребята весьма талантливы!Жанр: Folk/Panflute/InstrumentalПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390809   (446661) от 22.09.2011
+
+Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D6EF8360E953AF7C9E6C62AF3BC0820146EB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552688   (446413) от 27.09.2012
+
+Barillo - Dust (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553018   (446222) от 27.09.2012
+
+KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031211E2AB7E8D94BEAE1982DB6A21B7FDF1456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553019   (446087) от 27.09.2012
+
+Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA4FA48620A6AC17FBBB2049B8BD9D893094716E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552689   (445770) от 27.09.2012
+
+Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F40B0B5C6BE4DA9C8C6DA52BFB1225C4087A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552894   (445677) от 27.09.2012
+
+Свит / The Sweet-Video Collection 1971-1980 (2CD) (2008) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445677.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом видео наиболее полная видео коллекция The Sweet -кумиров 70х (видео и звук разный по качеству (разных лет съемки) но в основном все достойно.)Жанр: Музыка, Glam RockПеревод: ОтсутствуетПродолжительность: 01:08:02+01:14:42.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC4C4FCD8354363394909911BAA79E1775CB5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943852   (444752) от 05.10.2015
+
+VA - Осенний марафон № 195 / Видеоклипы (Зарубежный Хит Парад) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (04.10.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A. Rose Jackson - Lover's Collide (Official Video) (00:02:50)
+2. Ailee - Mind Your Own Business (Official Video) (00:04:20)
+3. Alex Adair - Heaven (Official Video) (00:03:07)
+4. Amfree - The Sweetest Symphony (Official Video) (00:03:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, Indie, RockПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC266122BC11B7D4446EBB9AA962E28AF45D6D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

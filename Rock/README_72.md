@@ -1,3 +1,61 @@
+###  Публикация: 1336429   (274875) от 10.11.2019
+
+Иннокентий 3D - Дурные Звуки (2019) EP, Авторская раздача [MP3|320 Kbps] <Indie Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Голактеко опасносте
+02. Трус
+03. Батя любит план
+04. Нам не жальЖанр: Indie Rock, Electronic RockПродолжительность: 00:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60AA4AA6009D13DD79478DFFD7A425EC13B80F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083307   (274725) от 15.12.2016
+
+VA - Air Guitar Anthems (2016) 3CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274725.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Queen – Bohemian Rhapsody
+2. Led Zeppelin – Whole Lotta Love
+3. The Rolling Stones – Start Me Up(   Читать дальше...   )Жанр: RockПродолжительность: 03:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10D950580B44F4E550186D244F6254F2B44DBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083756   (273777) от 16.12.2016
 
 The Red Button - Can't Stop Thinking About Her (2007) [MP3|320 Kbps] <Brit Pop, Beat Rock>
@@ -696,70 +754,6 @@ Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838561   (260671) от 23.11.2025
-
-Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Back The Night [00:03:38]
-02. Lies [00:03:52]
-03. Never Let It Go [00:03:26]
-04. Too Far Gone [00:04:14](   Читать дальше...   )Жанр: AOR, Arena-RockПродолжительность: 00.45.23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B96AAEBAD6D62B17C9F4EB2D5DCB4E9D0E63258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504664   (260515) от 02.06.2012
-
-Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260515.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: RockПродолжительность: 01:19:15
- 01. Twice In A Lifetime [0:03:02.28]
- 02. Famous Groupies [0:03:35.40]
- 03. Wild Life [0:06:41.60]
- 04. Heaven on a Sunday [0:04:28.67]
- 05. Hi, Hi, Hi [0:03:08.28]
- 06. It's Not True [0:05:53.00]
- 07. Must Do Something About It [0:03:43.48]
- 08. Press [0:04:42.65]
- 09. Pretty Little Head [0:05:13.52](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 609484   (990828) от 28.01.2013
+###  Публикация: 613426   (981297) от 05.02.2013
 
-Лучшие клипы / The best videos of all time (New Age, Electronic, Ambient) H.264 (2012) DVDRip
+Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990828.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Power Of Melody - Planet Enigma
-02. Power Of Melody - The Poisoned Planet
-03. Radio Silence - Immortality
-04. Strannik - Indian Dreams(   Читать дальше...   )Жанр: Музыка, New Age, Electronic, Ambient, SpaceПродолжительность: 01:49:07
+Жанр: PopПродолжительность: 00:02:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEF6F6688CB660F7165FFE0575C5F6E6B81251BB
+magnet:?xt=urn:btih:8336C235BB66D421489CBD1E7DF463A872F79CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,322 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609764   (990818) от 28.01.2013
+###  Публикация: 613051   (981079) от 05.02.2013
 
-Лучшие видеоклипы - Клипы в навал. Vol.03 (2013) HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: ВидеоклипыПродолжительность: 10 x ~00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D231DC34C5C3E65A23DEA145C61530970135421B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610335   (990343) от 29.01.2013
-
-Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
+Stars Of The 90'S (2004-2006) [H.264] DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990343.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380F156AF6B948AAA28F3860CCDADAA9DEB5CBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610096   (990253) от 29.01.2013
-
-Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A33350E750631491706C09F88B90D6E6398A9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610082   (990225) от 29.01.2013
-
-Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78642697EB3FDDEC279B1E2C2CC19DE951DD2B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610263   (990073) от 29.01.2013
-
-Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69B99EEF19938C5562DA4292E5E6E1BFBAF309E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432376   (989934) от 07.01.2012
-
-Fat Cat - Is Being Pretty Everything (2012) WEB-DLRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Fat Cat (살찐고양이) - только-только восходящаая звёздочка корейского шоу-бизнеса.
-Настоящее имя Ким Со Ён, родилась 14 марта 1990 года. Дебютировала 24 сентября 2011 года.
-Это уже её второй сингл.
-Клип выковырян мною собственноручно с YouTube. В оригинальном качестве транслируется на официальном канале  LOENENT (LOEN Entertainment)Режиссер: N/AАктеры: Ким Со ЁнПеревод: ОтсутствуетПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED9C4CE470AE34C654C401B435071C9BDE99691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610865   (989230) от 30.01.2013
-
-BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F5B74880FAF7514FB816B934E46B36BC256EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433116   (989122) от 08.01.2012
-
-KARA - Step [1080p] (2011) HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Последний на данный момент клип этого музыкального коллектива. Все его очень ждали, надеялись, но как обычно обломались. Клип  оказался без истории. Но, зато, очень яркий и праздничный. Плюс ко всему симпатичные девушки. Если вы фанат группы KARA, то качать в обязательном порядке. Если нет, то тоже можете скачать, ибо ничего не потеряете. Песенка ритмичная, краски яркие и живые, качество видео хорошее, девочки красивые. Что ещё надо?Режиссер: N/AАктеры: Пак Кюри, Хан Сынён, Ку Хара, Николь, Кан ДжиёнПеревод: ОтсутствуетПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4D3B50656E4BEE40C8F6703136CDCA2E72FB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433006   (988902) от 08.01.2012
-
-Mylene Farmer / Lonely Lisa (2011) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Mylene Farmer - Lonely Lisa в HD качестве.
-Mylene Farmer clip Lonely Lisa from M6 HD channel(France)Жанр: МузыкаРежиссер: Рой Раз (Roy Raz)Актеры: n/aПеревод: ОтсутствуетПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C562DDFCEDDCC5375C965BCCC8971155FEDB8152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351791   (988865) от 21.01.2020
-
-Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклипы Lindemann (2015-2019)
-2015 -  Lindemann - Fish On (00:05:17)
-2015 -  Lindemann - Praise Abort (00:05:13)
-2018 -  Lindemann - Mathematik ft. Haftbefehl (00:04:06)(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FE287C3553A80C3AAC43C461FAF655DD97F39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611833   (988023) от 31.01.2013
-
-Antonia - Marabou (2013) HD
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Официальный клип на песню Марабу популярной румынской певицы Антонии.Жанр: PopПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA7E21CE4F31CEDCE9A9E58B792517045D8DDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433449   (987752) от 09.01.2012
-
-Mylene Farmer -Du Temps (2011) WEB-DLrip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-новый клип Mylene Farmer (так он позиционируется на официальном сайте певицы)
+Vol.1:
 
-от себя:
-Качество HD картинки не идеально но это пока лучшее что смог найти.
-Часть кадров отснято в России.Жанр: POPАктеры: Милен  Фармер/Mylene FarmerПеревод: ОтсутствуетПродолжительность: 00:03:35
+01. HADDAWAY - What Is Love
+ 02. DR ALBAN - It's My life
+ 03 SNAP! - Rhythm Is A Dancer
+ 04.CULTURE BEAT - Mr. Vain
+ 05.JOHN SCATMAN - Scatman
+ 06. EIFFEL 65 - Blue (Da Ba Dee)
+ 07. NO MERCY - Where Do You Go
+ 08. LA BOUCHE - Be My Lover(   Читать дальше...   )Жанр: Музыка - EurodanceПродолжительность: vol.1: 01:33:13,
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D66E37E9277B4BE64F646E7A4C9CC2DDA377800
+magnet:?xt=urn:btih:D31F8F0128B780423D3482ABA4B25A37BC593166
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,25 +59,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610556   (987256) от 01.02.2013
+###  Публикация: 612926   (981023) от 05.02.2013
 
-Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
+Овечка Долли / Holly Dolly clips (2009) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987256.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Rap, Hip-hop, R'n'BПродолжительность: 00:03:44
+Отличных два весёленьких клипа смешной и озорной овечки Долли, улыбнитесь!01. Dolly Song
+02. Don't Worry Be HappyЖанр: Музыка, Pop, DanceПродолжительность: 00:06:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6455DEE0B3112A84A9D00D44A8E55ECF742226C
+magnet:?xt=urn:btih:14D91C971994C314023F9A7BDD45FA71EC459857
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,29 +86,516 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 162586   (987223) от 06.01.2010
+###  Публикация: 436699   (980082) от 15.01.2012
 
-Михаил Круг - 21 Музыкальный клип (2005) DVDRip
+Сборник клипов - VA - Various Music part. 2 (2011) WEBRip [H.264/720p-LQ/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Редкие концертные записи.
+Жанр: Rap, Dance, Pop, Trance, House, RockПродолжительность: ~02:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C950FE1CAD8C428959E5D060B1726F4FC1B6F306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436676   (980079) от 15.01.2012
+
+Сборник клипов - VA - Various Music (2010-2011) WEBRip [H.264/720p-LQ/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: ~03:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376BD0C777FC17330754DAB97A03895ECB047F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615031   (978774) от 07.02.2013
+
+Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nelly Furtado - Waiting For The NightЖанр: МузыкаРежиссер: Nelly FurtadoАктеры: Nelly FurtadoПеревод: ОтсутствуетПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361C7D82EB97D8B94A8C20E9D060CEBC70D01DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437633   (977475) от 17.01.2012
+
+Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRip, HDRip, WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Поп-музыка
+Продолжительность: 01:14:32Формат: AVI, MKV, MP4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0EE60B59A2D00B0978C5DBB59F0B3741958952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355798   (976658) от 01.02.2020
+
+Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ] <Math-Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976658.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 Architects-In_The_Desert-x264-2006-SRP [608 x 344].mkv
+2007 Architects - You'll Find Safety (Dir by Perrone Salvatore - Xavy) [1280 x 720].mp4
+2007 Architects-Buried_At_Sea-x264-2007-SRP [704 x 456].mkv
+2008 Architects - We're All Alone (Final Version) (By Ryan Mackfall) [640 x 360 ].mkv(   Читать дальше...   )Производство: Century MediaЖанр: Math-MetalcoreПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC0F67EE6D4611A04F8A3BAA03CD4B93671D9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355787   (976574) от 01.02.2020
+
+Вадим Самойлов - 15 Music Videos (2012-2019) WEB-DL [H.264/480p/720p/1080p-LQ] <Alternative Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976574.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Звездочёт [656 x 480].mkv
+2012 - Никогда [854 x 468].mp4
+2012 - Чёрная луна [656 x 480].mkv
+2015 - Алхимик [1280 x 720].mp4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38DFC791554417963EFDA76708AB0B5CF98A82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974574   (975575) от 12.01.2016
+
+VA - Зимний марафон № 218: Зимняя волна новинок (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (11.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Amna ft. Robert Toma - In oglinda (Marc Rayen and Electric Pulse Remix) (Official Video) (00:03:31)
+02. Bahh Tee - Взрослеем (С днём рождения) (Премьера!) (00:03:53)
+03. Cardiknox - On My Way (Official Video) (00:04:09)
+04. Cee Jay ft Laurish - Ar Dae Wonder (Official Video) (00:04:19)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D452665C4A2943974F06C4120C9A47CD6D2570E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356783   (975530) от 02.02.2020
+
+U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/480p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый DVD группы U-ka saegusa IN db, содержит коллекцию клипов и запись двух живых выступлений.
 
-Концерты:
-- Первые видеоклипы Михаила Круга
-- Юбилейный концерт в Тверском цирке
-- Выступление на Музыкальном ринге
-- Выступлении на фестивале "Звездная пурга"
-- Казино "Golden Palace"
-- Дискотеке "Мастер"Жанр: Шансон, музыкальные клипыПеревод: ОригинальныйПродолжительность: 01:26:25
+Источник: лицензионный DVD5VIDEO CLIPПроизводство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8828D1AAC427B78C977F18CEB6CB8E4CB1D7E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354843   (975453) от 02.02.2020
+
+Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <Death Metal, Black Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975453.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 Behemoth - Lucifer (Uncensored) (1280 x 720).mp4
+2019 Behemoth - Bartzabel (1920 x 1080).mkv
+2019 Behemoth - Sabbath Mater (2560 x 1440).mkv
+2019 Behemoth - Wolves Ov Siberia (Radio 1 Session) (1920 x 1080).mkv(   Читать дальше...   )Жанр: MetalПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CF6D6ADC1892DC95DE91088E1FFCA820422CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616196   (974857) от 10.02.2013
+
+Гэри Мур / Gary Moore - Ballads & Blues 1982-1994 (1994) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие баллады великого виртуоза....01. Always Gonna Love You
+02. Still Got the Blues
+03. Empty Rooms
+04. Parisienne Walkways (live 1992)
+05. Separate Ways
+06. Story of the Blues
+07. Midnight Blues (live 1990)
+08. Jumpin' at Shadows (live 1992)
+09. The Loner
+10. Still Got the Blues (live 1990)Жанр: Музыка, Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A903AE67B9924C1D96F4876DB5ADF688D47004E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357258   (974326) от 03.02.2020
+
+Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зверские инстинкты (2014) ''Маньяк''
+Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
+Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
+Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617540   (972478) от 12.02.2013
+
+Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C9BA189BF073A4952274300922C591A9FC1A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617600   (972461) от 12.02.2013
+
+Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EB7F4FD26284EB932F686AE84E034C133B0E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617601   (972353) от 12.02.2013
+
+Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5274A6B55EF2F53840CDBA16B78434AFC1942E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617534   (972350) от 12.02.2013
+
+BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5528990F4653E76C1838050E9E029B731C534D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617538   (972275) от 12.02.2013
+
+Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, ElectroПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F199C72B375102761D6A09669C16A230EF4747F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617533   (972200) от 12.02.2013
+
+DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80442AFB4079A8340145E1619C7B8193473C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617279   (971758) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video) HDTV-1080i
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве. :bou:Жанр: variousПеревод: ОтсутствуетПродолжительность: ~04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD7921D1462ED81DADC119B6D724C233A5CED4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617213   (971741) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video)1080i HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве, многоканальное аудио.Жанр: разныйПеревод: ОтсутствуетПродолжительность: ~ 01:30:00
 
 ## Скачать торент
 ```bash
@@ -410,25 +607,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 611983   (987103) от 01.02.2013
+###  Публикация: 616190   (971675) от 12.02.2013
 
-Tom Boxer feat. Antonia - Morena (2010) HDRemux [h.264,1080p]
+Romantic Collection (Hits 1983-2001)TVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:36
+Жанр: Pop, RockПродолжительность: 03:07:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D5127DE7452AA543F32AC3C7EBBE1FB82BA2EB6
+magnet:?xt=urn:btih:2ECA9C545B6A3C14A8F51A3A1E03E809E12901FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,25 +633,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 611234   (987098) от 01.02.2013
+###  Публикация: 616278   (971671) от 12.02.2013
 
-Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
+Сборник клипов / Romantic Collection (Hits 1980-2011)TVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987098.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:25
+Сборник музыкальных клипов составлен из файлов полученных в разных источниках.
+Сборник видеоклипов разных лет в хорошем качестве.
+Romantic Collection (Hits 1980-2011) SDЖанр: variousПродолжительность: ~03:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FC727D72A0E9D3B8D9B2136F06CCFB12D8312B1
+magnet:?xt=urn:btih:169CC4FD915F68677DEA1A102DF3CC2C3F9AE4E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,34 +661,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 612237   (987056) от 01.02.2013
+###  Публикация: 975752   (970575) от 16.01.2016
 
-Сантана / Santana - Video Collection (2012) VHSRip
+VA - Зимний марафон № 219: Самые сливки Нового года (2015-2016) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник лучших клипов01. Jin-Go-Lo-Ba (Jingo)
-02. Black Magic Woman & Gypsy Queen
-03. She's Not There
-04. Hold On
-05. Say It Again
-06. The Heale (Feat. John Lee Hooker)
-07. Chill Out (Things Gonna Change) (Feat. John Lee Hooker)
-08. Smooth (Dame Tu Amor) (Feat. Rob Thomas & Horns)
-09. Put Your Lights On (Feat. Everlast)
-10. Maria Maria (Feat. The Product G&B)(   Читать дальше...   )Жанр: Музыка, Latin Rock, Blues rock, Jazz fusionПродолжительность: 01:25:23
+Зимние (15.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adriana - Just stay (Official Video) (00:03:03)
+02. Arash - Ba Man Soot Bezan (Official Video) (00:03:54)
+03. Barbee - Stranger (Official Video) (00:03:22)
+04. Catey Shaw - The Ransom (Official Video) (00:03:56)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Trance, Indie, PunkПродолжительность: 01:24:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4D3A92C8E9D7193C0931462C0631DA8EB97C7F6
+magnet:?xt=urn:btih:79A7ACD558D137A28D2B2CB5BFC4644DAF5EF3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,226 +690,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 611218   (987009) от 01.02.2013
+###  Публикация: 1357933   (969634) от 07.02.2020
 
-Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD635E7CA6DC75C72300832B764D196632E31FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354753   (986984) от 23.01.2020
-
-Каста - 12 Music Videos (2014-2020) WEB-DL [VP9/2160p, H.264/1080p-LQ]
+Babooshka (Александр Константинов) - 7 Music Videos (2019-2020) [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986984.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969634.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2014 Каста - Корабельная песня (Official Video) (1920 x 1080).mp4
-2014 Каста - На весь район (Official Video) (1920 x 1080).mp4
-2014 Каста - Романс для Анны (Official Video) (1920 x 1080).mkv
-2015 Каста - Решено (Official Video) (1920 x 1080).mp4(   Читать дальше...   )Жанр: Альтернативный РЭБПродолжительность: 00:48:12
+001 Babooshka 2018 Материнский капитал
+002 Babooshka 2019 Детей надо чикать!
+003 Babooshka 2019 Надо больше церквей!
+004 Babooshka 2019 Отмороженные во Христе(   Читать дальше...   )Производство: GARDEGROB studioЖанр: православное дискоПродолжительность: 00:26:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39CF25D75032969F9286108527943B83C825430E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611675   (986842) от 01.02.2013
-
-Laid Back - 7 клипов (1990) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов некогда популярного дуэта01. Bakerman (Shaun Baker) - 00:03:32
-02. Elevator boy - 00:03:31
-03. High Society Girl (KunguruShow) – 00:02:22
-04. Sunshine Reggae 2000 (ero) – 00:03:47
-05. Sunshine Reggae – 00:03:34(   Читать дальше...   )Жанр: Музыка, SynthpopПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4A27284D963C901BF7C836D8344830ADBC3F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611687   (986833) от 01.02.2013
-
-David Guetta feat. Sia Furler - She Wolf (Falling to Pieces) (2012) HDRemux [h.264,1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA2409E846BDFC995D5A17C0753B093D9ADF98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612440   (986705) от 01.02.2013
-
-Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13827629989978522B80FE3F7363B34D6CE6E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610049   (986613) от 01.02.2013
-
-Лучшие клипы / The best videos of all time (R'n'B) [720p] (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Лучшие клипы, лучшие исполнители для вашего внимания!01. Britney Spears, Beyonce & Pink - We Will Rock You
-02. Alicia Keys - Girl On Fire
-03. Babyface - The Loneliness
-04. Baibe & Mya - Maro
-05. Beyonce - Listen
-06. Black Eyed Peas- Meet me Halfway (Victoria's Secret show)
-07. Boyz II Men - Silent Night
-08. David Guetta - Sexy Chick
-09. Chris Brown - Sweet Love
-10. David Guetta Feat. Kid Cudi - Memories(   Читать дальше...   )Жанр: Музыка, Pop, R'n'BПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4173642FED1C7538A4BB32325025119B063FAFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740390   (985977) от 01.01.2014
-
-Mylene Farmer - C'est dans l'air (2009) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Показ клипа на ТВ начался 15 апреля 2009 года. Видео было снято в оттенках чёрно-белого. Милен появляется перед зрителями танцующей на фоне скелетов. В видео использованы архивные съемки ядерных испытаний на полигоне в Неваде, а лицо певицы во время световых эффектов иногда превращается в череп. В конце видео Земля разрушается вследствие атомного взрыва.Жанр: PopПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290ECE471EA452F266562EDAD6DD85E1F96B852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355006   (985875) от 24.01.2020
-
-Сборник клипов - Свежий Русский Хит от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985875.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые современные клипы. Обложка и блины для дисков в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Русский Хит — Вступление
-01. Ольга Бузова — Лайкер
-02. Макс Барских — Моя любовь
-03. Zivert — Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350CF6223E2502343BC3385F2920628AB7B9640B
+magnet:?xt=urn:btih:D10FE7B6CC230E368A7E5F89DDAD3D77097C0C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

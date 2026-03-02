@@ -1,3 +1,61 @@
+###  Публикация: 1230047   (618893) от 10.06.2018
+
+VA - 90s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third Eye Blind – Semi-Charmed Life
+02. Barenaked Ladies – One Week
+03. Jane’s Addiction – Been Caught Stealing
+04. Better Than Ezra – Good(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A12B6DEA4B6ECF68E7F0CAB24FBD7770CB6989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295537   (618595) от 13.04.2019
+
+VA - 100 Greatest Classic Rock Songs (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Van Halen - Jump (2015 Remaster) 4:02
+002. ZZ Top - La Grange 3:51
+003. Alice Cooper - School's Out 3:29
+004. Whitesnake - Here I Go Again (USA Remix) 3:53(   Читать дальше...   )Жанр: RockПродолжительность: 06:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1AFA8D9D9CED68D0C803DAEF13D63B155B9128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463354   (618428) от 15.07.2012
 
 ZZ Top - Forty Legendary Hits (2011) & Texicali EP (2012)[MP3|320 кб/с]<Blues Rock/Hard Rock>
@@ -699,64 +757,6 @@ Sanguine Hum - 3 альбома (2012-2015) [MP3|320 кб/с]<Neo-Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28BCC2F75ADE05519A282CF90E716AF65A822E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912510   (610879) от 26.06.2015
-
-Cindy Alter - Faith And Fire (2015) [MP3|320 кб/с]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. More (3:31)
-2. Faith And Fire (3:49)
-3. Ghost (4:07)
-4. Thrive (3:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27CF97E1612FF7C21CA2C0E5B4ACB5A76457172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912444   (610769) от 26.06.2015
-
-Ad Astra - 2 альбома (2008-2015) [MP3|320 кб/с]<Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Surface of Last Scattering 11:01
-2. Lament 06:52
-3. Cradle to Grave to Life - Grief 09:21
-4. Cradle to Grave to Life - Recognition 07:24(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58876A11A3A1E95A5B87C4DDFE8FD49CB5B1863
 ```
 
 https://mybot314.ru/tekegram_catalog/

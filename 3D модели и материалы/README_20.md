@@ -1,602 +1,3 @@
-###  Публикация: 1242711   (513943) от 23.08.2018
-
-3D модели - TurboSquid - Chevrolet Nomad 1958 - 625698 [Mental Ray|*.max, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513943.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ChevroletФормат: Mental Ray|*.max, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F734BC7B7A900DABA2457BD00DBAB6A2F20C8AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242702   (513941) от 23.08.2018
-
-3D модели - Hum3D - Pontiac Bonneville Hardtop 2-door 1966 [V-Ray|*.max, 3DS, C4D, LWO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513941.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки PontiacФормат: V-Ray|*.max, 3DS, C4D, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F0468581969AA2027322D598C5E1F59D623CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242683   (513938) от 23.08.2018
-
-3D модели - 3DExport - Lexus ES F-Sport 2019 - 198646 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513938.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки LexusФормат: Mental Ray|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7656FEBC62610FC94B27D912635CDF0CD21DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242685   (513936) от 23.08.2018
-
-3D модели - CGTrader - AC 428 Frua 1965-1973 [OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513936.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ACФормат: OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027F408BC05A37706F0B85350CC9D8578E3B1B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242697   (513855) от 23.08.2018
-
-3D модели - TurboSquid - Big Dog K9 Chopper Motorcycle - 802149 [V-Ray|*.max, 3DS, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513855.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки Big DogФормат: V-Ray|*.max, 3DS, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A348ECD2EA7F4EEBE8CF49E9DE7BEA7FC9316494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242614   (513853) от 23.08.2018
-
-3D модели - Daz 3D - Toon Dwayne 8 Pro Bundle - 51491 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Toon Dwayne 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAD3B0AC9D2A4D20D3C9409FF4B0EF9BAD2775C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242689   (513846) от 23.08.2018
-
-3D модели - 3dsky - Harley Davidson Knucklehead [V-Ray|*.max, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513846.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки Harley DavidsonФормат: V-Ray|*.max, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273DEDF9B0D9E1B508D0E88FE8BA5B4F65506E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242745   (512974) от 24.08.2018
-
-3D модели - Hum3D - International Durastar Box Truck 2002 [OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512974.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки International DuraStarФормат: OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97B0C781A613B78C838A97875A4E13EB50E9007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242752   (512971) от 24.08.2018
-
-3D модели - Hum3D - Hudson Hornet 2-door 1954 [OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512971.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки HudsonФормат: OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98A20FC92E5049B84595EF6676A1C0CDF3BD6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242761   (512882) от 24.08.2018
-
-3D модели - 3dsky - BMW R100R [Scanline|*.max, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512882.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки BMWФормат: Scanline|*.max, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57D5E4E596D5D75BA7E645E3E0FD8A414172393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242898   (512829) от 24.08.2018
-
-3D модели - TurboSquid - Berkshire Steam Locomotive - 649894 [C4D, FBX, DAE, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхреалистичная 3d модель паровоза Berkshire.Формат: C4D, FBX, DAE, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B9B917FA6C6FE54CCD2F6BB49C41D488C26F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242751   (512816) от 24.08.2018
-
-3D модели - CGTrader - Bugatti Vision Gran Turismo 2015 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512816.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BugattiФормат: Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EE957DA3D03C2B363359BED782ECC2C99E49A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242754   (512814) от 24.08.2018
-
-3D модели - Hum3D - Ford Model A Tudor 1929 [Scanline|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512814.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: Scanline|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C4DB9D3409668C0761928C6E7BC4AC3E24AB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242883   (512744) от 24.08.2018
-
-3D модели - Cubebrush - Art Deco Props COMBO PACK [UE4+Raw] [UASSET, UPROJECT, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проект включает все материалы со всеми объектами, картами, чертежами и эффектами, созданными в Unreal Engine. Каждый объект был создан для реалистичных визуальных проектов, в бюджетном стиле.Формат: UASSET, UPROJECT, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E517A1CD9EC710DA712817DA653917A64C66FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243104   (495900) от 25.08.2018
-
-3D модели - TurboSquid - Chevrolet Corvette Stingray (C7) Coupe 2014 - 1131721 [C4D, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495900.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ChevroletФормат: C4D, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4616D7DAB279941C0343B51B1EF8C5D41614A8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243114   (495728) от 25.08.2018
-
-3D модели - Hum3D - Ford Ranger Double Cab Wildtrak 2016 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495728.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, DXF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12711736A94727DE4A09BEB1F5BB088F14253A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243124   (495724) от 25.08.2018
-
-3D модели - CGTrader - Kawasaki Ninja H2R [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495724.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки KawasakiФормат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, XSI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24ECEB46370F277F8175364C31EA024AF5AEEDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243037   (495719) от 25.08.2018
-
-3D модели - TurboSquid - Mercedes-Benz SS Roadster 1930 Erdmann&Rossi retro legend sport cabriolet - 641235 [MAX, OBJ, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495719.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Mercedes-BenzФормат: MAX, OBJ, C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972C5E3ED9BA54A8C84A35A008AD920DF7103291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243136   (495587) от 25.08.2018
-
-3D модели - Hum3D - Skoda Karoq 2018 [MAX, 3DS, FBX, LWO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495587.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки SkodaФормат: MAX, 3DS, FBX, LWO, OBJ, MTL, DFX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C501623FB87E7724C97B9C43D59F88F5DE96E20D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243049   (495585) от 25.08.2018
-
-3D модели - Behr Bros - Generic Sports Car GT3 [MAX, MB, 3DS, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495585.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки GenericФормат: MAX, MB, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4D4CC081FAE4BFDB815B6175F43F91ABE511A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243347   (493806) от 26.08.2018
-
-3D модели - TurboSquid - F1 Renault RS17 2017 - 1138353 [MAX, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493806.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки RenaultФормат: MAX, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B895560DE78B969E9B5B14A04877F8B0507C9BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243362   (493681) от 26.08.2018
-
-3D модели - Hum3D - BMW 8 Series (G15) M850i coupe 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493681.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C30A9C0F26459D984CF37AB3BBAE3F4CB25203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243934   (485946) от 30.08.2018
-
-3D модели - Cubebrush - Toycar Pack [Mental Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция игрушечных автомобилей из 8 видов. С высокой детализацией полигонов моделей. Render: mental ray включает текстуру для 3 автомобилей.Формат: Mental Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B50F1DF81671B3C39B87AA7E3EF02142774349E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243959   (485851) от 30.08.2018
 
 3D модели - CGTrader - Aston Martin Vantage 2019 [Mental Ray|V-Ray|*.max, 3DS, C4D, FBX]
@@ -668,6 +69,619 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C98FF841114743476E06418C04132CFA5CDC2B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244253   (483852) от 31.08.2018
+
+3D модели - TurboSquid - Lexus LS 500 2018 - 1178869 [Scanline|V-Ray|*.max, 3DS, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483852.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки LexusФормат: Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E44FD8A1FBA4D1324192FC7B08BC952728CEE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244245   (479927) от 02.09.2018
+
+3D модели - SQUIR - Aston Martin 2013 AM 310 Vanquish [OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479927.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Aston MartinФормат: OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F0F4B6BBF48F49A8996C2C6536E9BC78614018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244258   (479914) от 02.09.2018
+
+3D модели - CGStudio - Lexus GX 460 2014 - 41821 [MAX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479914.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки LexusФормат: MAX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D78BA23728B1A1D08ED493FCC72A45AAA05C609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939036   (476957) от 20.09.2015
+
+3D сцены - Evermotion - Archinteriors Vol. 030 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 9 из 10 сцен, полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE8178F7EFED6FBCE1A769856F57F9C43526937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939041   (476954) от 20.09.2015
+
+3D сцены - Evermotion - Archinteriors Vol. 033 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 9 из 10 сцен, полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F4D6030717F4687A9DC2A87084625F4EE95D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245273   (473740) от 05.09.2018
+
+3D модели - Daz 3D - Latonya 8 Pro Bundle - 52605 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Latonya 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9BA3C5DFE0F988E007201C7D0F978615C02DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245281   (473668) от 05.09.2018
+
+3D модели - Daz 3D - Monique 8 Pro Bundle - 47321 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Monique 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FCBC02640BB606223DA7DDB401FC9A6AF4551B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565388   (471814) от 03.08.2022
+
+3D модели - Maxtree - Plant Models Vol 98 [Corona, V-Ray, 3ds max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plant Models Vol 98 — это коллекция высококачественных 3D-моделей растений. Включает 12 видов, всего 72 одиночные модели.Формат: Corona, V-Ray, 3ds max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CAE735F74948C188CF0D42906ED252C2A0EF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245551   (469682) от 07.09.2018
+
+3D модели - Free3D - Honda Civic Si Sedan 2017 - 5455 [MAX, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469682.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки HondaФормат: MAX, 3DS, C4D, FBX, LWO, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6674C17043A837B161A7876B056574BE87687E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940330   (468188) от 24.09.2015
+
+3D сцены - Evermotion - Archinteriors Vol. 034 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 10 сцен (по 2 сцены на файл), полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8CD67D26D9826A2B42965AFC3D02A09716326D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246048   (467528) от 08.09.2018
+
+3D модели - Hum3D - Ford Sterling A9500 Tractor Truck 2006 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467528.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB8C97D3A9F4CDB4047B532D6C6F63DF00A8AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246061   (465459) от 09.09.2018
+
+3D модели - Hum3D - Genesis G70 2018 [V-Ray|*.max, 3DS, 3DM, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465459.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки GenesisФормат: Mental Ray|Corona|Scanline|V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, OBJ, MB, STL, SKP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3B88C7E8E315B678D3830529767B5BD9F1A097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246231   (465346) от 09.09.2018
+
+3D модели - Free3D - Toyota Camry SE 2018 - 8719 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465346.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ToyotaФормат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331E37BC67EA39894B8748EA66C5326FDACD0F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246233   (465345) от 09.09.2018
+
+3D модели - TurboSquid - 2018 Toyota Camry (Low Interior) - 1147605 [MAX, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465345.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ToyotaФормат: MAX, 3DS, C4D, FBX, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D18970B27CF4032526C6DB9A7D71DA24CE22A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246422   (463312) от 10.09.2018
+
+3D модели - Hum3D - BMW 6 Series Gran Coupe (F06) 2015 [Scanline|V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463312.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BMWФормат: Scanline|V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59035B0651525313976B89CB6BCC562F754BC2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246333   (463303) от 10.09.2018
+
+3D модели - 3DExport - Scania R620 Streamline - 121538 [MAX, MB, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463303.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ScaniaФормат: MAX, MB, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95034FED45668BBE77A77D45C0F6B2FECC0554A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246431   (463205) от 10.09.2018
+
+3D модели - Hum3D - Volvo VNL Tractor Truck 2002 [Scanline|V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463205.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки VolvoФормат: Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAD5018BAE64515C58CF1D8421F75B0E7E3E2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407679   (461868) от 09.09.2020
+
+3D модели - Daz 3D - Scar 8 Pro Bundle - 70885 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Scar 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4FE610B32DAEEB3B7129D95D95AE3D7D771A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548880   (461650) от 20.09.2012
+
+3D сцены - Evermotion - Archinteriors Vol. 027 [V-Ray|*.max]
+
+>>След.
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 10 сцен: полностью затекстуренных и готовых к рендерингу. В каждой сцене имеется наличие как минимум 3-х камер. А так же файлы .psd с примерами пост-обработки сцен!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19E12C794FCA07C2D773B125190725750ED2904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246512   (461171) от 11.09.2018
+
+3D модели - Hum3D - Ford F-250 Super Duty Super Cab XLT 2015 [V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461171.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки FordФормат: V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371D6A82CD6C464D114AE1671459637002F18CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 142786   (458564) от 27.09.2009
+
+3D модели - Evermotion - Archmodels Vol. 064 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли высокополигональные модели декоративных статуэток и ваз в колличестве 41 шт.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247043   (456537) от 13.09.2018
+
+3D модели - ArtStation - Electric locomotive - model 441-316 [UE4] [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456537.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель Electric locomotive (Электровоз)Формат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE008C0232D8844E75300EBE19AA9121C92B27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942791   (452832) от 01.10.2015
+
+3D сцены - Evermotion - Archinteriors Vol. 035 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 10 сцен, полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF28145B28AD6650A5DDCA00C09EBC829DF5833
 ```
 
 https://mybot314.ru/tekegram_catalog/

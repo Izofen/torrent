@@ -1,3 +1,206 @@
+###  Публикация: 1237281   (552232) от 23.07.2018
+
+VA - Reggaeton Hits (2018) [MP3|320 Kbps] <Latin, Hip-House, Salsa>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family Dejavu - Si Tu Quieres (Original Mix) 3:26
+02. Ruddy Norona - Ensename (Original Mix) 3:31
+03. Big Yamo, Area 3 - Cuando Nadie Nos Ve (Original Mix) 3:29
+04. Lester - Apretaita (Original Mix) 3:21(   Читать дальше...   )Жанр: Latin, Hip-House, SalsaПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8E717016EBC2D62BB6F6EB156499E2E68E1A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237113   (552227) от 23.07.2018
+
+Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal, Heavy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaw Torn (Unencumbered By Restrictions)
+02. Bass Solo
+03. Killing Time
+04. Guitar Solo(   Читать дальше...   )Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237330   (552095) от 23.07.2018
+
+VA - Club Dance Ambience Vol.157 (2018) [MP3|320 Kbps] <Dance, Club, House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552095.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 0045  &  El Niño  - Act Like Ya Know (Justin James (Chicago) Remix)
+002. Adri Block - Be Good (Original Mix)
+003. al l bo & Victoria Romanova feat. DJ Alex N-Ice - We Are Winners (Original Mix)
+004. al l bo - Thriller (Hopeful Peace Instrumental Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87918721DFF3BFBA1A049A318DBE3404C456DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237332   (552093) от 23.07.2018
+
+VA - Deep House Collection Vol.180 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552093.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Janke & Kai Schwarz  Tom Marks - Du Trägst Keine Liebe in Dir (Sharapov Remix)
+002. Mel Bell - Eternity of Life  (Original Mix)
+003. Yotto, Vok - The One You Left Behind (Original Mix)
+004. Dave Johnson - Together (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749191056227BA6D6371E9DC86A0D57CFAF2B220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309197   (551983) от 18.06.2019
+
+VA - Euro Pop Summer (2019) [MP3|320 Kbps] <Euro Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - Everytime
+002. Jérôme Charlebois - Old Orchard
+003. Alejandra Burgos - Crazy Little Woman
+004. Jessica 6 - Stars In Your Eyes(   Читать дальше...   )Жанр: Euro PopПродолжительность: 09:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4967BDB06144BC86F94F5285DA42CD807FE68023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309331   (551973) от 18.06.2019
+
+VA - не Громкие новинки недели 21 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.ALEX&RUS - Последний Танец (3:29)
+2.Alexandra - Чупа-Чупс (2:44)
+3.AMPATI - Холодно (4:13)
+4.Anivar - Любимый Человек (3:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A3554B5A0C8C90B0E188391B05A8346031294F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046325   (551932) от 27.08.2016
+
+VA - Миллион облаков (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551932.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мартин Дин - Падший Ангел
+002. Катя Нова & Dee Flack - Я Буду С Тобой
+003. Александр Вестов - Миллион Облаков
+004. Людмила Соколова - Сердце, Как Стекло(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DF6E2732852518C55894D81AE7BD7C46ECCAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046712   (551928) от 27.08.2016
 
 VA - Мега хиты хорошего настроения. Версия 4 (2016) [MP3|256 Kbps] <Pop>
@@ -542,209 +745,6 @@ VA - Night Dreams (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:069FE67839BF16FAD1BA8230ABA68C79A19A0AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309453   (550347) от 20.06.2019
-
-VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550347.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inglorious - Queen
-002. Ashley Cleveland - Up From The Ether
-003. Passcode - Bite The Bullet
-004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047389   (550256) от 29.08.2016
-
-VA - Body Control: Fitness Mix (2016) [MP3|320 Kbps] <Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelino Loren - Plus de maquillage (Radio Mix)
-002. Ttoo - Be Free (Enfortro's Free Anthem Edit)
-003. DJ X Face & Pi Base - Rays of Sunshine (Power Jet Remix)
-004. Lori Glori - You Know What (Randy Norton Edit)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 07:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C2DA29921986CA5CB27EC9E9ABFE82531E6D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047393   (550250) от 29.08.2016
-
-VA - 150 Cross Amsterdam: Summer Dance Party (2016) [MP3|~270-320 Kbps] <Dance, Club, House, Electro, Funky, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sia - Cheap Thrills (Feat. Sean Paul)
-002. Avicii Vs Conrad Sewell - Taste The Feeling
-003. Birdy - Keeping Your Head Up (Don Diablo Remix) (Radio Edit)
-004. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro, Funky, Hands UpПродолжительность: 09:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877711257348CD568F2006E171E502192A1D537D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309405   (550226) от 20.06.2019
-
-VA - Prime Elegante Chanson Francaise (2019) [MP3|320 Kbps] <Shancon, Folk, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Mazuй - Quand Je Vois Cette Image
-002. Blues Trottoir - Un Soir De Pluie
-003. Florence Naprix - La Femme
-004. Georges Brassens - La Complainte Des Filles De Joie(   Читать дальше...   )Жанр: Shancon, Folk, PopПродолжительность: 06:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DFA95BFF52EB24D82056B8F64FD12B225A76BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309647   (550222) от 20.06.2019
-
-VA - Love Ballad (2019) [MP3|320 Kbps] <Pop, Rock, Love Ballads>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sarah Jane Morris - Promised Land
-002. Markus Feehily - Wash The Pain Away
-003. Enric Verdaguer - Not My Moment
-004. Toni Braxton - Yesterday(   Читать дальше...   )Жанр: Pop, Rock, Love BalladsПродолжительность: 09:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E9E3271E54DCE04F851373F42B679A02205E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047187   (550183) от 29.08.2016
-
-VA - The Best - In Music We Trust Vol.6 (2016) [MP3|320 Kbps] <House, Electro House, Dirty House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550183.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell & Wiwek  -  Chameleon (Instrumental Mix)  3:46
-002. W&W & Moti  -  Spack Jarrow (Original Mix)  4:30
-003. Headhunterz  -  Once Again (Original Mix)  4:46
-004. Quintino & Mercer  -  Genesis (Original Mix)  5:11(   Читать дальше...   )Жанр: House, Electro House, Dirty House, Club, DanceПродолжительность: 08:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42589CD55F92CCF27A69A01ED27B7583057194B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046971   (550180) от 29.08.2016
-
-VA - Хит сезона от Шансона. Версия 9 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550180.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Феликс Луцкий - Юбилей
-002. Анатолий Корж - Славянки
-003. Валерий Палаускас - Чужая Женщина
-004. Руслан Навроцкий - За Синью Неземной(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF2ADBD435A01197DFDE18CEF89DE592513971C
 ```
 
 https://mybot314.ru/tekegram_catalog/

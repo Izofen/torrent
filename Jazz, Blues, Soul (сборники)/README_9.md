@@ -1,235 +1,3 @@
-###  Публикация: 1015431   (774920) от 10.05.2016
-
-VA - Song For My Woman Rock Blues Academy (2016) [MP3|320 кб/с] <Rock Blues, Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beat Daddys - Livin' This Love
-002. The Rocky Athas Group - Slow Driver
-003. David Gogo - Why Don't You Show Me
-004. Hughes Taylor - You'll Never Be Alone(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 09:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31A7DA343EFAE50C823FE3A005646F8DE5688C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212895   (774286) от 14.03.2018
-
-VA - Blues And Jazz Radio Grand Collection (2018) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774286.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Charles Mingus - A Foggy Day
-002. Los Warn Lionel - Lights In The Dark
-003. John Coltrane - I'll Wait and Pray
-004. John Di Martino's Romantic Jazz Trio - I Dreamed a Dream(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 09:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BBD226C8034712DB1799CD3FC58FF68E2C1FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015867   (772483) от 12.05.2016
-
-VA - Blues Forever vol.49 - vol.52 (2016) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernard Allison - So Divine
-02. Rick Derringer - Big Time Love
-03. Scott Straighten Band - Let's Straighten It Out
-04. Tinsley Ellis - Stuck In Love(   Читать дальше...   )Жанр: BluesПродолжительность: 05: 14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C267A2C48628ECA00110B01BA854541680D836D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392187   (769805) от 24.06.2020
-
-VA - Old Alabama Blues (2020) [MP3|320 Kbps] <Blues, Soul, Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769805.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Richie Milton - Temporarily Blue Bt
-002. Rosie Flores - That's What You Gotta Do
-003. Betty Lavette - Here I Am
-004. Buddy & Julie Miller - Unused Heart(   Читать дальше...   )Жанр: Blues, Soul, CountryПродолжительность: 06:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC815F4C84265B734CA792B972A4BAA40DBB162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016815   (769566) от 15.05.2016
-
-VA - Smooth Jazz: Behind Closed Doors Vol.1 (2016) [MP3|320 кб/с] <Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Paris - Dream Chaser - Ambient Passion Mix
-02. CoolCut - Please Come Home - Snip & Slap Mix
-03. Deechiller - City Lights - Extended Mix
-04. Hamilton Selfish - So Simple - Vocal Mix(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17420FBB1253D9AD7100FA17C1B94011F486BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125589   (767924) от 15.04.2017
-
-VA - Jazz World Music: Electro Swing [2CD] (2017) [MP3|320 Kbps] <Electro Jazz Swing>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767924.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dimie Cat - Bare Necessities 04:10
-02. DJ Chris - Touch of Jazz 06:41
-03. Andy Roberts - Noodle (AR's Tech Jazz Mix) 08:04(   Читать дальше...   )Жанр: Electro Jazz SwingПродолжительность: 12:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DE83572D2E92969FA2967504000518F2F2D3BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125713   (767899) от 15.04.2017
-
-Ronnie Earl - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Seranade
-02. Equinox
-03. Ida B
-04. Bella Donna(   Читать дальше...   )Жанр: BluesПродолжительность: 05:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29430C004561FE13F635CD77FDF4CF20255D8B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393503   (767594) от 30.06.2020
-
-VA - Sexy Bedtime Instrumental (2020) 2CD [MP3|320 Kbps] <Easy Listening, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Instrumental Jazz Ensemble - The Weight of a Moonbeam (Beautiful Dreams)
-02. The Erotic, Sexy, Smooth Jazz, Romantic Saxophone, Love Making Music Band - Music for Lovers
-03. Orchester Anthony Ventura - If I Only Had Time / Save the Last Dance for Me
-04. Relaxing Instrumental Jazz Ensemble - Zephyr's Waltz (Relaxing Sleep Music)(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 09:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C300A999782DDE25FD86E23BBECBA58400CA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279128   (766861) от 28.01.2019
 
 VA - The Lyric Country and Blues (2019) [MP3|320 Kbps] <Country, Blues>
@@ -745,6 +513,238 @@ VA - Walking To New Orleans (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C32AF356330361AC555274A9EFCB5D1D2CDB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526977   (737799) от 26.01.2022
+
+VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey DeFrancesco - One Hundred Ways (09:10)
+02. Al Kooper,Steve Stills - Season of the Witch (11:08)
+03. Bob Belden,Billy Drummond,John Hart,Nicholas Peyton,Sam Yahel - Tom Thumb (06:41)
+04. Jimmy Smith - T'ain't No Use (06:09)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 07:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5DD3A64E29F95F419EC6F7562863E270B49BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527451   (736904) от 28.01.2022
+
+VA - A New Word In Jazz (2022) [MP3|320 Kbps] <Jazz, Electro Jazz, Soul, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "A New Word In Jazz" включает в себя целых 120 потрясающих композиций, в которых дух классического джаза сочетается с богатством и изысканностью современного электро джаза. Это подборка для поздних вечеров и уютной атмосферы.001. Marcus Wyatt - Race For Timbuktu
+002. Scott Henderson - Dolemite
+003. Magic In Threes - Making Paper
+004. Joe Sample - Soul Shadows(   Читать дальше...   )Жанр: Jazz, Electro Jazz, Soul, Easy ListeningПродолжительность: 09:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F74C2AE8630694B5638ADDBB55876B395ED1F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527485   (736395) от 29.01.2022
+
+VA - Beautiful Smooth Jazz (2022) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас, без разницы какую роль играет в этом мире, верит в любовь. Кто-то уже нашёл своё счастье, а кто-то в поисках своей второй половинки верит и ждёт чуда! И оно непременно найдет каждого из Вас. Цените каждый момент, проведенный с любимыми! Говорит нам музыка с треков сборника "Beautiful Smooth Jazz"!001. Lisa Cat-Berro - Waiting For You
+002. 22° Halo Aka Lea Maria Fries - Ulysse
+003. Fourplay - 101 Eastbound
+004. Ronny Jordan - Mystic Voyage(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3C3FC8082BA4E1885BFDF88F12AC681634142A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527712   (736339) от 29.01.2022
+
+VA - My Sexy Blues (2022) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ayo - Maybe (Ayo Blues) (03:28)
+02. Coco Montoya - It's My Own Tears (remastered) (06:00)
+03. Louisiana Red - Driftin' (05:45)
+04. J.J. Cale - Cloudy Day (05:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 06:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1FF41CE4628809785107CF1676EBB9E856DC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529216   (732655) от 06.02.2022
+
+Sven Zetterberg - Compilation (2022) [MP3|320 Kbps] <Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Sweetest Touch
+02. The Handwriting Is on the Wall
+03. All For Business
+04. More Love(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 02:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8799A89F802F5E11C087436856771DFC2036601A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021861   (730941) от 31.05.2016
+
+VA - Total Eclipce: Sweet Sound Jazz (2016) [MP3|320 кб/с] <Swng, Smoth Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Peterson - Tea For Two
+02. Sister Paris - Dream Chaser - Ambient Passion Mix
+03. CoolCut - Please Come Home - Snip & Slap Mix
+04. Lester Young - A Foggy Day(   Читать дальше...   )Жанр: Swng, Smoth Jazz, BluesПродолжительность: 04:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A38B36EE4C70F0C1C36FDF3DABB4D8C0C41D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127679   (730701) от 22.04.2017
+
+VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Geoff Everett Band - Lost At Sea (Feat. Mollie Marr...)  (06:29) 
+02. Brad Curtis & The SOME x 6 Band - Be Still 2017  (04:49) 
+03. Mark Selby - Back Door To My Heart  (04:01) 
+04. Dizzroxx - Nuclear Shit  (03:33) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022107   (729766) от 01.06.2016
+
+VA - Dinner Party Jazz: A Delicious Collection of Instrumental Jazz for Entertaining (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beegie Adair - Days of Wine and Roses
+02. The Jeff Steinberg Jazz Ensemble - How About You
+03. Beegie Adair - Three Coins in the Fountain (feat. The Jeff Steinberg Orchestra)
+04. Jack Jezzro - It Could Happen to You (feat. The Mason Embry Trio)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BAC002052DC1B3432F194243FCDC38873865C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

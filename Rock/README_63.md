@@ -1,3 +1,58 @@
+###  Публикация: 1416438   (365108) от 17.10.2020
+
+Santana - FM Broadcast Santana Live (2014) [MP3|320 Kbps] <Rock, Indi Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Well Alright (Live)
+02. Black Magic Woman / Gypsy Queen (Live)
+03. Dance Sister Dance (Live)
+04. Europa (Live)(   Читать дальше...   )Жанр: Rock, Indi Rock, Pop RockПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF889503C60CF4DB46F6B7D435C7565A55B153F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416683   (364967) от 17.10.2020
+
+Eagles - Live From The Forum MMXVIII (2020) [MP3|320 Kbps] <Classic Rock, Legends>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock, LegendsПродолжительность: 2 CD, 02:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23146CA756436D61E8DC7312B1E393B6F37AD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416652   (364958) от 17.10.2020
 
 Bruce Springsteen - Letter To You (2020) [MP3|320 Kbps] <Rock>
@@ -690,64 +745,6 @@ Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953235   (351787) от 03.11.2015
-
-Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psychedelic, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawlin' Kingsnake
-02. Underground River
-03. Bow'd Up
-04. For Suki(   Читать дальше...   )Жанр: Psychedelic, Blues RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953004   (351693) от 03.11.2015
-
-Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night’s Makeup
-02. Broken Heart
-03. Highway
-04. Whiskey & Whitley(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

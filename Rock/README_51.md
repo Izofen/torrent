@@ -1,3 +1,61 @@
+###  Публикация: 1318036   (497755) от 04.08.2019
+
+24 Pesos - Flesh & Bones (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Am The Blues [4:27]
+ 2. Broken Hearted Man [4:41]
+ 4. You Don't Want Me [4:15]
+ 3. All The Same [4:03](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2159D32D5B5B0D5FD044827FBA6550264F0E818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564896   (497727) от 21.07.2022
+
+October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Divide and Conquer [00:03:05]
+02 - Black Veil [00:04:19]
+03 - Tightrope [00:04:52]
+04 - Regress [00:03:34](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16D25D2F13698EE66607C97860C53CFC2E9F5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318281   (496593) от 05.08.2019
 
 Sihasin - 2 альбома (2012-2018) [MP3|192-320 Kbps] <Native american, Rock, Punk>
@@ -689,76 +747,6 @@ Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545345   (485368) от 10.09.2012
-
-Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485368.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Heavy Into Ross (3:30)
-2.  Nightmare Epiphany (4:40)
-3.  Blues For Sandra (3:07)
-4.  Don't Fear The Reaper (acoustic version) (5:30)
-5.  Gammer Is Missing (3:23)
-6.  Fall At Your Feet (2:57)
-7.  Secret Road (4:39)
-8.  Loofah (3:09)
-9.  Real Estate Attorney (2:54)
-10.  I'm Alive (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3ADAFE1417D3F476DB3A5CE58C600419A9C3AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543593   (484753) от 10.09.2012
-
-Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial Rock, Alternative RockПродолжительность: 00:44:40
-1. So Far Away (4:10)
-2. Perfect (3:46)
-3. I Remember (5:43)
-4. Wasted (4:45)
-5. Happy (4:03)
-6. The Only Thing (5:38)
-7. Angel (4:22)
-8. Breathe You In (4:00)
-9. High (3:21)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66179C24EA105B549525F60B69B0D232AB19215B
 ```
 
 https://mybot314.ru/tekegram_catalog/

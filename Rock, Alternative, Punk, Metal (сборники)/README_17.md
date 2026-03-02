@@ -1,3 +1,32 @@
+###  Публикация: 1522573   (758384) от 07.01.2022
+
+Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels Like Forever
+02. Every Time it Rains
+03. Too Cool
+04. Soul Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1D77AA282AB3D570D0ABD1FFB20C2FC0CCEF87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215527   (757851) от 26.03.2018
 
 Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
@@ -714,35 +743,6 @@ VA - Рок в машину (2015-2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84E512DE5FDFB3338E1285629BF80C508B81F831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530101   (730769) от 09.02.2022
-
-Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation Album) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Darkwave, Gothic Rock, Post-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalt
-02. Glimmer Og Aska
-03. Lítil Dýr
-04. Næturdætur(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Post-PunkПродолжительность: 00:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDA606581BC786DDC220419D23D0C7647B34727
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1194111   (155453) от 25.12.2017
+
+Shania Twain - Now (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' With My Eyes Closed 03:33
+02. Home Now 03:22
+03. Light Of My Life 03:37
+04. Poor Me 03:21(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C5AA90ECD5CA64726FBF431E4EAB777FDB49BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346907   (155359) от 21.12.2019
+
+VA - Het Beste Uit De Q Top 1000: Editie (2019), 6CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Mayer - New Light (03:35)
+02. Kate Bush - Wuthering Heights (04:28)
+03. Mariah Carey - Hero (04:19)
+04. Ricky Martin - Livin' La Vida Loca (04:03)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12046D204A257C3B1523413FFA4000A7D9785758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271017   (154538) от 21.12.2018
+
+Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image + .cue] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Don't Talk To Jessica (3:43)
+02. Please Don't Talk To Jessica (Remix) (5:45)
+03. Dancing With Somebody (4:15)Жанр: Pop, EurodanceПродолжительность: 00:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6402C45945644A363B0566FAE15E5AF4BB824B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194657   (154351) от 26.12.2017
+
+Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer's Here
+02. PuppyЖанр: PopПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52D372E6EC232CB6B36F1F872C8CFFD2B80AC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347176   (154103) от 22.12.2019
 
 VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Rock, Electronic>
@@ -629,121 +742,6 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677917   (149071) от 19.11.2023
-
-Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alles funkelt! Alles glitzert!
-02. Neonfarbenwelt
-03. Alles wird gut
-04. Wir tun es nochmalЖанр: Eurodance, EuropopПродолжительность: 00:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677723   (148910) от 19.11.2023
-
-Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceano [00:04:03]
-02. My Confession [00:04:58]
-03. Mi Mancherai (Il Postino)Жанр: PopПродолжительность: 01:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B705530AD2DEA635927812C2F5F2726F3D82FDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677843   (148751) от 19.11.2023
-
-Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl You Know It's True [00:03:18]
-02. Baby Don't Forget My Number [00:04:10]
-03. Blame It on the Rain [00:04:08]
-04. I'm Gonna Miss You [00:03:59](   Читать дальше...   )Жанр: Pop, Rap, Synth-popПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271560   (148566) от 24.12.2018
-
-Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + .cue] <Pop, Disco, 70s, 80s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Quijote (4:06)
- 02. Egy Huszas Eleg (3:37)
- 03. Marathon (5:27)
- 04. Korben-jaras (3:45)(   Читать дальше...   )Жанр: Pop, Disco, 70s, 80sПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E35C485AB971956E9A0E2DB4649910B20BE4E01
 ```
 
 https://mybot314.ru/tekegram_catalog/

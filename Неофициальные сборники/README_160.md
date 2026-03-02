@@ -1,3 +1,206 @@
+###  Публикация: 1505344   (802938) от 28.10.2021
+
+VA - Synth of Waves 5 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Mortal - Hex Machina (Gertrudda Edit) (5:08)
+02. Alex Boychuk - Escape (5:13)
+03. Michael Cassette - My Name Is Michael Cassette (Extended Mix) (5:28)
+04. FM Attack - Cinematic (4:37)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC8FDC4B660251228ECCDB7A0CE7D034AF2D783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505350   (802927) от 28.10.2021
+
+VA - Synth of Waves 6 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demesys - Cocktails & Dreams & Tropical Haze (Gertrudda Edit) (7:53)
+02. Backfrom84 - Lost Summer Love (4:33)
+03. The Midnight - Nighthawks (Gertrudda Summer Mix) (8:17)
+04. Stan DuClare - Newtown Mall (3:14)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672A101E572290C756393D72DFC1F224A44A618D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505334   (802866) от 28.10.2021
+
+VA - Synth of Waves 3 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castroe - Chase Arrival (Gertrudda Edit) (8:58)
+02. 2DCAT - On My Own (3:38)
+03. Runaway Droid - Dance (3:29)
+04. A-Reis - Hyperdrive (4:13)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18004B4D53A73D45BE844D65A5756FAFF123726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505545   (802861) от 28.10.2021
+
+VA - Beatport Drum And Bass: Sound Pack #359 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802861.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kutlo - Machine Learning
+002. Disrupta - Like The Sun
+003. Dr.P - Jump Wid It
+004. Loudek - In My Mind U Are All(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 12:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC855E4D6116D4BF0DDBB33870E7FC258CA26B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198981   (802849) от 14.01.2018
+
+VA - Record Super Chart #519 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dankann  -  How Deep Is Your Love  2:55
+02.  Mark Sixma & Emma Hewitt  -  Missing (Andrew Rayel & Mark Sixma Remix)  4:32
+03.  Stadiumx & Metrush  -  Spacebird  3:53
+04.  Tom Crusher  -  Higher  3:51(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EDD777A8723DCEDC533325B0BA130E59C1C332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505337   (802843) от 28.10.2021
+
+VA - Synth of Waves 4 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альянс - На Заре (ИИ Gertrudda Edit) (8:59)
+02. Electric Youth - Modern Fears (Pilotpriest Come True Version) (4:03)
+03. DRYVE - The Fading Light (4:01)
+04. Turbo Knight & Vosto - Celestial (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3EA705A33AE9CC00C0E350478DC16C8893E755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505368   (802837) от 28.10.2021
+
+VA - Synth of Waves 8 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. roadblok - DeLorean Heavy Kneedeep In Neon (Gertrudda Edit) (11:05)
+02. c152 - Romantic Night (feat. shiruku & chirrrex) (Gertrudda Edit) (6:16)
+03. Прожектор Перестройки - Lighting Strike (4:00)
+04. Maria Davis - Echo (3:55)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F83E0464970909DEDE628D2BFB7208F0CE71A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120156   (802826) от 30.03.2017
 
 VA - Зажигательный Eurodance Vol.3 (2017) [MP3|256-320 Kbps] <Eurodance>
@@ -542,209 +745,6 @@ VA - The Best - In Music We Trust Vol.14 (2017) [MP3|320 Kbps] <House, Electro, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3800BE30AD7DDD0ED1F315760232F55ABCB3BF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199292   (801775) от 15.01.2018
-
-VA - Chillout - Ocean sounds (2018) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bachot Muna - Do It
-02. Darin Epsilon - Endless Sands Of Time
-03. Projekt Phoenix - Lighthouse
-04. Down Under - Guess(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62A3025F8E72ACEFC2CF7E2D611FA2BB0636109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199336   (801769) от 15.01.2018
-
-VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801769.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Abba - Dancing Queen (3:50)
-002. Tavares - Heaven Must Be Missing An Angel (6:56)
-003. Nazareth - Love Hurts (3:52)
-004. Bzn - Mon Amour (4:08)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0556D6CE5FD9E5A0A9281C2B403DE94BB555C20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199172   (801699) от 15.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0001  (2018)
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etolie Vipe - Cheats For Glory ( 2014 )
-02. Chris Luis - The Heart Of The City ( 1984 )
-03. T.J. Thornberry - Release Yourself ( Original Mix 2016 )
-04. AmbrA - Dream the Summer Back ( Club Mix Version 2005 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0E5B77F908D1EC633B84FF644A61B3CE300A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199315   (801688) от 15.01.2018
-
-VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Techno, Dark Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2nd Phase - Propel The Light (Original Mix)
-02. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix)
-03. Acidbro - Yeah, Bosh! (Nopopstar Remix)
-04. Alex ll Martinenko - Eruption (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, Techno, Dark ProgressiveПродолжительность: 27:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506086   (801651) от 29.10.2021
-
-VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frankie Lluc - Recreation Ego
-002. Small Tok - Play Me
-003. Pretty Pink - Let You Go
-004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199332   (801645) от 15.01.2018
-
-VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Laura Fygi  -  Good Morning Heartache  4:10
-02.  Diana Krall  -  Let's Fall In Love  4:19
-03.  Viktoria Tolstoy  -  From Above  4:32
-04.  Tony Bennett & Billy Joel  -  New York State Of Mind  4:35(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578E27A74351204CE5DE2EF71DB9BCB97B47D62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120603   (801614) от 31.03.2017
-
-VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Turbotronic - Iriwa (Radio Edit) 3:03
-002. Jason Derulo - In My Head (Kr8 x CandyCrash Remix) 3:19
-003. Imad Kotbi Ft. Ryan McTogy - Wild (Original Mix) 3:42
-004. Steven Nicola & Karim Razak feat. Honorebel - Bootyshake 3:13(   Читать дальше...   )Жанр: Dance , Club House , Electro HouseПродолжительность: 07:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F863B9CE920A71101298D799F736881AF8CA8683
 ```
 
 https://mybot314.ru/tekegram_catalog/

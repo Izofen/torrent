@@ -1,23 +1,48 @@
-###  Публикация: 1683329   (129561) от 10.12.2023
+###  Публикация: 1683068   (129953) от 09.12.2023
 
-DefenderKiller 11.0.7 Portable [Ru]
+Вандализм (2023) WEBRip [VP9/2160p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129953.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вандализм" - это короткометражное кино про граффити.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Никита СычёвАктеры: Илья Грешилов, Галя Голенкова, Иван Кузьмин, Михаил ВинокуровСубтитры: русскиеПродолжительность: 00:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE81B4041DBEAD049E5D4770348F0DD12857F7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525110   (129951) от 19.01.2022
+
+Smooze Pro 2.0.10 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129561.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DefenderKiller - удаление Windows Defender (Защитник Windows)
-Удаление защитника безвозвратное.Язык интерфейса: Русский
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F555C9E0C384F2CC624C2E6C3688906F34BB7684
+magnet:?xt=urn:btih:1B180825CA065B413FCDF45D2F615293424E4AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525301   (129560) от 20.01.2022
+###  Публикация: 1682936   (129950) от 09.12.2023
 
-Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+Детектив Ди и тайна призрачного пламени / Di Renjie: tong tian di guo / Detective Dee and the Mystery of the Phantom Flame (2010) BDRip [H.265/1080p] [10-bit]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129560.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How Could You Want Him (When You Know You Could Have Me) (03:48)
- 02. Deja Vu I Love You (03:08)
- 03. Caught up in a Moment (03:36)
- 04. Satellite (04:02)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:28
+690 год н.э., династия Тан. В столице Лоян строят гигантскую буддийскую Ступу, где должны будут короновать первую китайскую императрицу Ву Цзэтянь. Однако в городе начинают происходить странные события, угрожающие сорвать торжество. И после того как несколько человек публично сжигают себя, императрица решает начать расследование, для чего назначает верховным судьей (   Читать дальше...   )Производство: Китай, Гонконг / China Film Co-Production Corporation, Film Workshop Ltd., Huayi Brothers Media, Xian Longrui Film And TV Culture Media Co.Жанр: фэнтези, боевик, детектив, приключенияРежиссер: Цуй ХаркАктеры: Энди Лау, Тони Люн Ка-Фай, Дэн Чао, Карина Лау, Ли Бинбин, Жан-Мишель Касанова, Сос Хароян, Цзялинь Чжао, Цинь Янь, Лю ЦзиньшаньПеревод: Многоголосый профессиональный, Авторский, Одноголосый любительскийЯзык озвучки: русский, китайскийСубтитры: русские, китайские, английскиеПродолжительность: 02:03:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E82E10CB8667FAE1C0191DE5FC5A56C28E868286
+magnet:?xt=urn:btih:33B0DF51B58FE1B0873B40B7C3A03B374B81B0D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,55 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525328   (129558) от 20.01.2022
+###  Публикация: 1525137   (129949) от 19.01.2022
 
-Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of the Path (3:12)
-02. Arctic Flight (11:00)
-03. Whiteout (7:03)
-04. Polar Expedition Part 1 (2:27)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBB5F0F6414F22D80C3F815C1010E0BA329F544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490182   (129557) от 30.04.2012
-
-Странное дело.  Вселенная. Космический пульс (2012.04.29) SATRip
+Artstudio Pro 4.0.1 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129557.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Вселенная. Космический пульс
-Исследователи утверждают: Земля - не единственная планета, где есть аномальные зоны. Вспомним "Большое красное пятно" в атмосфере Юпитера, странное свечение в кратерах Луны... Можно ли классифицировать и объяснить космические аномалии?Жанр: ТелепередачаПродолжительность: ~ 00:48:28
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:527C0F6F0DF7F8897230D4B748911CCFAC9578D4
+magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +102,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525428   (129556) от 20.01.2022
+###  Публикация: 1525234   (129948) от 19.01.2022
 
-VA - Ambiental Journey: Chillout Your Mind (2022) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+Alfred 4 Powerpack 4.6.2 [En]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Sylvan Bliss (Original Mix) (6:06)
-02. Michael e, Diego Porchile - When Eyes Speak (Original Mix) (5:21)
-03. Matt Sour - Longing for the Sea (4:06)
-04. Simon Le Grec - Sibir (Radio Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:06
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 Running with Crayons LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A37AD469CB98E0BDBAB0719215E449874A234B8
+magnet:?xt=urn:btih:D4670C04815EF74FBB00917C0BF6DBCEBD1F961E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,28 +129,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525372   (129554) от 20.01.2022
+###  Публикация: 1682858   (129947) от 09.12.2023
 
-Ashes Of Ares - Emperors And Fools (2022) [FLAC|Lossless|image + .cue] <Power Metal>
+Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan Wake' 1 & 2 and 'Control' [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129554.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A City In Decay (Intro)
-02. I Am The Night
-03. Our Last Sunrise
-04. Primed(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:24
+01. The Skald Awakens [00:01:05]
+02. Dark Ocean Summoning [00:06:43]
+03. Children of the Elder God [00:03:38]
+04. The Poet and the Muse [00:04:17](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC4CA307915CF1E246B354C84A8D827728C76A38
+magnet:?xt=urn:btih:D7B23AC110A69350B68C5AC12D05DDDE40F8DCF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,28 +158,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525402   (129552) от 20.01.2022
+###  Публикация: 1525051   (129946) от 19.01.2022
 
-VA - Lofi Evening (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Lo-Fi>
+Fusion Bass - Seasons (2021) [AAC|~345 Kbps] <Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129552.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pueblo Vista - Autumn In Sagano Forest (1:59)
-02. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Jolis sapins (Lofi Edit) (1:44)
-03. Dpsht, Pueblo Vista - Falling Leaves (2:17)
-04. Mr. Jello - Warm & Cozy (1:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 01:57:55
+01. July (Original Mix) (4:21)
+02. August (Original Mix) (3:44)
+03. September (Original Mix) (3:32)
+04. October (Original Mix) (3:47)(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 00:48:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C134BC90ECCEEF247C0B53E952A8370D44F223C
+magnet:?xt=urn:btih:4B9EE5D04C005A66DD8F97E9BFC724FBF6DA8324
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,26 +187,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525443   (129551) от 20.01.2022
+###  Публикация: 1682963   (129945) от 09.12.2023
 
-Duplicate File Finder Pro 6 v6.15 [En]
+Юлия Ефимова | Секрет Сибирского Старца (2023) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалеко от сибирского города Томск в бывшем пионерском лагере, сейчас служившим турбазой для отдыха, случилось несчастье. На летних интеллектуальных играх между университетами утонул студент. Однако никто не верит в то, что молодой человек решился искупаться в Черном озере монаха, ведь всем известно: именно сейчас древняя легенда начала оживать. Что это: мистика (   Читать дальше...   )Жанр: Современные детективыИздательство: ЛитРесФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5964B76089595A4091A2B4A85A05CB82FC1967BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490479   (129944) от 01.05.2012
+
+[Wallpapers]creative_wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AA94A88FBF3B6F21C18AE8727FE4FF3D81BD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525159   (129943) от 19.01.2022
+
+Action 1.1.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129551.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+Приложение Action - это лаунчер действий, который ускорит работу на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2022Разработчик: © 2017-2021 Jan ValtaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE201A19B08491E1B48010085CF727A5010C19BD
+magnet:?xt=urn:btih:767991E9B65A51DD5AAC7A6DE20C5347EE0BA89D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,26 +265,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525438   (129549) от 20.01.2022
+###  Публикация: 1682904   (129942) от 09.12.2023
 
-Disk Space Analyzer Pro 3.7 [En]
+И.Е. Егорова | Интеллектуальные информационные системы (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129942.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии представлены основные понятия и направления искусственного интеллекта, история их развития; приведена классификация интеллектуальных информационных систем. Подробно рассмотрены направления, широко применяемые в области экономики и управления, а именно: экспертные системы и интеллектуальный анализ данных. Особое внимание уделено типичным моделям (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ВГТУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C579B0B9977D0C261655625AE0ED8961E3768F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525139   (129940) от 19.01.2022
+
+AYVY 1.18.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129549.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disk Space Analyzer Pro ранее как Disk Expert - приложение позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2020-2021 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E57D2A4F7AC1D3676253C155CA7B4259948FAAE
+magnet:?xt=urn:btih:C9DF93CE520E7FB3740CBC1F329607A451F01860
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,221 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489956   (129548) от 30.04.2012
+###  Публикация: 1683048   (129939) от 09.12.2023
 
-Лгунишка (1941) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об утенке-лгунишке, наказанном мамой за невыученные уроки.Жанр: ДетскийРежиссер: Иван Иванов-ВаноПродолжительность: 00:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2BD071C36A6502DDD68DF5176366BFB66EFFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490089   (129547) от 30.04.2012
-
-Анна Тьма | Крылатый [2010] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скучно. Нет, не так - ску-у-учно-о-о! Адская сессия, проклятие любого темного студента, сдана. Лето. Делать нечего… Вот так жаловался на жизнь и в итоге допросился. Родители предложили поехать в человеческие земли, и я рванул без оглядки! Там ведь друзья из самой лучшей моей, спаянной как единое целое команды Призраков - двойняшки Маньяки, Глюконавт, Юлька Рысь. И названый брат, напарник и лучший друг по прозвищу Апокалипсис, часть души которого я берегу в своей душе! Это должно было быть весело! Если бы я опять не вляпался как… как только я и умею. Со всей дури, по уши и в самое… интересное. Теперь бы как-нибудь выжить, сохранить свободу, не потерять крылья… А рядом - друзья Маньяки, брат Апокалипсис. И Ветер - самый настоящий живой смертный бог…2010Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4D9CA35DD4CD9FFD9E83C9BD627000F9B6E585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525364   (129546) от 20.01.2022
-
-Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129546.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Rhythm [3:21]
-02. Lennie's Song [4:09]
-03. Surrender [3:10](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 05:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43862116E28D804ED827F42322D4E70D2EC9ED1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525335   (129545) от 20.01.2022
-
-Джеймс Олдридж | Последний взгляд (2022) [MP3, Александр Подольский]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129545.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Последний взгляд" - тонкая, изящная история "воображаемого путешествия", которое предприняли Эрнест Хемингуэй и его близкий друг и соперник Фрэнсис Скотт Фицджеральд в поисках замка, описанного совершенно по-разному Виктором Гюго и Оноре де Бальзаком.
-Кто из друзей-писателей прав, кто ошибается? В сущности, это не так уж важно. Важно, что в ходе (   Читать дальше...   )Жанр: Cовременная зарубежная литератураПродолжительность: 06:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59A6274882D17D3004D2406A1EEE5C435F70699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525511   (129543) от 20.01.2022
-
-Meteora - Gradients II Westerlies (2016) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyclone Belt (8:22)
-02. Twisting Monster (6:58)
-03. Westerlies (6:50)
-04. Cataclysm (9:02)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6B0E18EB63B5EA1A64D931D6EE17AD45B547F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525508   (129541) от 20.01.2022
-
-Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic, Dreamwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Storm Warning (9:34)
-02. Through The Clouds (7:27)
-03. Heaven And Eternity (2:37)
-04. Gradients (9:27)(   Читать дальше...   )Жанр: Traditional Electronic, Dreamwave, SpacesynthПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1983B42DBFE8EE8BD5A854897A42F7670B6A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525391   (129538) от 20.01.2022
-
-AnyMP4 DVD Creator for Mac 6.2.26 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129538.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 DVD Creator – профессиональная утилита, которая позволяет создавать и записывать DVD из файлов популярных видео форматов, таких как 3GP, AVI, MP4, TS, FLV, MKV, а также создавать DVD-папки и ISO-файлы. Созданный DVD-диск без проблем можно будет воспроизвести на большинстве портативных и домашних DVD-плеерах.
-Кроме того, AnyMP4 DVD Creator позволяет редактировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374F3104C2638C4D59D7A1A41E9F9CA9B465B0E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525535   (129536) от 20.01.2022
-
-The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129536.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Call
-02. Where Are My Animals
-03. All the Way to Babylon
-04. Hard Enough(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:48
+01. Children's Eyes
+02. Into The Ring
+03. Starry Eyes
+04. Sunny Island(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FD0778254664D270DB90EAF8D26F807A4C1E5E9
+magnet:?xt=urn:btih:417C0962992784DF8C0FAAA1B80F7E93906CC31B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,27 +346,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525424   (129534) от 20.01.2022
+###  Публикация: 490693   (129938) от 01.05.2012
 
-Bootstrap Studio 5.9.1 [En]
+[Wallpapers] Computer Desktop Wallpapers Collection (01.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC94934A1532243EB7D7D1EB1BC821C180F3ABEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525143   (129937) от 19.01.2022
+
+Boxy SVG 3  v3.75.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129534.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 Zine EOODПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2012-2022 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C763D0353B7DE812D45D43F574DE52BCCB88EC5F
+magnet:?xt=urn:btih:DB1598230E1337C5D8638E20A16B38864B934BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,34 +398,244 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 490049   (129533) от 30.04.2012
+###  Публикация: 1683038   (129936) от 09.12.2023
 
-VA - Zillo Vol. 4 (2012) [MP3|320 кб/с]<Electro, EBM, Industrial, Gothic Rock, Metal>
+Все болельщицы умрут / All Cheerleaders Die (2013) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушки из группы чирлидерш погибают не по своей вине. Но вскоре загадочным образом воскресают и начинают мстить, наводя в школе ужас и сея вокруг себя смерть...Производство: США, ModerncineЖанр: фэнтези, ужасы, комедияРежиссер: Лаки МакКи, Крис СивертсонАктеры: Кэйтлин Стэйси, Сианоа Смит-МакФи, Брук Батлер, Аманда Грейс Купер, Том Уильямсон, Крис Петровски, Ли Паркер, Николас С. Моррисон, Джордан УилсонПеревод: авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3969B0535FB3D04ACB84ECDAD5F32CDFD61F548C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683022   (129934) от 09.12.2023
+
+Балабол (2023) WEBRip (сезон 7, серии 1-24 из 24)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саня Балабин уверен, что всё может и умеет сам, но зачастую попадает в безвыходные ситуации, когда спасти его могут только друзья. В отделе появляется новичок — лейтенант Чекашин — Саня найдёт себе новый объект для шуток и подколов. Сам же очутится внутри неожиданного любовного треугольника: в город вернутся Анжелика и Марьям, а вместе с ними и новые приключения. (   Читать дальше...   )Производство: Россия | «TM Production»Жанр: Детектив, комедияРежиссер: Михаил ГалинАктеры: Константин Юшкевич, Вадим Андреев, Инга Оболдина, Илья Шляга, Мария Пирогова, Ирина Низина, Ольга Плешкова, Григорий Сиятвинда, Юлия Такшина, Гоша КуценкоПродолжительность: ~00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BCF10DC3243AF0ED1CFE222961C7E479148AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525056   (129933) от 19.01.2022
+
+VA - C Recordings 2021 (2022) [AAC|~309 Kbps] <Drum & Bass, Liquid Funk, Deep Dubstep>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferice, Solr - Tides (4:54)
+02. Echomatics - Shouldn't We (5:49)
+03. Ferice - What You've Done (4:51)
+04. Soul Connection - Body Love (5:31)(   Читать дальше...   )Жанр: Drum & Bass, Liquid Funk, Deep DubstepПродолжительность: 03:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C799D65227610383052689E1D101C952D5923D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490694   (129932) от 01.05.2012
+
+[Wallpapers] Best HD Wallpapers Pack (01.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC216DCD5A7DF26BCE0655E2B23AAB7C43898C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682911   (129931) от 09.12.2023
+
+Журнал | М-Хобби №12 (270) (декабрь 2023) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129931.jpg" />
+</div>
+
+
+###  Подробнее
+
+М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерства.Жанр: Моделизм, военная историяИздательство: ООО "Издательство "Цейхгауз"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2AD5608C7A23B7FA09C5668813D2560CAD2E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525052   (129930) от 19.01.2022
+
+VA - The Best of Transensations (2018 - 2020) (2021) [AAC|~338 Kbps] <Progressive House, Melodic House, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorkiz - Strutter (Kamilo Sanclemente Remix) (8:36)
+02. RIGOONI - Sopdet (8:07)
+03. Carlos Tk - Hope (Weird Sounding Dude Remix) (8:00)
+04. Fel C - Floripa in Chaos (Andre Moret Remix) (8:00)(   Читать дальше...   )Жанр: Progressive House, Melodic House, Organic HouseПродолжительность: 05:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961A9474E55BB0A76588EE43FBB5C4255D48BBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670760   (129928) от 09.12.2023
+
+Без ума от Мадонны / Crazy for Madonna (2018) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляд на биографию иконы музыки и Голливуда, Мадонны, прозванной королевой поп-музыки. Ее выдающаяся карьера охватывает более четырех десятилетий. Не боясь споров и осуждений, Мадонна навсегда изменила историю поп-культуры.Производство: США, Sabbatical EntertainmentЖанр: документальный, история, биография, музыкаРежиссер: Карла ДуартеУчастники: Офелинда ГарсияПеревод: двуголосый профессиональный (SDI Media Россия)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B15DB1D8D95AF40D4C357EFF46677CC509DE194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683056   (129926) от 09.12.2023
+
+Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prepare for an explosive journey through a blistering setlist with Duran Duran's 'A Hollywood High' on Blu-ray and DVD. Visually stunning, this electrifying high-rise rooftop performance was filmed in Los Angeles at The Aster, framed against an iconic LA skyline and the Capitol Records building. Experience the pulsating energy of the band's timeless music in crystal-clear (   Читать дальше...   )Производство: Last Man MusicЖанр: Rock, New WaveПеревод: ОтсутствуетПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A845DF4FB92260AB545145B758E34F3F7BA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490710   (129925) от 01.05.2012
+
+Einherjer - Norron (2011) [MP3|320 кб/с]<Viking Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129533.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ministry - 99 Percenters (03:55)
-02. Wumpscut - Grobian (Nigen-Remix) (05:49)
-03. Faderhead - Older Now (03:04)
-04. Eklipse - In The End (03:03)
-05. Tiefenstadt - Do We Cheat God Now (03:36)
-06. Maerzfeld - Hubschlerin (03:57)
-07. Eths - Adonai (04:02)
-08. Schramm - Illuminati (04:04)
-09. Object - Under Zero Halo (05:14)
-10. Detroit Diesel - Let's Pretend (04:11)(   Читать дальше...   )Жанр: Electro, EBM, Industrial, Gothic Rock, MetalПродолжительность: 01:12:29
+1. Norrøn Kraft
+2. Naglfar
+3. Alu Alu Laukar
+4. Varden Brenne
+5. Atter På Malmtings Blodige Voll
+6. Balladen om Bifrost2011Жанр: Viking MetalПродолжительность: 00:41:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E8F8560F79EBE712A53969D2F920EC1B18C9DE
+magnet:?xt=urn:btih:4677FE2515D140937802020855C09C1CA519B461
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,187 +643,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525177   (129532) от 20.01.2022
+###  Публикация: 1683008   (129924) от 09.12.2023
 
-Bonde Do Role - With Lasers (2007) [FLAC|Lossless|image + .cue] <Breakbeat, Hip Hop, Dance, Latin>
+VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Irina Поворознюк - Не Ной (02:49)
+ 002. 84 - Люди Хотят В Космос (02:48)
+ 003. 84 feat. Lookbuffalo - Магия (02:31)
+ 004. 84 feat. Rekudo - Руки в Потолок (02:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489437   (129923) от 01.05.2012
+
+VA - Anjunabeats Worldwide04 mixed by Maor Levi & Nitrous Oxide (2012) [MP3|~245 кб/с (V0)]<Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129532.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danзa do Zumbi (02:51)
-02. Solta O Frango (02:15)
-03. James Bonde (01:59)
-04. Tieta (01:59)(   Читать дальше...   )Жанр: Breakbeat, Hip Hop, Dance, LatinПродолжительность: 00:30:34
+CD1: mixed by Maor Levi
+Продолжительность: 01:19:06
+01. Breakfast pres. Keyworth - Splitting
+02. Maor Levi - Won't Say No
+03. Tate & Diamond feat. Nicolai - Electrified (Mat Zo Remix)
+04. Mat Zo - It's Yours
+05. Inpetto - No More Serious Faces
+06. Boom Jinx feat. Justine Suissa - Phoenix From The Flames (Maor Levi Remix)
+07. 3rd Planet - Sevas
+08. Norin & Rad - Pistol Whip(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 02:36:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:877527F1255F6E96CA8442BD991DEC1D0B0C0A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525360   (129530) от 20.01.2022
-
-Жан-Филипп Арру-Виньо (Jean-Philippe Arrou-Vignod) | Сборник произведений [7 книг] (2014-2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жан-Филипп Арру-Виньо (Jean-Philippe Arrou-Vignod) (род. в 1958) — французский писатель, автор серии детских книг «Приключения семейки из Шербура» и «Магнус Миллион и Мимси Покет», содержащих автобиографические элементы. Арру-Виньо рос в большой семье: он был одним из тех самых шести братьев Жанов, вторым по старшинству. В детстве он очень любил читать. В 1984 году (   Читать дальше...   )Жанр: Детская приключенческая литератураПеревод: М. Бунос, И. ФилипповаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659A096C86D1A9DA9EC225C8778B6FB160C158C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525356   (129528) от 20.01.2022
-
-Самуил Маршак | Быль-небылица (1947) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ребята, прячась от дождя забрели в подъезд. Следом за ними, туда же зашли и рабочие. И пока пережидали ливень, один из рабочих поведал детям историю дома напротив.Жанр: Стихи, РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EFE88139FB550400A1BA3BFAF758014E07C24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525304   (129526) от 20.01.2022
-
-Протоиерей Симеон Вишняков | Святой Великий Пророк Предтеча и Креститель Господень Иоанн (2011) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Святой Великий Пророк Предтеча и Креститель Иоанн» составлена в соответствии с ходом евангельских событий и отличается широтой охваченных тем. На её страницах представлена историческая действительность, в которой проповедовал Предтеча Господень, объяснены ветхозаветные священнодействия и обряды, дана характеристика правителям Палестины и последователям раввинского (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336C793A7FFC80C192578D7012E109B75FB5F2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525486   (129524) от 20.01.2022
-
-MacCleaner 2 PRO 2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A853780D80574B69D22F3C0E91693CD94AB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525147   (129522) от 20.01.2022
-
-VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Sylvan Bliss (06:05)
-02. Michael E - When Eyes Speak (feat Diego Porchile) (05:21)
-03. Matt Sour - Longing For The Sea (04:05)
-04. Simon Le Grec - Sibir (radio mix) (04:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5DE18DE6D207C026639A359C019018E82661D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489955   (129521) от 30.04.2012
-
-[EN] Глаз шторма / The Eye of the Storm (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элизабет Хантер способна управлять всеми сторонами своей жизни, будь то отношения с обществом, с ее прислугой или с детьми. Однако теперь некая большая красота вызывает ее последний шокирующий поступок, поскольку она выбирает время своей смерти.Жанр: ДрамаРежиссер: Фред СкеписиАктеры: Дастин Клер, Джеффри Раш, Шарлотта Рэмплинг, Джуди Дэвис, Колин ФрилзПеревод: ОтсутствуетПродолжительность: 01:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDD4B9129BE041C1E6AF72AF39FE94BC84EC517
+magnet:?xt=urn:btih:158B2C7B9D01CEE6BE7CC6A6DC69D077EE720C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

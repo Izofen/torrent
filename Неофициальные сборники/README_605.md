@@ -1,3 +1,206 @@
+###  Публикация: 1271247   (150185) от 23.12.2018
+
+VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Gaulin  -  Moonlight
+04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271473   (150180) от 23.12.2018
+
+VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Emperor Of China (Original Mix) 7:36
+02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
+03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
+04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086555   (150124) от 25.12.2016
+
+VA - Jazzy And Chic The Perfect Smooth Jazz Selection For Your Dinner (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claire Michael, Patrick Chartol and Jean Michel Vallet - Falling in Love (Main) 3:23
+02. Benoit Pimont - Blue Bar 3:11
+03. Raul De Souza - Valsa do Dia 6:29
+04. Homer Greencastle - Life Passes On By 2:31(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F895156295580DB058A7213B999E72E9B8BA230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271464   (150014) от 23.12.2018
+
+VA - Tranceformation 2018 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
+02. Rene Ablaze & Tiff Lacey - Tonight
+03. FloE & Alex Byrka - Intuition (Extended Mix)
+04. HyperPhysics - Starlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 13:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3C7CC2F9E1EE7420CDC854240570142562012F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968696   (149762) от 25.12.2015
+
+VA - Корпоратив 2016 (mixed by Dj V) (2015) [MP3|320 кб/с] <Club House, Disco House, Dance, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Slider & Magnit vs. Karmin - Last Christmas Brokehearted
+02-Pitbull - I Know You Want Me (DjChe.Ru MashUp)
+03-DJ Zhukovsky feat. Laura Grig - I Will Survive (DJ Favorite & DJ Lykov vs. DJ T'Paul Sax Remix)
+04-Gregor Salto & Kaoma - Lambada 3000 (Cubrasil Mix)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Deep HouseПродолжительность: 03:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1496B436A3674AEE8E648EB0112E733878CB8389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271293   (149745) от 23.12.2018
+
+VA - Options Remake Of Tracks December -B- (2018) [MP3|320 Kbps] <Electronic, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maksim Palmaxs - Across the Sands of Sahara
+02. Following Light - Existence
+03. Christian Monique - Renaissance (Original Mix)
+04. Fuenka - Yantra (Original Mix)(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 05:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B35E8E40C5026176A76C084A03198B29E60B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969145   (149462) от 26.12.2015
+
+VA - Клубная кайфовая вечеринка (2015) [MP3|128-320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Grid Vs. Slider & Magnit - Tu Es Foutu (Dj Kirillich Mashup)
+02. Nevel Feat. Seana - I'm Your Fever
+03. Tinie Tempah Ft Jess Glynne - Not Letting Go
+04. Guru Project & Tom Franke Feat. Coco Star - I Need A Miracle (Catch 458 Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 04:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F652FAA303AFD633FE766ECC4FCB18A37C24F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086799   (149457) от 25.12.2016
 
 VA - 100 Самых красивых Новогодних песен (2016) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -546,209 +749,6 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519430   (148684) от 24.12.2021
-
-VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
-002. Grum - Price Of Love
-003. Lezcano - In My Time Of Need
-004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271521   (148680) от 24.12.2018
-
-VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan
-02. Selena Gomez - Back to You
-03. Ed Sheeran - Shape of You
-04. Ariana Grande - God Is A Woman(   Читать дальше...   )Жанр: Pop, Hip Hop, Alternative, DanceПродолжительность: 05:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519122   (148674) от 24.12.2021
-
-VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данную сборку можно рекомендовать для тех, кто находится в поисках вдохновения. Ведь общий настрой треков этого сборника наполнен оптимизмом. В этот момент хочется радоваться жизни, танцевать и показать всем, что ты в отличном настроении. То, что нужно для максимального заряда перед выходными!001. Dazz & Calvo - Alone Together
-002. Stylove - I Feel Alive (Extended Mix)
-003. Atb feat Ben Samama - Like That
-004. DJ Bobo - There Is A Party(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347709   (148656) от 24.12.2019
-
-VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duneeater - Stigma 66
-002. Gran Duca - All Hail The Autowagen
-003. Senchineru - Creep
-004. Let Them Hang - Network In Blood(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 08:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954E8AE069CD0D877D09A5A1841059247ABCFA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519437   (148651) от 24.12.2021
-
-VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная подборка позитивных танцевальных треков в стиле "Завтра выходной!". Окончание рабочей или учебной недели для каждого нас настоящий праздник. Ведь впереди выходные, и в конце концов можно расслабиться. А проводить выходные лучше всего под музыку, создающую правильный позитивный настрой.001. Jason D3an & Jack Lack - Dream About You
-002. Ed Sheeran - Bad Habits
-003. Paul Reeves - I'm In
-004. Tenzin - Club Banger(   Читать дальше...   )Жанр: EDM, Dance, ClubПродолжительность: 07:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA67104C4F87ACFDA91374CB5B8DE993C60A6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519439   (148640) от 24.12.2021
-
-VA - Friday Night: EDM Dance Party (2021) [MP3|320 Kbps] <Dance, Electro, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культура клубной музыки — явление довольно уникальное. Особая атмосфера и, конечно, музыка — это то, что создаёт настроение тех, кто пришел отдохнуть на танцполе. Клубная музыка отличается от других музыкальных стилей прежде всего особым драйвом, заставляющим Вас снова и снова выплескивать бурю эмоций в энергичном танце.001. Basanata - Hide And Seek
-002. Andrew Spencer - Think About The Way 2021
-003. Lost City feat Emerique - In Pose
-004. Bsharry - What's(   Читать дальше...   )Жанр: Dance, Electro, Club, HouseПродолжительность: 08:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B056BF5FBF7D2EAE39A8DCF937EFA3CA46CD207D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271780   (148636) от 24.12.2018
-
-VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake - God's Plan
-002. Ed Sheeran - Perfect
-003. Bebe Rexha;Florida Georgia Line - Meant to Be (feat. Florida Georgia Line)
-004. Camila Cabello;Young Thug - Havana(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4354B865D4C9B58795E8D41C9AE9A71E1AF7CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

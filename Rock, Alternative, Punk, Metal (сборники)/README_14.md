@@ -1,3 +1,32 @@
+###  Публикация: 1276661   (787206) от 18.01.2019
+
+Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marie
+002. Sang pour sang
+003. Ça ne change pas un homme
+004. Diego, libre dans sa tête (Live à Paris-Bercy / 1990)(   Читать дальше...   )Жанр: RockПродолжительность: 05:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276833   (787201) от 18.01.2019
 
 The Cranberries - I Still Do (2019) [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ Uriah Heep - The Byron Era (2018) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F236FDA96F5AED4BD492F6833D83AA37BFD53CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211791   (776741) от 09.03.2018
-
-VA - 100 Hits Rock (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Би-2 - Ля-ля тополя (Музыка Из Фильма О Чем Говорят Мужчины. Продолжение)
-02. Мумий Тролль - Милота
-03. Дана Соколова - Голос (feat. L'One)
-04. Би-2 - Виски(   Читать дальше...   )Жанр: RockПродолжительность: 06:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A5D327EEAEDD08007D43B254C3F4574E660CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

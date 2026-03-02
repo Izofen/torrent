@@ -1,22 +1,25 @@
-###  Публикация: 554357   (436672) от 01.10.2012
+###  Публикация: 958330   (319004) от 23.11.2015
 
-Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
+Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436672.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: TranceПродолжительность: 00:04:41
+Бонусный диск к альбому Whitesnake - The Purple Album (2015). Представлены четыре видеоклипа на песни с альбома, а также документальный видеоматериал по созданию альбома.1. Lady Double Dealer (Music Video)
+2. Sail Away (Music Video)
+3. Stormbringer (Music Video)
+4. Soldier Of Fortune (Music Video)(   Читать дальше...   )Жанр: Hard Rock, ДокументальныйПеревод: ОтсутствуетПродолжительность: 29:10 + 26:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21EFCA15708E77E023D8AB66CB9019F0D1C2D759
+magnet:?xt=urn:btih:A6387333F47D8BCF58D6ABE47FEE86111883CFB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554359   (436437) от 01.10.2012
+###  Публикация: 583051   (315360) от 01.12.2012
 
-David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRip
+Вася Обломов - УГ (2011) HDCam
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436437.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Trance, HouseПродолжительность: 00:03:57
+Клип Васи Обломова (Гончарова) из альбома "Повести и Рассказы."Жанр: Rock / Альтернативный шансон / Стёб-ХопПродолжительность: 00:03:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8805E4EA77CB21E4F7A9721FE7EBC5AA1385B219
+magnet:?xt=urn:btih:AC9AFA3C5BB1BCCB78FFC51AD2F89BCFC5928850
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,34 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554261   (435838) от 01.10.2012
+###  Публикация: 582574   (314869) от 01.12.2012
 
-Smokie  Greatest Hits 1975-1979 (2011) DVDRip
+Сборник клипов - VA - Various Music part. 37 (2012) WEBRip 720p, 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435838.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лучшие клипы группы01. Living Next Door To Alice
-02. Needlies And Pins
-03. Don't Play Your Rock'n'Roll To Me
-04. If You Think You Know How To Love Me
-05. Do To Me
-06. Mexican Girl
-07. Run To Me
-08. Oh Carol
-09. I'll Meet You at Midnight
-10. Living Next Door to Alice (from "Musikladen")(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:09:10
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~07:09:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54E0EF2A2700E3BB7ABC7AACEF992BBFCDDD6209
+magnet:?xt=urn:btih:7DBE23CB8B673DE6DADE675B2798432DB2466215
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,35 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554702   (435702) от 01.10.2012
+###  Публикация: 1182434   (314216) от 11.11.2017
 
-Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
+Ленинград / Вояж (2017) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435702.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nazareth — шотландская рок-группа, созданная в 1968 году музыкантами группы The Shadettes в городе Данфермлин. В оригинальный состав вошли: вокалист Дэн Маккаферти, гитарист Мэнни Чарлтон, басист Пит Эгнью и барабанщик Дэррил Свит.
-Собраны лучшие клипы группы.01. Morning Dew. (72).
-02. Love Hurts. (1974).
-03. This Flight Tonight.(74).
-04. Jetlag (75).
-05. Bad Bad Boy (75).
-06. Kentucky Freid Blues.(77) .
-07. Place In Your Heart. (1977).
-08. Born To Love.(77).
-09. Night Woman.(77).
-10. Shot Me Down (1977).(   Читать дальше...   )Продолжительность: 02:23:38
+Знаменитая группа «Ленинград» и ее лидер, любитель крепкого словца Сергей Шнуров, представили клип к композиции "Вояж"Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:05:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DA7EDEFBA231076D96E4DC00E7E7AACA590E10A
+magnet:?xt=urn:btih:D4C63562C8C127F9B53309060F366E5FB5129D42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -121,34 +105,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 554887   (433672) от 02.10.2012
+###  Публикация: 1182274   (314087) от 11.11.2017
 
-W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
+Сборник клипов - Philizz "Back To The 90s" (episode 7) (2017) WEB-DLRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433672.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипы группы01. Animal F*** Like A Beast
-02. L.O.V.E. Machine
-03. I Wanna Be Somebody
-04. On Your Knees
-05. Blind In Texas
-06. Wild Child
-07. I Don't Need No Doctor
-08. The Real Me
-09. Forever Free
-10. The Idol(   Читать дальше...   )Жанр: Музыка, Metal, Hard rock
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Серия видеомиксов популярных клипов 90-х годов - седьмая часть, заключительная. Энергичная танцевальная музыка в стиле Eurodance, Techno и Hardcore. Танцуем под легендарную музыку 90-х!
+- Разбивка по трекам отсутствует.Ramirez – El Gallinero
+The Prodigy – Out Of Space
+Captain Jack – Captain Jack
+JX – You Belong To Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BE98089D64E9166137944DBBFA2C34CCDA5F91B
+magnet:?xt=urn:btih:EF8F1F4E573D33FD9A55B0E4E9061568C5B6C5DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,25 +135,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 555652   (431781) от 03.10.2012
+###  Публикация: 583465   (312868) от 02.12.2012
 
-Cinnamon Chasers (2012) [1080p] HDTVRip
+Не Мощные - No Fake (Uncensored) (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431781.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ElectronicПродолжительность: 00:04:04
+Жанр: PopПродолжительность: 00:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F75757E3218E6ACEECF271D1C665150BFD1E683
+magnet:?xt=urn:btih:95FBE30D957A21723404294FF39870565424215A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,25 +161,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 946086   (429167) от 12.10.2015
+###  Публикация: 1182872   (312197) от 12.11.2017
 
-Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
+Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429167.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Eminem представляет новый видеоклип под названием «Phenomenal», который является саундтреком к фильму «Левша».Жанр: Rap & Hip-HopПродолжительность: 00.07.21
+Жанр: PopПродолжительность: 00:04:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:901746427F55731F57413156BA7C50AEADAD081B
+magnet:?xt=urn:btih:BADEBBCAB191BFCAA8C9264F11E162321C96CD44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,28 +187,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 946524   (427054) от 13.10.2015
+###  Публикация: 959508   (311924) от 26.11.2015
 
-VA - Осенний марафон № 197 / Видеоклипы (Дискотека с Размахом) (2015) WEBRip [H.264/1080p-LQ]
+Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427054.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (13.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adam Lambert - Another Lonely Night (Official Video) (00:03:30)
-02. Becky G - Break A Sweat (Official Video) (00:03:32)
-03. Carlos Baute - Perdimos El Control (Official Video) (00:03:34)
-04. Dj Layla ft. Sianna - I Need Love (Official Video) (00:03:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, SoulПродолжительность: 01:28:19
+Американская актриса и певица Селена Гомес (Selena Gomez) покорила интернет клипом к новой композиции Good For You. Изначально трек был записан при участии известного рэпера A$AP Rocky. Но для съемок видео певица выбрала урезанную и чуть менее откровенную версию сингла.Жанр: PopПродолжительность: 00:03:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE72411455E2166BABBAD5AB0AB6344D6D717279
+magnet:?xt=urn:btih:5D10AA81B05B8514119BB42F0FF49F713A4E670F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,26 +213,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409166   (425381) от 26.09.2020
+###  Публикация: 959990   (311754) от 26.11.2015
 
-Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
+VA - Осенний марафон № 207: Коктейль Хит Новинок (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425381.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Незадолго до своей смерти Долорес О'Риордан собиралась записать новую версию "Zombie" вместе с группой Bad Wolves.
-В память о ней, Bad Wolves выпустили этот кавер, вся прибыль от которого была отдана детям певицы.Производство: © 2018 Eleven Seven Music GroupЖанр: Rock, AlternativeРежиссер: Уэйн ИшамАктеры: Томми Векст, Док Койл, Джон Беклин и другиеПродолжительность: 00:04:35
+Осенние (26.11.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. 5sta Family - Метко (Премьера!) (00:03:24)
+02. Alexandra Stan - I Did It, Mama! (Official Video) (00:03:48)
+03. Amure - Dolphins (Official Video) (00:06:39)
+04. Assia Ahhatt - Prelude of Joy (Official Video) (00:04:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, Electronic, SynthpopПродолжительность: 01:35:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BC5F5F4B9E44A1CD21F8F4F1B718296F536CE2D
+magnet:?xt=urn:btih:5E7507029A6FF9E470CAD9DEBE11FF43B534C438
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +242,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323451   (425095) от 09.09.2019
+###  Публикация: 1183033   (311497) от 12.11.2017
 
-Артур Пирожков - Алкоголичка (2019) [H.264/1080p-LQ] WEBRip
+Сборник клипов - Night of Love от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425095.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Недавно Александр Ревва, больше известный под творческим псевдонимом Артур Пирожков, выпустил новый хит «Алкоголичка», который за 10 дней собрал больше 20 миллионов просмотров в YouTube.Жанр: PopПродолжительность: 00:05:57
+Доп. информация
+В сборник вошли клипы Enigma и другие исполнители в этом же направлении. Красивое видео и красивая музыка. Он подходит для приятного провождения времени с любимым человеком или досуга, ну или простого релакса и отдыха. Это 1я часть сборника. Да прибудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+001 Enigma - The Voice Of Enigma, Sadeness
+002 Enigma - Principles Of Lust
+003 Enigma - Callas Went Away(   Читать дальше...   )Жанр: New ageПродолжительность: 03:44:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BEC8F76A0534998771DFE9EAC25CA8EE77FD057
+magnet:?xt=urn:btih:27C0411B275E2C53F878E8678F4838F93C079B99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,28 +272,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 946297   (424800) от 14.10.2015
+###  Публикация: 583840   (310183) от 03.12.2012
 
-VA - Осенний марафон № 196 / Видеоклипы (Коктейль Танцевальных Хитов) (2015) WEBRip [H.264/1080p-LQ]
+The Best of...(vol.2) (2011) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424800.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (09.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ami - Camina (Official Video) (00;03:11)
-02. Amure - Tango In The Sky (Official Video) (00:07:19)
-03. Eros Ramazzotti ft. Ani Lorak - Piu Che Puoi (Live @ New Wave 2015) (00:05:09)
-04. Ferreck Dawn - Jolene (Lyric Video) (00:03:15)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, DubstepПродолжительность: 01:34:45
+Жанр: Музыка,Bright rock, Prog-rock, Glam-rock
+Easy listenining, Melodic rock, Pop, Classic rock, Rock 'n' rollПродолжительность: 01:28:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D323B48B623151F2B06F78E0E2536FD818847A1B
+magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 556781   (424788) от 06.10.2012
+###  Публикация: 584646   (307911) от 04.12.2012
 
-Zaira - Mi vida (2012) [H.264/720p] WEBRip
+Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424788.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:45
+Новогодний клипЖанр: RapПродолжительность: 00:03:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7552A77EAA2BE442B4200C853FFE0F1FA99E9E7
+magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,30 +325,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 557220   (418823) от 08.10.2012
+###  Публикация: 584559   (307902) от 04.12.2012
 
-Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVDRip
+Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418823.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
-
-Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
-2. Barcelona - La Nit performance
-3. How Can I Go On - La Nit performance
-4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
+Жанр: InstrumentalПродолжительность: 00:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFEF2A8F5011DE222C3C6B163DF069CA3F5D0B38
+magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,26 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064618   (418459) от 23.10.2016
+###  Публикация: 584650   (307582) от 04.12.2012
 
-The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
+The Best of...(vol.3) (2011) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418459.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Режиссер российско-американского фильма «Хардкор» Илья Найшуллер снял клип для канадского певца The Weeknd.
-Россиянин Илья Найшуллер прославился вирусными музыкальными видео своей группы Biting Elbows, а в 2016 году под опекой Тимура Бекмамбетова дебютировал в Голливуде фильмом «Хардкор» — боевиком, снятым целиком от первого лица. В «False Alarm» использован ровно (   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:05:45
+Жанр: Музыка, Pop, Easy Listening,Prog rock, Folk rock, Big beat,DiscoПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB40BEE5A24996B93492349ED4DDCFD9C653D73A
+magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,25 +377,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 456061   (416154) от 09.10.2012
+###  Публикация: 585195   (305745) от 05.12.2012
 
-Любэ, Корни, In2Natiоn - Просто Любовь (2012) HDTVRip [720p] [hand made 60fps]
+Slim - Шлягер (2012) WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Официальный соундтрек к фильму "Август. Восьмого"Жанр: Фолк-рокРежиссер: Д.Киселев   (С) 2012 ООО Продюсерский центр И.МатвиенкоАктеры: Любэ, Корни, In2Natiоn (Интонация) и актёры фильма "Август. Восьмого"Перевод: ОтсутствуетПродолжительность: 03:18
+Жанр: Rap, Hip-hopПродолжительность: 00:04:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8936C61D714FECAF1738F6D44820B6EF5BBA65B6
+magnet:?xt=urn:btih:27A239D5E543C2BDCBBD3132AC7925FB2DB31945
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,26 +403,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412526   (413464) от 01.10.2020
+###  Публикация: 960911   (300795) от 01.12.2015
 
-Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <Instrumental Moden Metal>
+VA - Осенний марафон № 208: Хиты с доставкой на дом (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413464.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Премьерный 29.09.2020 релиз видеоклипа от виртуозов Instrumental Moden Metal "Nuclear Power Trio"
-В ролик инсталлирован аудиотрек данного релиза 24-Bit / 48.0 kHzПроизводство: Metal Blade Records / The Orchard MusicЖанр: Instrumental Moden MetalАктеры: Nuclear Power TrioПродолжительность: 00:03:36
+Осенние (29.11.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Alessandra - Khalia (Official Video) (00:03:02)
+02. Amna ft. Robert Toma - In oglinda (Marc Rayen & Electric Pulse Remix) (VJ Tony Video Edit) (00:03:31)
+03. Cheryl Cole - Ghetto Baby (Official Video) (00:03:09)
+04. Chris Brown - Fine By Me (Official Video) (00:05:40)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:32:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3981A5FA6156711A3FC93FA838895643BB82A13
+magnet:?xt=urn:btih:F586ED41D78789D10ED9FBB23D8242B0C62E480E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,28 +432,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 947680   (411098) от 20.10.2015
+###  Публикация: 1184467   (296941) от 19.11.2017
 
-VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411098.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
-02. Bielfield - Frequency (Official Video) (00:03:21)
-03. Corina Smith - La Difícil (Official Video) (00:03:16)
-04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 2я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+061 Бейбит Корган - Сок-сок
+062 Mysterions - Неге ундемедин
+063 Дастан Оразбеков - Сезим(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
+magnet:?xt=urn:btih:AAB81AC541393D0D626E66420C9DECE5AAAF8F2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,25 +461,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559270   (409693) от 12.10.2012
+###  Публикация: 1184757   (296750) от 19.11.2017
 
-Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
+Сборник клипов - Best Hits 80 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409693.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: AlternativeПродолжительность: 00:04:49
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+058 Tina Turner - Simply The Best
+059 Sandra - Maria Magdalena
+060 Lisa Stansfield - All Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
+magnet:?xt=urn:btih:DF54D5903ED92CBD62018A2CE3F78EEBE8BC9C36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,26 +490,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559503   (409588) от 12.10.2012
+###  Публикация: 961813   (296560) от 03.12.2015
 
-Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
+VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409588.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отличнейший сборник  клипов (heavy metal, hard / glam rock) ...
-( Некоторые клипы ну ОЧЕНЬ редкие!)Жанр: Музыка,Heavy Metal, Hard , Glam RockПродолжительность: 00:50:49
+Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 27 ноября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе в основном использованы официальные видеоролики.01. Justin Bieber - Sorry (3:25)
+02. Justin Bieber - Love Yourself (4:32)
+03. Adele - Hello  (6:07)
+04. Justin Bieber - What Do You Mean  (4:58)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Top40Перевод: ОтсутствуетПродолжительность: 02:38:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83C874A0D9299E562FBC635FA96609BAE96FFD64
+magnet:?xt=urn:btih:AED724C2BCD02ABD5B2496C60A778465B4FB2D50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +519,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168284   (408562) от 24.09.2017
+###  Публикация: 731409   (295119) от 08.12.2013
 
-Облака плывут над головой (2017) WEB-DLRip [H.264/720p-LQ]
+Сборник клипов - VA - Various Music part. 48 (2013) WEBRip 720p, 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408562.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хочешь время жди хочешь правды нет ответов без упреков и запретов там вдали странных птиц седая стая первый желтый лист растаял лишь дотронувшись земли облака плывут над головой я с ними ухожу оставив землю людям облака плывут и надо мной я с ними ухожу я больше так не буду кто придумал сны переделанную правду как герои без награды не видны где то есть другое море (   Читать дальше...   )Производство: РоссияЖанр: Рок, Поп-рокПродолжительность: 00:04:09
+1. 140 Ударов в минуту - А я скучаю очень 1080p (4:20)
+2. 5sta Family - Буду с тобой 1080p (3:36)
+3. Akcent - Lacrimi curg 1080p (3:59)
+4. Alex Kunnari & Heikki L ft. Joel Madden - City of Sin 1080p (3:41)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:16:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B82676F14A037088B780B250CDAA1C5101B866A8
+magnet:?xt=urn:btih:7558DF5F71471AF6396E7BA59B025E190A446418
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +548,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412560   (407220) от 05.10.2020
+###  Публикация: 962343   (294715) от 04.12.2015
 
-Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
+Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407220.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот бонусный диск содержит избранные клипы и концертные записи Masami Okui 1993-2003 годов с комментариями самой Masami. Диск 2 из 2.Rinbu-revolution
-J
-Tenshi no Kyuusoku
-Koishimasho Nebarimasho(   Читать дальше...   )Производство: ЯпонияЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 01:07:53
+Вашему вниманию предлагаем лучшую подборку видео клипов Тремера Дилларда или Фло Рида.1. A-Roma feat. Flo Rida and Shawn Lewis - A Prayer (Official Video) (00:03:29)
+2. Austin Mahone ft. Flo Rida - Say You're Just A Friend (Official Video) (00:03:15)
+3. Charmani ft. Flo Rida - Paint This Town (00:03:33)
+4. Erika Jayne ft. Flo Rida - Get It Tonight (00:03:44)(   Читать дальше...   )Жанр: House, Trance, Rap, Hip-HopПродолжительность: 01:40:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3D179525F264AA02866CF0F52E1E2649D923308
+magnet:?xt=urn:btih:1B397EFDDA41AAFDEB2381AF553A33F70C88B8B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,36 +577,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560515   (406584) от 15.10.2012
+###  Публикация: 962117   (294585) от 04.12.2015
 
-Рок помощь Армении / Rock Aid Armenia (1989) VHSRip
+VA - Зимний марафон № 209: Дискотека с доставкой на дом (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406584.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rock Aid Armenia — название благотворительных музыкального альбома и концерта, состоявшегося 8 июля 1989 в Лондоне в поддержку пострадавших в Спитакском землетрясении.
-В концерте приняли участие многие известные хард-рок и хеви-метал коллективы, собравшиеся в исторической Metropolis Studios в Лондоне для записи благотворительного проекта, доходы от которого пошли в пользу пострадавших от землетрясения в Ленинакане (Армения) в 1988 году.
-Главным моментом сборника стал римейк хита01. Emerson, Lake & Palmer - Fanfare for the Common Man
-02. Bon Jovi - Livin' on a Prayer
-03. Gary Moore - After the War
-04. Iron Maiden - Run to the Hills
-05. Black Sabbath - Headless Cross
-06. Led Zeppelin - Dazed 'N' Confused
-07. Asia - Heat of the Moment
-08. Foreigner - Hearts Turn to Stone
-09. Mike And The Mechanics - Silent Running
-10. The Firm - Satisfaction Guaranteed(   Читать дальше...   )Жанр: Музыка,Hard RockПродолжительность: 01:17:53
+Зимние (03.12.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. A-Dessa (Стас Костюшкин) - Караочен (Премьера!) (00:04:20)
+02. Azary ft. Kleo and Alldavay - Ах, какой казах (Official Video) (00:03:36)
+03. Carrie Underwood - Heartbeat (Official Video) (00:04:02)
+04. Chus and Ceballos ft. Astrid Suryanto - All I Want (Official Video) (00:04:03)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, SynthpopПродолжительность: 01:35:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F70C155B8827292FA8822E2224987200E8B44143
+magnet:?xt=urn:btih:97298AE6830C980A1887D2EC376437EFC247CB89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -630,25 +606,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560684   (406556) от 15.10.2012
+###  Публикация: 962452   (294480) от 04.12.2015
 
-Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
+4G (4 Girls) - Улыбайся (2015) WEBRip [4K] [H.264/2160p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406556.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Alternative, VocalПродолжительность: 00:10:09
+Группа Максима Фадеева - 4G (состав группы: Дарина Иванова, Ирина Морозова, Аня Егорова и Софья Голубева), выпустила новый клип на песню "Улыбайся".Жанр: PopПродолжительность: 00:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F31400391482C4868CA7EBB47A6F4CDD2D9525BB
+magnet:?xt=urn:btih:1F2BC6CE9C9D1B915EB889A84E0B7307C68E26BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,25 +632,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561417   (406178) от 17.10.2012
+###  Публикация: 1185103   (293122) от 21.11.2017
 
-Dreamshow - Animals (2012) [H.264/1080p] WEBRip
+Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406178.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Electronic, IndieПродолжительность: 00:04:33
+Музыкальный видеоклип Rihanna feat. Jay-Z - Umbrella.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F524958FF1A2AC087130BEC52EE66F7403EF1308
+magnet:?xt=urn:btih:450F02330C31D98DD6D12CFD8287EF4505F2014C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,25 +658,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561416   (406071) от 17.10.2012
+###  Публикация: 1185321   (292872) от 21.11.2017
 
-Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406071.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ELECTRO-HOPПродолжительность: 00:03:34
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. В нём я постарался отразить все обояние того десятилетия, пускай неопределенного и иногда даже дикого, но все же думаю многим приятно будет вспомнить то время. Время поднятия с колен нашей великой и большой страны, имею в виду весь бывший союз. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все (   Читать дальше...   )000 Intro
+059 La Bouche - Sweet Dreams
+060 Mr.Credo - Мама азия
+061 Modern Talking - China In Her Eyes (feat. Eric Singleton(   Читать дальше...   )Жанр: PopПродолжительность: 03:49:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9999D1B26954D2829CF75B5C29BB2A3F9A4323A4
+magnet:?xt=urn:btih:1894C37BC9BD1DD40D623C98928BF90DC27B67C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,25 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561894   (405774) от 18.10.2012
+###  Публикация: 962533   (292758) от 05.12.2015
 
-Сборник клипов - VA - Various Music part. 35 (2012) WEBRip 720p, 1080p
+Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405774.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:02
+Вашему вниманию предлагаем лучшую подборку видео клипов Armando Christian Perez III или сценическое имя Pitbull.01. Pitbull and Empire Cast ft. Jussie Smollettl - No Doubt About I (00:04:14)
+02. Pitbull - Back In Time (featured in 'Men In Black III') (00:03:32)
+03. Pitbull - Celebrate (from the Original Motion Picture Penguins of Madagascar) (00:03:11)
+04. Pitbull ft. TJR - Don't Stop The Party (00:03:33)(   Читать дальше...   )Жанр: Latino, Reggaeton, Hip House, Rap, Hip-Hop, Latin UrbanПродолжительность: 01:21:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C925B1FF727A9A0A5BC91BDE09BE20A873647511
+magnet:?xt=urn:btih:338CD52DD68AD3BE60D14C7772E6F58B5C581040
 ```
 
 https://mybot314.ru/tekegram_catalog/

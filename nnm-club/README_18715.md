@@ -1,148 +1,25 @@
-###  Публикация: 496483   (252842) от 14.05.2012
+###  Публикация: 497377   (253401) от 16.05.2012
 
-VA - Отборный хит 8 "Зарубежный" (2012) [MP3|256 кб/с]<Pop, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Akon - Rely On
-002 Chris Brown Feat. T-Pain - Niggas In Paris
-003 Evanescence - My Heart Is Broken (Radio Edit)
-004 Sianna - Baby Night (Radio Edit)
-005 Eminem Feat. Ludacris And Lil Wayne - Second Chance
-006 Arash - Melody (Dj Maz Nazari Radio Edit)
-007 Nina - Take Me Away (Radio Edit)
-008 Adam Lambert - Beg For Mercy
-009 Robert M - Baby Forever (Radio Edit)
-010 Bruno Mars - It Will Rain(   Читать дальше...   )2012Жанр: Pop, Hip-HopПродолжительность: 06:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8671196E58ECC2ABAEC87CCA0B1D5DB0B465610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496678   (252840) от 14.05.2012
-
-Журнал | Психология и Я №2 (11) [2012] [DjVu]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – секреты взаимоотношений между мужчиной и женщиной, родителями и детьми.
-
-Цель журнала – с помощью профессиональных психологов и жизненного опыта самих читателей найти ответы на сложные жизненные вопросы, стать путеводителем в мире отношений, (   Читать дальше...   )Формат: DjVu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413A1474C26385785D8CE54E9A3520ACF2ABE4EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496751   (252836) от 14.05.2012
-
-Вечерний Ургант. Выпуск №15 (2012.05.14) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757436E5CDB4471BB40116263FEB406F6EFE4FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495792   (252834) от 14.05.2012
-
-The Herbaliser - The Remix According To The Herbaliser (2012) [MP3|320 кб/с]<Trip-Hop, Breakbeat, Lo-Fi>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Food–Mella (Drive Faster Mix By The Herbaliser)
-02. Coldcut–Atomic Moog 2000 (Post-Nuclear Afterlife Lounge Mix) (Remix By The Herbaliser)
-03. Little Axe–Storm Is Rising (The Herbaliser Remix)
-04. East Flatbush Project–Tried By 12 (The Herbaliser Remix)
-05. The Invisible Pair Of Hands–Sloppy's Not Sloppy Any More (Herbaliser Remix Edit)
-06. Mulu–Pussycat (The Herbaliser Mix)
-07. DJ Vadim–Conquest Of The Irrational (Vads Dad Diversion) (The Herbaliser Remix)
-08. Meat Beat Manifesto–Prime Audio Soup (The Herbaliser Remix)
-09. Jaffa–Elevator (Herbaliser Remix)
-10. The Meateaters–You Were My Sunshine (The Herbaliser Remix)(   Читать дальше...   )2012Жанр: Trip-Hop, Breakbeat, Lo-FiПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC5C3336B04A018A19AEE6E660589821CE43CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496638   (252833) от 14.05.2012
-
-Подборка журналов | Психология и Я [2011] [PDF]
+Александр Радин | Стрингер. Летописец отчуждения [2011] [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252833.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ежемесячный журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – секреты взаимоотношений между мужчиной и женщиной, родителями и детьми.
-
- Цель журнала – с помощью профессиональных психологов и жизненного опыта самих читателей найти ответы на сложные жизненные вопросы, стать путеводителем в мире отношений, любви, интима, здоровья и веры.2011Формат: PDF
+Алексей Смертин — экстремал. Он — журналист, специализирующийся на горячих точках. Слава, деньги и адреналин — вот смысл его жизни. Деньги ему предложили заоблачные. Слава и адреналин — гарантируются. Смертин должен сделать то, что никто до него не делал. Во всяком случае — успешно. Его новый заказ —серия репортажей о Зоне.
+По другую сторону Периметра о Зоне известно очень немногим. Смертин — не из их числа. Но когда он покажет зрителям то, что упрятано за блокпостами и километрами колючей проволоки, о Зоне узнает каждый. Смертин не боится. Он думает, что Зона ничуть не страшнее тех войн, на которых он побывал.
+О своей ошибке он узнает слишком поздно. Но Алексей не из тех, кто отступает.
+Он — из тех, кто может стать Легендой. Если выживет...2011Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D467770B6711BECA1AA6BDFB7A4ED1948701C02F
+magnet:?xt=urn:btih:DBBFB4BD3967E6016FEA20BD50D75C029C96904F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -150,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496553   (252832) от 14.05.2012
+###  Публикация: 497523   (253392) от 16.05.2012
 
-Журнал | Золотая коллекция рецептов № 50. По просьбам читателей: пироги с первыми ягодами и зеленью [май 2012] [DJVU]
+В.И. Лебедев | Личность в экстремальных условиях [1989] [PDF]
 
->>Журналы
->>Домоводство (журналы)
+>>Разное (категория книг)
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252832.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журналемай 2012Формат: DJVU
+В книге обобщается большой материал, характеризующий особенности психологической деятельности в экстремальных условиях (космический и авиационный полет, плавание на подводных лодках, нахождение в полярных зонах и т. п. ). В связи с этим анализируется ряд общих закономерностей психического отражения.1989Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB7CFC264B1C0BDC86EB1B196E7C1CE3BB12A1A3
+magnet:?xt=urn:btih:1853DB200011FA0AF80C302691388C03FDDDCFE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -176,231 +53,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495826   (252831) от 14.05.2012
+###  Публикация: 497109   (253384) от 16.05.2012
 
-VA - Early Girls, Vol.1-5 (1995-2008) [MP3|320 кб/с]<Pop, Rock & Roll, Oldies>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Volume 1 (1995)
-
-01. The Exciters - Do-Wah Diddy
-02. Betty Everett - You're No Good
-03. Shirley Ellis - The Name Game
-04. The Cookies - Chains
-05. Carole King - It Might As Well Rain Until September
-06. Earl-Jean - I'm Into Something Good
-07. Skeeter Davis - I Can't Stay Mad At You
-08. Little Peggy March - I Wish I Were A Princess(   Читать дальше...   )1995-2008Жанр: Pop, Rock & Roll, OldiesПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92926A6E54BDAC0BA4309C318F0F187323D3B0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496391   (252828) от 14.05.2012
-
-[Wallpapers] Sport Wallpapers (14.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780ADE0529E03E2C21D4EBFE22A4BF7D94057872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496505   (252826) от 14.05.2012
-
-Журнал | Вкус №3 [май-июнь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "ВКУС" - это специализированное издание посвященное гастрономии, напиткам и табакам. Мы являемся экспертами в области ресторации и имеем огромный опыт проведения алкогольных, сигарных и гастрономических дегустаций и презентаций.
- Аудиторию журнала "ВКУС" составляют гурманы и любители.май-июнь 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A95064AAC99D0E1F4123E55326A1BF8EFF50A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495911   (252824) от 14.05.2012
-
-Госпожа Белладонна - Узнай лжеца (2012 )[MP3|320kbps]<Heavy Metal, Power Metal>
+Earl Hines - Earl Hines and His Orchestra (1937-1939) (1990) [FLAC|Lossless]<Big Band, Swing>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252824.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро (2:18)
-02. Звезда (4:16)
-03. Корона (4:46)
-04. В Зеркалах (4:47)
-05. Тени (5:11)
-06. Лжец (5:54)Жанр: Heavy Metal, Power MetalПродолжительность: 00:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3379CE6E6AAB493450EBF53EFF5DE7222D36A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496298   (252823) от 14.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (14.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9CC12D253A26A4ACBB46CD377A1317E1609DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496296   (252822) от 14.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (14.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B50B058EE5D224F0EE82D7965186B005FDF7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496528   (252821) от 14.05.2012
-
-[Wallpapers] Ford
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252821.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Ford
-Название: Ford
-Официальный сайт: www.netcarshow.com
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00  (до первых скачавших, перебои со связью бывают,зависит от провайдера)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E1C707B0C800E5EE0E05356AFEE3291D76A1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496134   (252816) от 14.05.2012
-
-Vinny Valentino, Baron Browne and Joel Rosenblatt - Double B Double V (2011) [FLAC|Lossless]<Jazz-Rock, Fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Say
-02. I Like The Way You Think.....Sometimes
-03. Don't Count On Me
-04. A Night In Amalfi
-05. Remember The Time
-06. Alter Ego
-07. No Strings Attached
-08. Give Me The Night
-09. Shake Me2011Жанр: Jazz-Rock, FusionПродолжительность: 00:41:21
+01. A Mellow Bit Of Rhythm (2:52)
+02. Ridin' a Riff (2:59)
+03. Solid Mama (2:38)
+04. Please Be Kind (2:54)
+05. Goodnight, Sweet Dreams, Goodnight (2:09)
+06. Tippin' At The Terrace (2:19)
+07. Dominick Swing (2:25)
+08. Jezebel (3:08)
+09. Jack Climbed A Beanstalk (2:06)
+10. Indiana (2:02)Жанр: Big Band, SwingПродолжительность: 01:01:22
 
 ## Скачать торент
 ```bash
@@ -412,25 +88,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496550   (252815) от 14.05.2012
+###  Публикация: 497182   (253383) от 16.05.2012
 
-[Wallpapers]Animals_ HD Wallpapers
+VA - Stone Cold Queen - A Tribute To Queen (2001) [WavPack|Lossless]<Rock, Hard Rock>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252815.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола.
+01. Robin Zander - Steve Stevens - Billy Sheehan - Matt Sorum - Stone Cold Crazy
+02. Mickey Thomas - Marty Friedman - Chuck Wright - Paul Taylor - Greg Bissonette - Play The Game
+03. Joe Lynn Turner - Reb Beach - Tony Franklin - Eric Singer - Fat Bottomed Girls
+04. Geoff Tate - Doug Aldrich - Paul Taylor - Carmine Rojas - Aynsley Dunbar - Somebody To Love
+05. Gunnar & Mathew Nelson - Albert Lee - Michael Porcaro - Pat Torpey - Crazy Little Thing Called Love
+06. Jack Blades - Jake E. Lee - Tony Levin - Tony Thompson - Fight From Inside
+07. Jason Scheff - Richie Kotzen - Paul Taylor - Marco Mendoza - Vinny Appice - You're My Best Friend
+08. Kip Winger - Steve Lukather - Phil Soussan - Frankie Banali - I'm In Love With My Car
+09. Glenn Hughes - Pat Thrall - Stu Hamm - Paul Taylor - Carmine Appice - Killer Queen
+10. Tommy Shaw - Dweezil Zappa - Tim Bogert - Derek Sherinian - Steve Ferrone - Spread Your Wings(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E22C2C4B9A138B52C076EA5BE7647ACBD8148890
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,22 +123,538 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496534   (252814) от 14.05.2012
+###  Публикация: 497460   (253378) от 16.05.2012
 
-[Wallpapers] Ford Chevrolet Dodge Pontiac 1961-1978
+NFOPad 1.64 & Portable [Ru/En/Multi10]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252814.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Ford Chevrolet Dodge Pontiac 1961-1978
-Название: Ford_Chevrolet_Dodge_Pontiac_1961-1978
+NFOPad - небольшой, быстрый и удобный текстовый редактор, совмещающий в себе также возможности nfo-просмотрщика. Фактически это клон стандартного Блокнота, но более настраиваемый и обладающий дополнительными возможностями.
+
+Поддерживает ASCII и ANSI. С его помощью можно  просматривать и создавать файлы *.TXT, *.NFO, *.DIZ (файлы метаинформации, содержащие исчерпывающие данные о релизе). Программа автоматически определяет, следует использовать ANSI или ASCII на основе расширения файла. NFOPad полностью поддерживает кодировку Юникод. (   Читать дальше...   )Название программы: NFOPadЯзык интерфейса: Английский, Русский, другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497543   (253377) от 16.05.2012
+
+Каникулы в Мексике - 2. Выпуск №53 (2012.05.16) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253377.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66004B1D1DF602C9999D37B1BDDF7F12764964D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497505   (253376) от 16.05.2012
+
+VA - Реальный Блатняк часть 2 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Михаил Бублик - Артобстрел
+02 Стас Михайлов - Я ждал
+03 Виталий Аксенов - Владивосток
+04 Игорь Слуцкий - Упало солнце
+05 Ян Марти - Вечер синий
+06 Рада Рай - Отпусти, боль
+07 Алексей Брянцев - Я буду рядом
+08 Группа Запретка - Годы золотые
+09 Александр Донцов - Вспомним доброе
+10 Лукьяновка - Мужики2012Жанр: ШансонПродолжительность: 06:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B3DC78F27B802A75C1DFAA3068007DF9ACC755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497204   (253375) от 16.05.2012
+
+DIO - Back Alive (2008) [MP3|320 кб/с]<Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253375.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008Жанр: Hard RockПродолжительность: 00:46:00
+01. Guitar Solo Craig
+02. Magica Theme
+03. Lord Of The Last Day
+04. Rock O Roll Children
+05. Stand Up And Shout
+06. The Man On The Silver Mountain
+07. Catch The Rainbow
+08. Long Live Rock N Roll
+09. The Last In Line(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35323031E3F51C216B037FCDA504027E13671764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496171   (253374) от 16.05.2012
+
+Bemibek - Dziennik Mej Podrozy (1993) [FLAC|Lossless]<Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Powrotna bossa nova
+02. Dziennik mej podrozy
+03. Na sercu znow jakos lzej
+04. Jezeli masz szalenstwa choc lut
+05. Slodkie malenstwo
+06. Tam gdzie wiecej gwiazd
+07. Samba Spoko
+08. Jakos sobie rade dam
+09. Drzewa nad jeziorem Dluzek
+10. Juz cie nie kocham(   Читать дальше...   )1993Жанр: Vocal Jazz, PopПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497515   (253373) от 16.05.2012
+
+VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danjel Summers - Set Free (Radio Edit)
+002. Arash - Melody (Radio Edit)
+003. Maxx - No More (I Cant Stand It) (DJ Cargo Bootleg Mix)
+004. Ray Charles - Hit The Road Jack (Freaky DJs Bootleg)
+005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
+006. G-Spot - Luxurolux (Radio dirty version)
+007. Martin Silence Feat. Kika - Me And You
+008. Richard Marx - When You Loved Me
+009. Alyssa Reid feat. Jump Smokers - Alone Again (Uk Radio Edit)
+010. Avril Lavigne - Wont Let You Go2012Жанр: Pop,DanceПродолжительность: 06:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1748D5CB20B73291D363E9A6088ABD26BF18EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497327   (253369) от 16.05.2012
+
+Molly Hatchet - Regrinding The Axes (2012) [MP3|224 кб/с]<Hard Rock/Southern Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bad To The Bone
+02 - Mississippi Queen
+03 - Free Bird
+04 - Back In The U.S.S.R.
+05 - Sharp Dressed Man
+06 - The Boys Are Back In Town
+07 - Tumbling Dice
+08 - Dreams I'll Never See
+09 - Melissa
+10 - Wild Horses(   Читать дальше...   )2012Жанр: Hard Rock/Southern RockПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B499315F2C2A85F0A56A1E9682FA485873E0C468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497285   (253367) от 16.05.2012
+
+[EN] Доброй ночи для Правосудия: Мера Человека / Goodnight for Justice: The Measure of a Man (2012) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253367.jpg" />
+</div>
+
+
+###  Подробнее
+
+The story of John Goodnight continues.
+
+История Джона Гуднайта продолжается.Жанр: ВестернРежиссер: Кристоффер ТабориАктеры: Люк Перри, Камерон Брайт, Тич Грант, Николас ФилиповичПеревод: ОтсутствуетПродолжительность: 01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D75E6FBFEF06CAC67DE450B36EB6D3B40C6A766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497279   (253364) от 16.05.2012
+
+Paco De Lucia - Interpreta a Manuel de Falla / Almoraima (1987) [APE|Lossless]<Flamenco, Classical>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Interpreta a Manuel de Falla (1978)
+
+01. Danza de los Vecinos [03:12]
+02. Danza Ritual des Fuego [04:25]
+03. Introduccion y Pantomina [03:03]
+04. El Pano Moruno [01:31]
+05. Danza del Molinero [03:06]
+06. Danza [03:26]
+07. Escena [01:26]
+08. Cancion del Fuego Fatuo [04:08](   Читать дальше...   )1987Жанр: Flamenco, ClassicalПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497575   (253360) от 16.05.2012
+
+Вечерний Ургант. Выпуск №17 (2012.05.16) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E528F5124DE95B3B4757F0C944394E42A03A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497545   (253356) от 16.05.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №53 (2012.05.16) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253356.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB5C3845D4E10498B9817605A6573B302338F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496911   (253355) от 16.05.2012
+
+Тихие Игры - Послушай (2012) [MP3|320 кб/с]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разбуди меня
+02. 6:06
+03. Вечно молодой
+04. В шортах
+05. Паруса
+06. Не забывай
+07. Панк-рок
+08. Ты будешь первой
+09. Радуга
+10. Послушай(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1410C8EA110B60A95A9FB1E7AEF26608BC75FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497555   (253354) от 16.05.2012
+
+Специальный корреспондент. Товарищ укравдом (2012.05.15) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253354.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны и мира событий.
+
+Вниманию телезрителей предлагаются фильмы производства студий Аркадия Мамонтова, Бориса Соболева Александра Рогаткина и Александра Бузаладзе.
+
+Программа сохранит традиции, заложенные Аркадием Мамонтовым, - самые острые расследования лучших корреспондентов канала "Россия" - и при этом даст возможность экспертам, зрителям и автору материала обсудить ключевые и спорные моменты фильма.
+
+Кроме "ядра" авторов, снимать фильмы для "Специального корреспондента" будут и другие корреспонденты телеканала "Россия".Жанр: ДокументальныйПродолжительность: ~ 01:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418E6517D3308E8F9D57E2E76F02ED7890A7CB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496756   (253349) от 16.05.2012
+
+Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Honey's Lovin' Arms
+02. I've Got A Hankerin' (For Some Love)
+03. Victim of Love
+04. I'm Playing In Your Parlour Game
+05. Hot Lovin'
+06. Man-o-phile
+07. You're Barking Up the Right Tree
+08. You Don't Understand
+09. I'm Getting Sentimental Over You
+10. Swingin' On Nothin'(   Читать дальше...   )2011Жанр: Swing, Retro Swing, Big BandПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497176   (253348) от 16.05.2012
+
+VA - Swinging Sixties (2005) [MP3|320 кб/с]<Oldies, Swing, Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
+01. AquariusLet The Sun Shine In (Medley) – Fifth Dimension
+02. Something in The Air – Thunderclap Newman
+03. Mrs Robinson - Simon & Garfunkel
+04. I’m A Believer - The Monkees
+05. California Dreaming - The Mamas & The Papas
+06. Mr Tambourine Man – The Byrds
+07. I Got You Babe – Sonny & Cher
+08. Stand By Me – Ben E. King
+09. The First Cut Is The Deepest – PP Arnold(   Читать дальше...   )2005Жанр: Oldies, Swing, JazzПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDC8F2AB585C9835533B216047C00B9006ECC61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497238   (253343) от 16.05.2012
+
+VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Project - Musica (Extended)
+02. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix)
+03. Emin - Сердце Бьётся
+04. Чугунный Скороход - Afterparty (Smotrov DrumBase Mix)
+05. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
+06. Братья Грим - Парашюты
+07. Dna Family - Когда Любовь Живет
+08. Avicii - Fade Into Darkness (Radio Vocal Mix)
+09. MaSha GoYa - Безумно Влюблена
+10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you2012Жанр: Pop,Dance, ClubПродолжительность: 06:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F43EF5DA448C76A7C9F3E4F04FB88BA6B54CEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497087   (253341) от 16.05.2012
+
+[Wallpapers] Chevrolet
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253341.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Chevrolet
+Название: Chevrolet
 Официальный сайт: www.netcarshow.com
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1600x1200
@@ -461,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEA214371DD631B5F2873F6A4150C9FB0A25C79F
+magnet:?xt=urn:btih:9BDA045BBF00CB2602ECCB9C0C9E9A7363F82B78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,23 +670,91 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496596   (252813) от 14.05.2012
+###  Публикация: 495932   (253339) от 16.05.2012
 
-Ученые: общение в сети не отличается от общения в реальной жизни
+S'n'D - Место для свалки(2010)[MP3|320kbps]<Punk>
 
->>Поговорим
->>Новости
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252813.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253339.jpg" />
 </div>
 
 
 ###  Подробнее
 
+01. Sk8, sun & punk-rock
+02. Скейтборд(часть 1)
+03. Лирическая
+04. Лето
+05. Гантеля
+06. Шоколадка
+07. Скейтборд(часть 2)
+08. Позитив
+09. Калифорния
+10.КосмосЖанр: PunkПродолжительность: 00:36:07
 
-Ученые из Австрии и Швейцарии опровергли устоявшееся мнение о том, что общение в интернете отличается от общения в реальной жизни, признав сетевое общение абсолютно нормальной формой поведения. В частности, они установили, что подавляющая часть пользователей Сети придерживается правил приличия. Статья ученых появилась в журнале Scientific Reports.В рамках исследования ученые анализировали общение пользователей в сетях IRC (Internet Relay Chat) - одной из старейших систем (для преимущественно группового общения) в реальном времени. Исследователи в течение 42 дней отслеживали сообщения в 20 каналах. Тематика общения была самая разнообразная - музыка, спорт, бизнес, политика и прочее.
-(   Читать дальше...   )
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB1EAA231D99F7A54A74DBD0C3AE211E46694AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497258   (253337) от 16.05.2012
+
+VA - Русский Хитовичок (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Дискотека Авария - Россия Победит!
+002 Бьянка - Весна-Лето 3
+003 Дима Билан - Honey
+004 Ани Лорак - Я Буду Солнцем
+005 DJ Richi - Пляж (Radio Mix)
+006 Milena & Murzin Denis - В эту ночь
+007 София Ротару - Два Солнца
+008 Чай Вдвоем - Время вода
+009 Стас Пьеха - Старая История
+010 Руслана - ЕЙ-форі-Я!2012Жанр: PopПродолжительность: 05:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088F16344BA5B3A0634AA583DC1AA3C7311B9AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496256   (253336) от 15.05.2012
+
+Темы для Windows 7 Crysis 2012 [Rus/Eng]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех кто уважает игру Crysis. Представлен пакет, состоящий из пяти красочных тем.Название программы: Темы для Windows 7Язык интерфейса: Rus/Eng
 
 ## Скачать торент
 ```bash
@@ -497,131 +766,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496380   (252810) от 14.05.2012
+###  Публикация: 495655   (253334) от 15.05.2012
 
-[Wallpapers] Gilrs Wallpaper Collection (14.05.12)
+Роман Борсук | Базовый Видеокурс Метода Сильвы (Метод Сильва) [2009] CamRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252810.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 3670х2430
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A07A2FA0CD21D985EE7624C523496A50E709B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495779   (252809) от 14.05.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (12.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA743E2C2844581CF14EF823115FB2D8F751DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496382   (252807) от 14.05.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (14.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4480x2800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964CA59FFE15CC40514FA6FBA57A264B86233911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398780   (252804) от 13.05.2012
-
-Тайный круг / The Secret Circle (2011) WEB-DLRip (сезон 1, серии 1-22 из 22) LostFilm
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихая и застенчивая старшеклассница Кэсси после смерти матери переезжает из солнечной Калифорнии в мрачный городок Нью-Салем, к бабушке, которая увлечена мистикой и до странного много знает о травах. Поначалу Кэсси скучает по дому и прежним друзьям, но вскоре знакомится с компанией подростков, которые держат в страхе всю школу. Они принимают ее в свой тайный круг, (   Читать дальше...   )Производство: США-Канада, CWЖанр: Ужасы, фэнтези, драма, мелодрамаРежиссер: Лиз ФридлендерВ ролях: Бриттани Робертсон, Логан Браунинг, Томас Деккер, Шелли Хенниг, Луис Хантер, Джессика Паркер Кеннеди, Фиби Тонкин, Эшли Кроу, Гейл Харольд, Адам Харингтон  и др.Перевод: Профессиональный многоголосый закадровый - LostFilmПродолжительность: ~ 45:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415213   (252802) от 13.05.2012
-
-Хорошая жена / The Good Wife (2011) (Сезон 3 полный, серии 01-22 из 22) WEB-DL 720p [Newstudio]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благополучное существование Алисии Флоррик, счастливой жены и матери двух детей, было разрушено, когда её муж, чикагский прокурор Питер Флоррик, оказался в центре секс-скандала. Осуждённый за коррупцию Питер отправился в тюрьму, а на плечи Алисии легла забота о семье.
+Этот видеотренинг является полным изложением Базового курса Метода Сильвы в его первозданном виде, то есть таким, каким его создал сам Хосе Сильва без каких-либо купюр или сокращений. Добавлю также, что этот видеотренинг мы назвали Метод Сильвы+, так как в объяснениях к упражнениям присутствует очень многое из того, о чем Хосе Сильва в свое время не мог знать – за годы, прошедшие после первой презентации Метода в 1966 году, человечество поумнело. И это радует.
 
-Пришлось вспомнить свои навыки адвоката. Старый друг взял Алисию к себе в фирму - младшим сотрудником, (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Michelle King, Robert KingАктеры: Джулианна Маргулис (Алисия Флоррик), Крис Нот (Питер Флоррик), Джош Чарльз (Уилл Гарднер), Кристин Барански (Дайан Локхарт), Мэтт Зукри (Кэри Эгос), Арчи Панджаби (Калинда Шарма), Макензи Вега (Грейс Флоррик)Перевод: Двухголосый закадровыйФормат: mkvПродолжительность: ~ 00:43:00 серия
+Видеотренинг Базового Курса состоит из отдельных лекций-уроков. Всего таких уроков 28. Каждая из этих лекций сопровождается медитативным упражнением. Поэтому в отличие от обычного тренинга, Ты можешь эти упражнения повторять до бесконечности, а точнее столько, сколько Тебе понадобиться, чтобы закрепить изучаемые навыки.
+
+Огромное преимущество Метода Сильвы состоит в том, что в своих, на первый взгляд очень простых упражнениях, этот метод органически объединяет эффективное использование трех компонентов нашего мышления: интуицию, управление эмоциями и воображением. (   Читать дальше...   )Жанр: психологияПродолжительность: 19:18:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:26D673E2C9354EFBB526AEC513913FC2F282DDCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,117 +796,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 494785   (252801) от 13.05.2012
+###  Публикация: 496705   (253332) от 15.05.2012
 
-[Программа] (android 1.5+) SmackTalk! Говорящая морская свинка (Говорящий хомяк)
+L. A. Noire The Complete Edition [Ru/En] (1.3.2613/Repack) 2011 | UltraISO
 
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реалистичная анимированная морская свинка и ещё 3 зверушки: щенок, котёнок, собачка чи-хуа-хуа, которые повторяют всё что вы скажете, есть ещё 5 кнопок со смешными звуками.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 401506   (252800) от 13.05.2012
-
-Тайный круг / The Secret Circle (2011) WEB-DLRip [H.264/720p] (сезон 1, серии 1-22 из 22) LostFilm
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252800.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам серии одноимённых романов писательницы Лизы Джейн Смит.
-Тихая и застенчивая старшеклассница Кэсси после смерти матери переезжает из солнечной Калифорнии в мрачный городок Нью-Салем, к бабушке, которая увлечена мистикой и до странного много знает о травах. Поначалу Кэсси скучает по дому и прежним друзьям, но вскоре знакомится с компанией подростков, которые (   Читать дальше...   )Производство: США, КанадаЖанр: Ужасы, Фэнтези, Драма, МелодрамаРежиссер: Лиз ФридлендерАктеры: Бриттани Робертсон, Томас Деккер, Гейл Харольд, Фиби Тонкин, Шелли Хенниг, Джессика Паркер Кеннеди, Эшли Кроу, Луис Хантер, Наташа Хенстридж, Логан Браунинг, Крис Зилка, Адам Харингтон, Грэй Дэймон, ДжейАр Борн, Джо Ландо, Майкл ГрациадейПеревод: Многоголосый профессиональный (LostFilm)Продолжительность: серии по ~00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495913   (252799) от 13.05.2012
-
-Angry Birds Anthology / Сердитые Птицы: Антология [En] (2.1.0/1.4.4/2.3.0/1.1.0/RePack) 2012 | R.G. ReCoding {Обновляемая}
-
->>След.
+>>Архив торрентов
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252799.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обычно игры перекочевывают на мобильные платформы с компьютерных. Ситуация же с этой культовой аркадой совершенно иная…
-
-В начале 2011 года финской студией Rovio Mobile была создана игра Angry Birds. Сразу после выхода эта аркада для новой мобильной операционки Android приобрела ошеломляющий успех. Секрет такого небывалого успеха – сочетание удивительно простого геймплея и самых разнообразных логических загадок. Плюсом все это погрузили в уникальный визуальный стиль и в итоге получили игру, которая войдет в историю как самая популярная аркада 2011 года. Да, конечно по началу дела шли не так радужно. Ещё не оптимизированная платформа подтормаживала и было не так много уровней, но финский разработчик, осознав популярность проекта, выпустил бесплатные дополнения и патчи, которые давали улучшение в производительности и много новых миров и уровней.
-
-В основу сюжета положен конфликт между птицами и зелеными свиньями. Последние зажрались травой и корнеплодами настолько, что перешли на яйца птиц, которых все это не на шутку озадачило. Тогда то и началась война между «воздухом» и «землей». Каждый новый уровень в игре сопровождается непродолжительной сценой, рассказывающей о ходе противостояния, тем самым помогая нам более детально понять сюжет. Но, смеюсь заметить, в аркаде это далеко не главное. Ведь все основывается на геймплее, который тут довольно интересный. Перед игроком стоит задача – швырнуть птицу из вкопанной в левой части экрана рогатки так, чтобы разрушить сложное сооружение справа и убив противника. Казалось бы, всё так просто и эту игру можно пройти буквально за час. Но это большое заблуждение, ибо геймплея тут минимум часов на 10.(   Читать дальше...   )Тип издания: RePackРазработчик: Rovio MobileЖанр: Logic (Puzzle) / ActionЯзык озвучки: n/a (Отсутствует)Язык интерфейса: Английский
+Америка, конец 1940-х — золотой век Голливуда. У Коула Фелпса, детектива департамента полиции Лос-Анджелеса, не бывает тихих будней — в стремительно развивающемся мегаполисе процветают коррупция и наркобизнес, то и дело совершаются убийства и ограбления. Фелпс честно служит закону, неустанно ведя борьбу с преступностью, пустившей корни даже в рядах его коллег. Поджоги, налеты рэкетиров, жестокие убийства, заговоры — распутывая клубок злодеяний, дотошный полицейский постепенно подберется к самым тщательно оберегаемым секретам криминального Города ангелов… (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar LeedsЖанр: Action / Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:195F13E16D7319E10CB59735120575DB38DF72F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496062   (252797) от 13.05.2012
-
-Б.Поташник | Ваше первое портфолио [2012] [unpacked]
-
->>След.
->>Другие мультимедийные материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как быстро и успешно начать карьеру графического дизайнера и найти первых заказчиков! … или почему 80% людей, желающим заниматься дизайном, не удается продать свои услуги.
-
-Курс содержит исчерпывающую информацию и научит Вас не только оформлять само портфолио, но и создавать работы, которые в него можно будет выложить.
-
-Курс будет полезен как новичкам, так и более опытным дизайнерам, в качестве пособия по профессиональной работе над созданием фирменного стиля, дизайна рекламы, дизайна для полиграфии и веб-дизайна
-
- 1. Быстро начать карьеру дизайнера
- 2. Заниматься графическим дизайном на профессиональном уровне
- 3. В короткие сроки стать востребованным дизайнером
- 4. Работать с крупными заказчиками и прибыльными проектами(   Читать дальше...   )2012Жанр: ДизайнФормат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A9F070CDAC9F28DF562EC90427C39ADD7B9881
+magnet:?xt=urn:btih:170D55FAB8373EDD900F463FDBBA1A4DEE986D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

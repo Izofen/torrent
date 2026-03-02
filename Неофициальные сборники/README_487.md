@@ -1,3 +1,213 @@
+###  Публикация: 953725   (346711) от 05.11.2015
+
+VA - В Машине. Клубный Выпуск (2015) [MP3|320 кб/с]<Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pang - Evigt Fiskande (Original Mix)
+02. Iorie - Only (Original Mix)
+03. Rhenum - Cylon Troop Seven (Original Mix)
+04. Cioz - Scrambled (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 10:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF232E52F08D2DC844085A43E46A4C6726B8C2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179719   (346692) от 01.11.2017
+
+VA - Flesh & Blood Of Nu-Metal (2017) [MP3|320 кб/с]<Nu-Metal, Alternative, Rapcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346692.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Flesh & Blood Of Nu-Metal» — это плоть и кровь жанра «Нью-Метал». Период его расцвета уже давно позади к сожалению. Многие из представленных коллективов впоследствии меняли свой стиль, но здесь — всё по канонам жанра!
+Ещё отмечу, что в треклисте есть команды, которые просуществовали недолго, а некоторые и вовсе смогли выпустить по одному полноформатному альбому. (   Читать дальше...   )[02:37] 01. Slipknot - I Am Hated
+[03:06] 02. Twin Method - The Abrasive
+[03:33] 03. Taproot - Smile
+[04:21] 04. 40 Below Summer - Rope(   Читать дальше...   )Жанр: Nu-Metal, Alternative, RapcoreПродолжительность: 03:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFA29E86A4F9E80F915EA09A2B22D7D51CC1BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179666   (346589) от 01.11.2017
+
+VA - Русские Диджеи & Дискотеки от Ovvod7 - 03 (2017) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Грув - Берегись Автомобиля 2:49
+02.  D.J. Savage - Зимний Сон 4:43
+03.  Vengerov & Fedoroff - Здравствуйте я Ваша тетя 2:58
+04.  DJ Нил feat. X-Mode - La Peregrinacion (Животные) 3:01(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812E8655542B67B3E6750B34C72D5E0A8AF52DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179702   (346472) от 01.11.2017
+
+VA - Осенний Русский Рок (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДДТ - Что такое осень
+02. Кафе - Мне нравится осень
+03. Александр Иванов и группа Рондо - Московская осень
+04. Смысловые галлюцинации - Первый день осени(   Читать дальше...   )Жанр: RockПродолжительность: 03:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68C3201900843137479238C0AC42E9ACFA24702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179676   (346470) от 01.11.2017
+
+Ирина Круг - Я жду (2017) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Когда-нибудь 3:27
+02.  Ты сердце и душа 3:51
+03.  Ветер 3:59
+04.  Я жду 3:51(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2545F7492CF725CCE3838B2D1C5402C30B9171A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579839   (346402) от 24.11.2012
+
+VA - DeepEmotions - Car Dubstep Vol.7 (2011) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Simone - Feeling Good (Fytch Remix)
+02. Dj Sammy - Heaven (Deckscar Remix)
+03. David Guetta - Love Don't Let Me Go (Fytch's Superman Remix)
+04. The Noisy Freaks and Neus Feat. Nalesia - Game Over (Original Mix)
+05. High Rankin - In Hell (Original Mix)
+06. Josh Money - Let Go With You (Original Mix)
+07. Hirshee Vs. Dawn Penn - You Don't Love Me (Hirshee's Drumstep Mix)
+08. Feed Me feat. Hadouken - Trapdoor (Original Mix)
+09. Harper Hero - Speak It (Original Mix)
+10. Helicopter Showdown feat. Messinian - Great Escape (Original Mix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D270674A94D0A043D5BE25C8A64B30D73ECD1D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953366   (346368) от 05.11.2015
+
+VA - 1000 Original Hits (Instrumental) (2004) [MP3|256 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 В.Лебедев - Французская тема(к.ф Гардемарины вперед) (01:48)
+02 Frank Duval & Orchestra - Sorry to Leave You (02:08)
+03 Paul Mauriat - Adieu A La Nuit (02:12)
+04 Paul Mauriat - Alouette (02:16)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9E244000533E8E60948A805932EFB32261F3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580286   (346274) от 24.11.2012
 
 VA - New Blood Of Dubstep Vol. 3 (2012) [MP3|320 кб/с]<Dubstep>
@@ -562,211 +772,6 @@ VA - Collection Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE6BFF2AF3B9BAC34500BA1A876F2F409CA58D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073331   (344763) от 16.11.2016
-
-Leonard Cohen - Hits (Presents: Elgujakviso) (2016) [MP3|256 Kbps] <Folk; Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Me To The End Of Love
-02. The Law
-03. Hallelujah
-04. First We Take Manhattan(   Читать дальше...   )Жанр: Folk; RockПродолжительность: 03:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73A7CE2128B7AD53264B6E158845159096A2904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257556   (344726) от 26.10.2018
-
-The Prodigy - No Good (2016) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Prodigy - No Good ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327C1CBC6127D67F84155CA94878CB771F3D3034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418405   (344702) от 26.10.2020
-
-VA - Summer Chillout Area (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344702.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marga Sol - Sacred Passage
-002. Stepo Del Sol - Mambo Soul
-003. Dmitry Evgrafov - Humble In Heart
-004. Quiroga - The Zoist (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F7D3883C31D473FCB4F0D79A2C8E92C1B488A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418402   (344701) от 26.10.2020
-
-VA - Urban Inspiration: Trance Session (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zirenz - Edge Of Space Ultimate
-002. Yvan - The Seeking
-003. York - Lilileaf Ladybell
-004. X Trude - Low Frequency(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D386280F015B9D7F1E416305BC2B4DC2FDDEA521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418956   (344698) от 26.10.2020
-
-VA - White Night Affair (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344698.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danny Hay - Grab A Bite
-002. Electronic DJ - Szahala
-003. Solari - Explod
-004. Kasey Kaotto - Cycles(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6351DAAD6F1B40E34ADE8E754957729D814DD05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580241   (344689) от 24.11.2012
-
-VA - Сборник дабстепа с женским вокалом (2010-2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	501 - Grindhouse
-2.	501 ft. Belle Humble - Headrush
-3.	Above & Beyond feat. Zoe Johnston - You Got To Go (Seven Lions Dubstep Remix)
-4.	Adele vs. Skrillex - Set Fire To Everybody (ca7's Mashup)
-5.	Adventure Club Ft Krewella - Rise & Fall
-6.	Amy Kuney - Kiss me Like You Mean it (Butch Clancy Remix)
-7.	Aelyn - In And Out Of Love (DJ Men Bootleg Mix)
-8.	Bat For Lashes - Daniel (Mt Eden Dubstep remix)
-9.	Big Gigantic - We Are The Sun by Savoy ft. Heather Bright
-10.	Booty Luv - Say It (Nero Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 11:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBADFF51AB22DB035A5DCD05011CF991BA0F71C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953838   (344666) от 06.11.2015
-
-VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro, Minimal, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantik - Golgiapparat (Mollono.Bass Remix) (07:37)
-02. Christos Fourkis - Houze You (07:34)
-03. Sanil Fenice - Before Dawn (Matthias Freudmann Remix)Жанр: Electro, Minimal, Deep HouseПродолжительность: 02:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBCE900F0281388C6918591E2C710364FEE2CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1365415   (930571) от 07.03.2020
+
+Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:20)
+02. Scream (03:24)
+03. Tension (03:11)
+04. Red Sun (03:05)(   Читать дальше...   )Жанр: KPop, KRockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986535   (930555) от 14.02.2016
+
+VA - BRAVO Hits 92 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EFF - Stimme (3:08)
+02. Major Lazer feat. Nyla & Fuse ODG - Light It Up (Remix) (2:46)
+03. Matt Simons - Catch & Release (Deepend Remix) (3:15)
+04. Justin Bieber - Sorry (3:20)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie Rock, Country RockПродолжительность: 02:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD81590EEA6F234EBE31FA5654F8DA7302BAF630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365044   (930392) от 07.03.2020
+
+George Michael - Older (1996) [FLAC|Lossless|image + .cue] <Electronic, Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus To A Child [06:51]
+02. Fastlove [05:25]
+03. Older [05:34]
+04. Spinning The Wheel [06:22](   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FDCC2B052D49CE437FB33C14E33C36B4D6D51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365416   (930162) от 07.03.2020
+
+A-ha - Greatest Hits: Japanese Single Collection (2020) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me
+02. The Sun Always Shines On T.V. (Single Mix)
+03. Train Of Thought (Remix)
+04. Hunting High And Low (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E43263AD7C065B3623C5100A882C82DBD81FD65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986921   (929031) от 15.02.2016
 
 VA - Radio 538 Hitzone 76 (2016) [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
@@ -635,122 +751,6 @@ VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366932   (917239) от 15.03.2020
-
-VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Jones-Twist And Shout (1:31)
-02. Chuck Berry-Roll Over Beethoven (2:18)
-03. Bill Haley & His Comets-See You Later Alligator (2:41)
-04. Eric Lee-High School Confidential (2:25)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516CC9504BEC566C4971CF0623B50D831F7F042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367085   (917237) от 15.03.2020
-
-VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Light Orchestra - Rock And Roll King (3:48)
-02. Katrina & The Waves - Walking On Sunshine (3:58)
-03. Shakin' Stevens - Marie Marie (2:48)
-04. Kenny Loggins - Footloose (3:42)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCD29EF1DFA7BAFDBADA9736FD8500A26566D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989168   (916637) от 22.02.2016
-
-Shania Twain - 6 студийных альбомов и 2 сборника (1993-2007) [FLAC|Losless|image+.cue] <Country, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальная дискография Шанайи Твэйн по версии Википедии и Wikipedia:
-1. Shania Twain (20 апреля 1993)
-2. The Woman in Me (7 февраля 1995)
-3. Come on Over (4 ноября 1997)(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 09:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989875   (915693) от 23.02.2016
-
-VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dana International - Women In Love (3:41)
-02. Dionne Faux - My Heart Will Gone On (4:23)
-03. Didi - Believe (4:22)
-04. Michael T - Horny (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
 ```
 
 https://mybot314.ru/tekegram_catalog/

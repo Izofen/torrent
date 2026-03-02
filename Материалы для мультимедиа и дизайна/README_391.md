@@ -1,3 +1,30 @@
+###  Публикация: 1789371   (22457) от 04.04.2025
+
+Шрифты - Alexander Shimanov - ST-Surzhik [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_22457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Разработчик: Alexander ShimanovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69DC1797FD8FCC436C0AB4FF3E94D43C40ED82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789797   (22371) от 05.04.2025
 
 Шрифты - Creative Fabrica - Sweet Romantic Collection Font & Graphics Bundle [OTF, TTF, PNG, PSD, AI]
@@ -656,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06DE9A71A41ADFE75C7DEBB2586E03AA362FAD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790058   (22152) от 07.04.2025
-
-Шрифты - Ilya Designgsta - Behance - Onmark Рукописный шрифт - 222944479 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Разработчик: Ilya Designgsta
-Материал раздаётся с официальной документацией.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3845F5CF2D01582C6FB249002AC2EC806C8CB871
 ```
 
 https://mybot314.ru/tekegram_catalog/

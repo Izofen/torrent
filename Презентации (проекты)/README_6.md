@@ -1,3 +1,82 @@
+###  Публикация: 988565   (920055) от 20.02.2016
+
+Проекты - VideoHive - Trendy Dynamic Opener - 14633539 [AEP]
+
+>>След.
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный, динамичный проект для промо-ролика.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2753D1F237E0D6C3983033689D90DF34E6AFC406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096850   (917032) от 25.01.2017
+
+Проекты - VideoHive - Fashion Opener - 19299422 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Opener - проект для создания модного вступительного видеоролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7D67C907B5C4DDF4C6FAA364EB15A434E8218C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097180   (915126) от 26.01.2017
+
+Проекты - VideoHive - Movie Intro Maker - 19252364 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movie Intro Maker - проект для создания впечатляющей презентации или кинематографического тизера в стиле “HARRY POTTER”.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295ED837EC5B17B22F6F98A0849D84D37E5798D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990127   (913165) от 24.02.2016
 
 Проекты - VideoHive - Cube Logic [AEP]
@@ -600,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B2557E675F4B471684971C4BC09E50AEA48BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867277   (904119) от 07.02.2015
-
-Проекты - VideoHive - Luxury Awards - 9407992 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Bundle - торжественное оформления фильма.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB3A3BC700FADD86A42707469BE96033A82B55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991804   (903953) от 29.02.2016
-
-Проекты - VideoHive - Rhythm of the City 2 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания превью Вашего фильма.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0871C3973836EF8AD511E59AFE98DFBF78DB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991927   (903840) от 29.02.2016
-
-Проекты - VideoHive - Stylish Corporate Circles Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACF8F65B7CB82EF7293059E46967BDE2BE2165F
 ```
 
 https://mybot314.ru/tekegram_catalog/

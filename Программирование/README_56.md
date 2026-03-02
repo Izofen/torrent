@@ -1,3 +1,29 @@
+###  Публикация: 1705976   (63328) от 11.03.2024
+
+Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начиная с обзора концепций наблюдаемости, эта книга научит вас инструментировать код и отслеживать системы на практике с помощью стандартных протоколов и библиотек Grafana. По мере продвижения вы создадите бесплатный облачный экземпляр Grafana и развернете демонстрационное приложение на кластере Kubernetes, чтобы углубиться в реализацию стека LGTM. Вы узнаете, как (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5BF64BD1A82E1196FFDD854C0C3A16D806143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705980   (63326) от 11.03.2024
 
 Noel Rappin | Modern CSS with Tailwind (2022) [PDF][EN]
@@ -663,33 +689,6 @@ New agent environments ranging from games, and robotics to finance are explained
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C0AC43890D270E8A4C53E11946F81DF1C393C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737446   (49737) от 17.07.2024
-
-Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using SwiftUI, Swift 5.5 and Xcode 13 (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49737.jpg" />
-</div>
-
-
-###  Подробнее
-
-The goal of this book is to teach the skills necessary to build iOS 15 applications using SwiftUI, Xcode 13 and the Swift 5.5 programming language.
-Beginning with the basics, this book provides an outline of the steps necessary to set up an iOS development environment together with an introduction to the use of Swift Playgrounds to learn and experiment with Swift. (   Читать дальше...   )Жанр: Программирование, язык программирования Swift, программирование для AppleЯзык: АнглийскийИздательство: Payload MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
 ```
 
 https://mybot314.ru/tekegram_catalog/

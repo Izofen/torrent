@@ -1,3 +1,206 @@
+###  Публикация: 1454109   (1026604) от 13.03.2021
+
+VA - Music News vol.81 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estradarada feat. Danny Wheels - Ради Тебя (04:02)
+ 02. Adam Maniac - Vitamins (02:40)
+ 03. Au5 feat. HALIENE - Was It You (04:46)
+ 04. Banchi - Не Держи (02:29)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CCF2FF9587F48D4FD73C169260B743D7D24257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454358   (1026401) от 14.03.2021
+
+VA - Record Super Chart 13.03.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - The Business (2:44)
+02. Phao KAIZ Remix - 2 Phut hon (3:03)
+03. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+04. Meduza, Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFCDEEC0277F6E0B64DB3A6408E5058A3132C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454328   (1026378) от 14.03.2021
+
+VA - Fresh Pop (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. JESSIA - I'm not Pretty (1:58)
+002. Ariana Grande - test drive (2:02)
+003. Jason Derulo, Adam Levine, Maroon 5 - Lifestyle (2:36)
+004. Bilal Wahib, Ronnie Flex - 501 (2:07)(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7A00CB6C0A398EF1D730D02268A7CDA5D1D8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454202   (1026311) от 14.03.2021
+
+VA - Зайцев.нет Лучшие новинки Марта (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AYDZHI - Девочка с картинки (2:00)
+02. NLO, T-killah - Похолодало (2:21)
+03. Alx Beats - Frozen Tears (2:24)
+04. Клава Кока - Сладкие мальчики (2:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF525BE07D9A9EA2B9BE44EA0DC945B3282D313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454481   (1026270) от 15.03.2021
+
+VA - Weekend Picks: Tech House Electro Party (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы любитель клубных тусовок и новинок клубной музыки, то сборник "Weekend Picks" - именно для Вас. Новинки, собранные в этом сборнике, подарят вам заряд энергии, бодрости и перенесут на танцполы мировых клубов!001. Mattia Trani - Collapsar
+002. Matasism - Body Resistance
+003. Zephyr - Skulls (Industrial Mix)
+004. Sera J - Pads (Original Mix)(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5144B655B1D8CB9AEDA00CA3BA8C542CC0EFC9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454482   (1026259) от 15.03.2021
+
+VA - The Wings Ascending (2021) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые мелодичные композиции, с гармоничным саундом в сборнике "The Wings Ascending", которые покоряют не только популярные FM радиостанции, но и многие топы и чарты отечественных и западных изданий и магазинов.001. Gayax - Neptune
+002. Enea Marchesini - Feel The Power
+003. Bogdan Vix - Stardust
+004. Tasadi & Noah Stewart - The Calling(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 11:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66FBF62588133F19E9EB918EBCD6AD9FA656586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454598   (1026258) от 15.03.2021
+
+VA - Beatport Electro House: Sound Pack #255 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это именно та музыка, которую стоит добавить в свой плейлист и слушать с начала до самого конца. Все композиции 255-го релиза от Beatport вызывают позитивные эмоции уже на первых минутах трека, припевы быстро запоминаются, а для заядлых тусовщиков это станет настоящей находкой, что позволит организовать яркий вечер уже сегодня.001. J. Night - Hyperborea
+002. Christian Prommer - Future Lights
+003. Gai Barone - Two Ghosts
+004. Roy Rosenfeld - Otro(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0260CDF2396760A1768B54B86E1A88863D3323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454485   (1026257) от 15.03.2021
 
 VA - A Brief Touch Of (2021) [MP3|320 Kbps] <Indie, Pop, Rock, Alternative>
@@ -542,209 +745,6 @@ VA - Glow Party: Trance Favorites (2021) [MP3|320 Kbps] <Trance, Uplifting, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5865BBAD625CDFFF5E0C02C72864622F7CE13C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455700   (1025443) от 20.03.2021
-
-VA - Moonlight: Neoclassical Collection (2021) [MP3|320 Kbps] <Neo Classic, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник посвящается переосмыслению классики и современным композиторам, работающим в направлениях, так или иначе дружественных с классической музыкой в ее современных вариациях. Если традиционная классика требует строгого соблюдения канонов, то сегодня, когда границы жанров размываются, композиторы новой школы уделяют время экспериментам и привнесению новых стилистических (   Читать дальше...   )001. Ilio Barontini - Moonlight
-002. Elisabeth Brauß - Opus 2021
-003. Derek Hunter Wilson - Foolish
-004. Ramin Djawadi - White Walkers(   Читать дальше...   )Жанр: Neo Classic, InstrumentalПродолжительность: 06:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA65CE079242C8705ADAA69ECEBEF9110D147CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455676   (1025394) от 20.03.2021
-
-VA - Remixes 2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025394.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo, Adam Levine, David Guetta - Lifestyle (David Guetta Slap House Mix) (2:15)
-002. Dynoro, Outwork, Mr. Gee - Elektro (2:22)
-003. Dynoro, Fumaratto - Me Provocas (2:27)
-004. Halsey, Tiesto - You should be sad - Tiesto Remix (2:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFAC978CD42803A54BAAD9CEC937A8F6AA60CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455945   (1025375) от 20.03.2021
-
-VA - Громкие новинки Марта (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Миа Бойка, ЕГОР ШИП - Наруто (1:45)
-02. RASA - По приколу (1:55)
-03. Тайпан, Agunda - Мерцают огни (1:58)
-04. Ваня Дмитриенко - Стерва (2:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AEAE02384AC5FB17BB3399F5DE58DBFC830C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186634   (1025344) от 20.03.2021
-
-Manowar - Best Ballads (1990,1998) [MP3|320 kbps]<Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025344.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Secret Of Steel (5:49)
-2.  Heart Of Steel (5:10)
-3.  Mountains (7:38)
-4. Defender (6:07)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C84F73D1702DBF25E3E009D03FF59E182CACFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456131   (1025319) от 21.03.2021
-
-VA - Big Room Dance (2021) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassjackers, Wolfpack, Richie Loop - Old Money (2:26)
-02. Maddix, SaberZ - Follow Me (3:06)
-03. Showtek, sonofsteve - Show Some Love (Showtek Festival Edit) (3:42)
-04. David Guetta, MORTEN - Kill Me Slow (3:28)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 02:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53951014B7D6AFD0CAA68817D8A09FC26CA2D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456061   (1025298) от 21.03.2021
-
-VA - German Top 100 Single Charts 19.03.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
-02. Bausa & Apache 207 - Madonna
-03. Tiësto - The Business
-04. Masked Wolf - Astronaut In The Ocean(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F8202B7AEA59838B4069E9266EDDB8DB874C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455342   (1025216) от 21.03.2021
-
-VA - The Metal Hammer - 100 GREATEST SONGS OF THE CENTURY (2021) [MP3|320 Kbps] <Rock & Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. System Of A Down - Chop Suey!
-2. Slipknot - Duality
-3. Deftones - Change (In The House Of Flies)
-4. Ghost - Square Hammer(   Читать дальше...   )Жанр: Rock & MetalПродолжительность: 08:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872730C3FD5075889012BA8A470BD9E4BA85527D
 ```
 
 https://mybot314.ru/tekegram_catalog/

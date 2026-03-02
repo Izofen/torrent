@@ -1,3 +1,119 @@
+###  Публикация: 952729   (353181) от 02.11.2015
+
+VA - NRJ Music Awards 2015 (2015) [FLAC|tracks +.cue]<Pop Compilation, Pop, Dance, R&B, French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - What Do You Mean? (3:23)
+02. David Guetta & Showtek feat. MAGIC! & Sonny Wilson - Sun Goes Down (3:31)
+03. Rihanna - Bitch Better Have My Money (3:37)
+04. Nicky Jam & Enrique Iglesias - El perdón (3:26)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Dance, Electronic, R&B, Hip Hop, House, Funk, Soul, Pop Rock, Ballad, French PopПродолжительность: 02:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6D05EECE69257F7B2BA105008E78D03B09227A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329491   (352375) от 05.10.2019
+
+Tegan and Sara - Hey, I'm Just Like You (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold My Breath Until I Die (03:42)
+02. Hey, I'm Just Like You (03:08)
+03. I'll Be Back Someday (03:12)
+04. Don't Believe the Things They Tell You (They Lie) (03:05)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7B4D47B29CFD79D2DB1CE6C7ABD6798EB1D1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256757   (351877) от 23.10.2018
+
+ABBA - Gracias Por La Musica (1980) Japanese Edition (1986) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracias Por La Música
+02. Reina Danzante
+03. Al Andar
+04. ¡Dame, Dame, Dame!(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D5EFB7BA583B1487F5AC2F28EA0FDBD6F9F132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953083   (351695) от 03.11.2015
+
+Marc Lavoine - L Heure d ete (2005) [FLAC|image+.cue]<Pop,Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toi Mon Amour (03:35)
+ 02. Je Me Sens Si Seul (03:06)
+ 03. Tu M'as Renverse (02:32)
+ 04. La Melancolie (03:16)(   Читать дальше...   )Жанр: Pop,ChansonПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265045FAD3ACDFD46DA7A102AD7AB6A7ECA80A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329385   (349719) от 06.10.2019
 
 Enrique Iglesias - Greatest Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -628,120 +744,6 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2018) 2CD, RE. RM. Parlophone 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6095E47F3BA264BEB206905C81C36F6166D14460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955193   (335009) от 10.11.2015
-
-Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная французская поп-певица Милен Фармер и легендарный британский рок-музыкант Стинг представили новую совместную запись под названием "Stolen Car". Оригинал композиции был выпущен ещё в 2003 году на седьмом сольном студийном диске Стинга "Sacred Love". Тогда треку удалось добраться до 60-й строчки британского песенного чарта.01. Stolen Car (Version Single)
-02. Stolen Car (Version Instrumentale)Жанр: PopПродолжительность: 00:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134F1C880EA91E8E5ED9ED4D4F32823CBFDA0881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420075   (333770) от 31.10.2020
-
-Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help! (Abbey Road Sessions November 15, 1995) (2:54)
- 02. Listen To Your Heart (Abbey Road Sessions November 15, 1995) (3:34)
- 03. Let Your Heart Dance With Me (3:07)
- 04. Waiting For The Rain (Studio Vinden Demo 1997) (3:33)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420114   (333768) от 31.10.2020
-
-Amy Macdonald - The Human Demands (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire [00:04:15]
-02. Statues [00:03:46]
-03. Crazy Shade of Blue [00:04:13]
-04. The Hudson [00:04:59](   Читать дальше...   )Жанр: Pop, Alternative RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B04870157A44C95A23D940CFB2960B7F15278C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955386   (333603) от 11.11.2015
-
-VA - BRAVO Dance 2015 (2015) [FLAC|tracks|WEB-DL]<Top 40, Pop, Electronic, Dance, House, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn feat. Jasmine Thompson - Ain't Nobody (Loves Me Better) (4:01)
-02. Lost Frequencies feat. Janieck Devy - Reality (2:38)
-03. Omi - Cheerleader (Felix Jaehn Remix / Radio Edit) (3:02)
-04. Kygo feat. Parson James - Stole The Show (3:42)(   Читать дальше...   )Жанр: Top 40, Pop, Electronic, Dance, House, Euro House, Deep House, Electro, SynthpopПродолжительность: 02:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89294FD2C9A0C5667DC5AE1FAEF37E78B55BBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

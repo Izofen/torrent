@@ -1,3 +1,31 @@
+###  Публикация: 1436345   (137134) от 31.12.2020
+
+Векторный клипарт - New Year and Christmas illustrations in vector 56 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год и рождество
+10 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07326F5C5059EB406B694804A599555731F52E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436446   (137105) от 31.12.2020
 
 Растровый клипарт - Rolls, sushi sets stock photo [JPG]
@@ -653,32 +681,6 @@ Bitmap — это простой одношаговый процесс, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73F3536D76CC68787C84D7D42BBE938024BFFA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825396   (136763) от 17.10.2025
-
-Шрифты - Creative Market - Mamylinus | Beautiful Calligraphy - 291430974 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mamylinus - красивый шрифт от Denustudios для ваших творческих задач.Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05BF6288AFB5852339EAB2F0254D85E687E1D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1788940   (68437) от 01.04.2025
+
+Шрифты - Font Bundles - Candy - A Modern Script Font [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Candy - Modern Script от Integritype Studio — это современный шрифт премиум-класса, подходящий для любых проектов.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFFCD469C1186AA2F0B0C084444C66B314CE84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788949   (68425) от 01.04.2025
 
 Пресеты - Hunter LaShea Photography - THE WEDDING COLLECTION [XMP]
@@ -668,34 +696,6 @@ CHÉRIE представляет ВЕЛИКОЛЕПНУЮ редакционну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0471D956140B20C87E02B75671B6C0D38943D25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790165   (68172) от 07.04.2025
-
-Шрифты - Ikiiko Type - Monty Blanco - Classic Bold Serif [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шагните в изысканную элегантность 1920-х годов с Monty Blanco, классическим жирным шрифтом с засечками, разработанным для выдающихся джентльменов и ценителей стиля.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BDAE3A7B25105FE9DDEAD6D879470BFCFE2080
 ```
 
 https://mybot314.ru/tekegram_catalog/

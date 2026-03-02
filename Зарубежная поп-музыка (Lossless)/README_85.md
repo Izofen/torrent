@@ -1,3 +1,119 @@
+###  Публикация: 1693249   (121870) от 20.01.2024
+
+Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Must The Show Go On? / In Transit (Instrumental) (5:11)
+02. Good-Bye Bad Times (3:44)
+03. Brand New Love (Take A Chance) (4:06)
+04. Valerie (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693245   (121865) от 20.01.2024
+
+Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joyride (4:24)
+02. Hotblooded (3:18)
+03. Fading Like a Flower (Every Time You Leave) (3:53)
+04. Knockin' On Every Door (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D566A8E77B65D5AD86DC0B7FD09E9DFB9F0E27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693692   (121698) от 21.01.2024
+
+Myriam Hernandez - Tauro (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Como El Aire [00:03:40]
+02. Nos Lo Hemos Dicho Todo [00:04:13]
+03. Solo Cuidate Y Adios [00:04:17]
+04. Con Los Cinco Sentidos [00:03:21](   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68DC6E452BBA56D0E0D083DC547D49C505FFC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694376   (121137) от 24.01.2024
+
+Charlotte Sands - can we start over? (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Use Me (03:02)
+02. Pity (03:00)
+03. Get Over It (03:10)
+04. Spite (03:08)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB652F0FCC1CF2CF9FD9E03A5C5A5BF9003A717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695156   (120492) от 28.01.2024
 
 The Weeknd - Double Fantasy (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop/Electronic R&B>
@@ -627,122 +743,6 @@ Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45BD06A037BD60C6108F8D9DD36E2124066530F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702227   (115030) от 29.02.2024
-
-Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sto male (4:03)
-02. Mi Fa Morire Cantando (4:44)
-03. Minuto Per Minuto (4:17)
-04. Ragazzo Mio (3:25)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC22A597C73B7FA84F409CF978DF7AF55394FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703505   (115018) от 29.02.2024
-
-Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|image + .cue] <Pop, Rock, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Broadway (5:03)
-02. Oh Marie (2:33)
-03. Sentimental Journey (2:55)
-04. Pennies from Heaven (2:59)(   Читать дальше...   )Жанр: Pop, Rock, SwingПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC15E7A4873447FA9958CA42F695CB720E4D81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703663   (114814) от 01.03.2024
-
-Beatrice Egli - Alles in Balance - Leise (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114814.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Neuanfang (2:36)
-02. Du, Du, Du (2:33)
-03. Herzgesteuert (2:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706E31C4F6C06669ACB3865DC7DF443711A6767A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703808   (114795) от 01.03.2024
-
-Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Life [00:03:03]
-02. Magic (Voila) [00:03:15]
-03. I Need To Know [00:04:00]
-04. Sell Me No Dreams [00:03:08](   Читать дальше...   )Жанр: R&BПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB1C4CA6C24839E3F793561872720B53B26D11F
 ```
 
 https://mybot314.ru/tekegram_catalog/

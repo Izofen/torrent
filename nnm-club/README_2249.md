@@ -1,448 +1,28 @@
-###  Публикация: 600798   (998653) от 09.01.2013
+###  Публикация: 599724   (999194) от 07.01.2013
 
-[Wallpapers] New 2013 Wallpaper Pack 18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998653.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 18
-Название: New 2013 Wallpaper Pack 18
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7580A2B33E63FDE3E3DBF3A08542B04EB55C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600612   (998652) от 09.01.2013
-
-Sexy Girls Pack Wallpapers (08.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A61515CB1A3223AFE5D86150C3AB0DC8AD74DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600774   (998651) от 09.01.2013
-
-Рисованная графика - Artworks by alicexz
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора под ником alicexz.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BDF31E41E30400678219544DEF77A2825C7337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600010   (998648) от 09.01.2013
-
-Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Power/Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignition (Intro) [01:57]
-02. Driven [04:35]
-03. Human Condition [04:33]
-04. Death Of Jane Doe [04:43]
-05. Marionette [05:30]
-06. The Road Lesstravelled [05:24]
-07. The Anger And The Silent Remorse [06:23]
-08. Watcher [04:46]
-09. Twenty One [04:47]
-10. Worlds Apart [06:23](   Читать дальше...   )Жанр: Power/Progressive MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600794   (998647) от 09.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998647.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 17
-Название: New 2013 Wallpaper Pack 17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EBB66934DECBA1D9D3ECFE0DE2082BB3324CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600823   (998646) от 09.01.2013
-
-Фотография - Beautiful Girls Part 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Креативная коллекция фоторабот, с прелестными, соблазнительными девушками.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A954794864CDC5AA4042351C3BE8FB9BECB232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600627   (998645) от 09.01.2013
-
-Фотография - Фотограф Silja Magg
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Silja Magg
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877D167F0414B1E6047052E8D2E1B75FBCFF6686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600608   (998644) от 09.01.2013
-
-Computer Desktop Wallpapers Collection (08.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79302EA2B511D19704EE1F20ECEFB40D14065C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600726   (998633) от 09.01.2013
-
-VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998633.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morandi - Everytime (Radio Edit) (4:00)
-2. DAS feat. Лера Туманова (Электра) - Чувствовать Пульс (3:31)
-3. Michael Mind Project feat. Birk Storm - Give Me Love (3:49)
-4. DJ Smash feat. Radio Killer - Save Me Tonight (3:37)
-5. Nelly - Hey Porsche (3:30)
-6. Niku feat. Sardi & DeeJay Iljano - One More Time (Radio Edit) (New Version) (3:41)
-7. Don Omar - Pa Que El Party Se Active (3:03)
-8. Bass Ace feat. DJ Skazka - Начнем Сначала (3:55)
-9. Skrillex - The Reason (4:16)
-10. Timbaland feat. Lil Wanye, Missy Elliott &amp; T-Pain - The Party Anthem (3:57)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 02:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAFBD83DC28BC95BD41FD1BC0B312231906D247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600895   (998630) от 09.01.2013
-
-Various Artists - The Art Of Electro Swing (2012) [FLAC|Lossless]<Future Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tape Five feat. Yuliet Topaz - Madame Coquette
- 02. Artie Shaw - Prosschai (Minimatic remix)
- 03. Samp Brothers - Jazz di Mezzaluna (radio version)
- 04. Club des Belugas - It don't mean a Thing
- 05. Andrew Sisters - Rum & Coca Cola (Jojo Effect Remix)
- 06. anna.luca - Desperately Trying (Swing version)
- 07. Jojo Effect feat. Iain Mackenzie - The Swing Ding Song
- 08. Fred Astaire - Puttin on the Ritz (Club des Belugas Remix)
- 09. Bajka - The Hunting (Maxim Illion remix)
- 10. Brenda Boykin - Hard Swing Travellin' Man(   Читать дальше...   )Жанр: Future Jazz, SwingПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600478   (998629) от 09.01.2013
-
-VA - Золотой шансон. Жиганский 2 (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воровайки – Как трудно ждать
-02. Денис Мафик – Шито-крыто
-03. Александр Звинцов – Старая цыганка
-04. Ори! Зона! – Привет, Одесса!
-05. Сергей Наговицын – Потерянный край
-06. Виктор Крестник – Поезд
-07. Геннадий Жаров – Ушаночка
-08. Волк – Фомочка, отмычечка
-09. Олег Лифановский – Песня преступного мира
-10. Денис Мафик – Часы(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D481727203169CB62ABD17E988C36C7CCFCD59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600807   (998628) от 09.01.2013
-
-Рисованная графика - Artworks by Nithin Рао Kumblekar
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Nithin Рао Kumblekar.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21097436F8EB5ED54852E8F03E034AE771437F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600771   (998626) от 09.01.2013
-
-Фотография - Photos from Peter Edqvist
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Peter Edqvist.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7F928F65C6E5A97F5126FAF4053EEA3CE92703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599322   (998622) от 09.01.2013
-
-VA - Авто Ритм. Убойный музон в авто (2011) [MP3|256-320 кб/с]<Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk Sugar vs. Vaya Con Dios - Hey Nah Neh Nah 7th Heaven Edit (2:39)
- 02. Dash Berlin feat. Emma Hewitt - Disarm Yourself (3:03)
- 03. alisa logina Dj Anton Liss - zazhigajj ogni Radio Edit (3:06)
- 04. Club Madness - Hey Baby Drop It to The Floor OMG Remix Edit (3:18)
- 05. Sean Paul - Got 2 Luv U ft. Alexis Jordan (3:26)
- 06. Hi-Fi Feat. 3Xl Pro - vremja ne vlastno (3:27)
- 07. The Lonely Island ft.Snoop Dogg - Turtle neck chain (3:27)
- 08. shtar - sinijj led (3:31)
- 09. Tiesto vs. Diplo feat. Busta Rhymes - CMon Catch Em By Surprise (3:31)
- 10. Sandro Escobar Feat Katrin Queen Vs Stereo Palma - otdalas (3:38)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 03:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C741BA68BDBBAF3E948BCD1012B2B0A20C06F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600888   (998621) от 09.01.2013
-
-Moolen Rouge - Мельница (2012) [MP3|320 кб/с]<Rap, Hip-hop>
+Санчес - Torover (EP) (2013) [MP3|256-320 кб/с]<Rap>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998621.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Мельница (3:18)
-2. Как дела (2:21)
-3. Кокосы (3:21)
-4. "Give me more" При уч. Victory (No comment's) (NoComm Rec.) (3:55)
-5. Водка (2:56)
-6. Пьяная (при уч. шум bgdd) (3:41)
-7. Попами двигайте (2:57)
-8. Привет командиру (2:42)
-9. Get Down (2:41)
-10. Февраль (NoComm Rec.) (1:52)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:51:57
+1. Предвестник (при уч. tyura)
+2. Всего лишь шаг
+3. Ещё (при уч. Рем Дигга)
+4. Оскал (при уч. Слепро)
+5. При своём
+6. Поиск (при уч. Килла Куплет)
+7. Давай забудемЖанр: RapПродолжительность: 00:20:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49A002817DBF7DE6EED01A97AC8A4883EC669355
+magnet:?xt=urn:btih:43AE5B484C3AFF4EFC4C2CA3FA480D912343EE54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,29 +30,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600795   (998618) от 09.01.2013
+###  Публикация: 600011   (999193) от 07.01.2013
 
-[Wallpapers] Creative wallpapers (09.01.13)
+Журнал | АиФ. Спецвыпуск. Общество № 21 [2012] [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998618.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Creative wallpapers (09.01.13)
-Название: Creative wallpapers (09.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Перед вами очередной выпуск "100 ответов от "АиФ", где вы найдете всю самую полезную, честную и объективную информацию. Как сохранить свою дачу зимой, можно ли вырастить ананас на подоконнике, обязаны ли дети платить налоги, как украсить дом, не потратив ни копейки, какие блюда можно сделать из тыквы, а также как воспитывает сразу четверых детей Мария Шукшина - многодетная одинокая мать.
+Обо всем об этом, а также еще о многих других интересных и полезных вещах вы узнаете из постоянного издания, уже полюбившегося всем читателям "Аргументов и фактов" и просто хорошим людям.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEDA27BBE196F8DA9DA100F0179FC85B4806B98B
+magnet:?xt=urn:btih:0DA3956FCCFBF2E370D12AE6E627554AA0EC242B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +57,544 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600628   (998615) от 09.01.2013
+###  Публикация: 600060   (999191) от 07.01.2013
 
-Фотография - Фотограф Pavel Kiselev
+Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 23 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год - такое время, когда особенно хочется предстать преображенной и блеснуть красой перед своими коллегами, друзьями и близкими. Задача эта вполне выполнимая - даже если до праздничного боя курантов осталось совсем немного времени.
+Для того чтобы стать красивой, совсем необязательно изводить половину семейного бюджета на чудодейственные средства и дорогостоящие процедуры в салоне красоты.
+Домашний уход может дать такие же результаты, как и профессиональный. Не верите? Читайте советы экспертов, из которых составлен сегодняшний номер спецвыпуска "Аргументов и фактов".Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A0DB664E6869EAAE2B67DE1864B4216B461268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599687   (999188) от 07.01.2013
+
+Denny Newman - Sleepwalking With You (2007) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' For the Past
+ 02. Sleepwalking With You
+ 03. This World Keep Turning
+ 04. Burying Ground
+ 05. I'll Get Over You (When You Get Over Getting Over Me)
+ 06. The Case Is Closed
+ 07. Frenchman
+ 08. Potato Boat Blues
+ 09. When the Sun Don't Shine
+ 10. Goin' DownЖанр: BluesПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599580   (999187) от 07.01.2013
+
+VA - Trance. Vocal Fascination 42 (2013) MP3 (2013) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light On - Waterfall (Original Mix)
+ 02. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix)
+ 03. Marcel Woods - Everything (Marcel Woods Treatment)
+ 04. MaRLo - Megalodon (Original Mix)
+ 05. Mike Shiver feat. Bo Bruce - Still Here
+ 06. Moonbeam feat. Avis Vox - Disappearance (Dis Play Remix)
+ 07. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
+ 08. Neev Kennedy - The Unknown (DNS Project Extended)
+ 09. Nuera feat. Szen - Stuck
+ 10. Ralphie B - IcarusЖанр: TranceПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B7F15982CEBFAFECA8E7AB5A1C0514751164E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599693   (999182) от 07.01.2013
+
+Devil's Hollow - Devil's Hollow (2010) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Charm
+ 02. Treated Bad
+ 03. Demons Down
+ 04. Time Will Tell
+ 05. Into The Red
+ 06. Heinous
+ 07. Ketchup's Boogie
+ 08. This Way
+ 09. I Never Knew (Something Wasn't Right)
+ 10. Water To WineЖанр: BluesПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599675   (999180) от 07.01.2013
+
+The Rubettes - The Very Best Of (1999) [MP3|~245 кб/с (V0)]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sugar baby love [00:03:30]
+02 Tonight [00:03:42]
+03 Juke box jive [00:03:03]
+04 I can do it [00:03:20]
+05 Foedeeohdee [00:03:02]
+06 Little darling [00:03:18]
+07 Youre the reason why [00:02:34]
+08 Under one roof [00:04:32]
+09 Baby i know [00:04:21]
+10 My buddy holly days [00:03:16](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788ECADA2E098EDEBCF008E8F87DCED89022D72F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599679   (999178) от 07.01.2013
+
+Dave Nevling - Sweet Bijou (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's All That (5:10)
+ 02. Upside (4:07)
+ 03. Lenora (7:16)
+ 04. Sweet Bijou (4:21)
+ 05. Vieux Carre (4:13)
+ 06. Drink You Away (3:35)
+ 07. Josiah (5:25)
+ 08. Connie's Cafe (4:31)
+ 09. Night Into Day (4:26)
+ 10. I Need Love (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598010   (999173) от 07.01.2013
+
+VA - В ритме танца. Фиеста (3CD) (2010) [MP3|320 кб/с]<Latino>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999173.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1. Ласковое солнцеЖанр: LatinoПродолжительность: 01:06:53
+43. Brazil
+44. Pais Tropical
+45. Lambada (Llorando See Fue)
+46. Macarena
+47. La Rapsa
+48. Tipiton
+49. Soca Pa Ti
+50. Abusadora
+51. Merengue Hi(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009113FD5A47BAF5496178320049F9B5B6DAC5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599697   (999168) от 07.01.2013
+
+FreeFileSync 5.11 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью которых можно исключать файлы из процесса или, наоборот, включать в него.Название программы: FreeFileSyncЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597321   (999165) от 07.01.2013
+
+VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excelsior Groove - Honey - Excellence in Rhythms Mix
+02. Stardeep - Slow Food - House Sonique Deep Mix
+03. FG 2 - New York Sensations
+04. Deep Lovers - Mouse Music - Manhattan Deep Mix
+05. The Groove Boyz feat. Cadillac - Com the House - Progression Vocal Mix
+06. Modell & Mercier - Prisoner - Love On Love Mix
+07. 2W - Light
+08. Alexander Prince - The Prince of the River - Ultradeep Mix
+09. Caesar Anthony Feat. Barra Lopez - We Can Dance - Modell & Mercier Mix
+10. Claude Sine - B-Ass - David Heaven Filter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599677   (999164) от 07.01.2013
+
+WinISO Standard 6.3.0.4754 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999164.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinISO Standard - программа для работы с образами CD и DVD дисков. WinISO работает с форматами BIN и ISO, может редактировать эти форматы и конвертировать из одного в другой. С помощью WinISO вы сможете с легкостью добавлять / удалять / переименовывать / извлекать файлы из образов. Программа имеет очень удобный и понятный интерфейс, который еще сильнее облегчит и без того простую работу в этой программе. Предназначенная для работы с образами BIN и ISO программа WinISO является лидером в ряду софта, разработанного для клонирования и создания образов оптических носителей информации.Название программы: WinISO StandardЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600045   (999161) от 07.01.2013
+
+Mojosoft BusinessCards MX v.4.76 Update [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуализация BusinessCards MX 4.x -> 4.76 (07.01.2013)
+- исправлена ошибка в мастере визитной карточки
+- проведены некоторые настройки и улучшенияНазвание программы: Mojosoft BusinessCards MX UpdateЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598969   (999157) от 07.01.2013
+
+Kaare Norge - Beatles From My Heart (2011) [MP3|~245 кб/с (V0)]<Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Be
+02 - And I Love Her
+03 - Here There And Everywhere
+04 - Penny Lane
+05 - Norwegian Wood (This Bird Has Flown)
+06 - Yesterday
+07 - Girl
+08 - Hey Jude
+09 - All My Loving
+10 - Eleanor Rigby(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B038BFAAE37E0CA5C691F8843A2E3247DD8B6D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598023   (999154) от 07.01.2013
+
+VA - В ритме танца. Движение чувств (3CD) (2011) [MP3|320 кб/с]<Easy Listening>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999154.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1. Движение ЧувствЖанр: Easy ListeningПродолжительность: 01:08:47
+47. My Prayer - Claude Blouin and his orchestra
+48. Yours (Quiereme Mucho) - Ambros Seelos and his orchestra
+49. Mexicali Rose - Peter Hope and his orchestra
+50. Silver Moon - Claude Blouin and his orchestra
+51. Spanish Eyes - Alberto Mendez and his orchestra
+52. Stars Fell On Alabama - Gordon Langford and his orchestra
+53. Romantica - The Victor Silvester Orchestra
+54. It Was A Very Good Year - Ray Davis and his orchestra
+55. Poinciana - Claude Blouin and his orchestra(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF610251113E56832AD9604F3F41062BED77B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598975   (999148) от 07.01.2013
+
+Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Тико-Тико
+2.Ноктюрн
+3.Besame Mucho
+4.Мой ласковый и нежный зверь
+5.Карусель
+6.Baila con migo
+7.Yesterday
+8.Бегут года
+9.Piccola samba
+10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599958   (999147) от 07.01.2013
+
+VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Бублик - Будет Светло
+ 02. Dj Smash feat. Вера Брежнева - Любовь на расстоянии
+ 03. Группа «Руки вверх» - Я тебя люблю
+ 04. Ева Польна - Весь мир на ладони
+ 05. Группа "Достучаться До Небес" - Отпусти меня
+ 06. Елка – Хочу
+ 07. Dan Balan– Люби
+ 08. "Винтаж" & ChinKong - Свежая вода
+ 09. Нюша – Воспоминание
+ 10. Иван Дорн - Бигуди(   Читать дальше...   )Жанр: PopПродолжительность: 1:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599892   (999146) от 07.01.2013
+
+Wise Care 365 Pro 2.17 Build 168 Portable by Valx [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 - программа представляющая комплекс утилит с приятным интерфейсом для обслуживания Вашего ПК. В программу входят очистка ПК от ненужных файлов, дефрагментации и оптимизации реестра, освобождение места на жестком диске, восстановление потерянных файлов, удаление интернет следов и т.д.Название программы: Wise Care 365 ProЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599702   (999141) от 07.01.2013
+
+Рисованная графика - Artworks by Alexandra Prillaman
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998615.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотография - Фотограф Pavel Kiselev
+Работы художника-иллюстратора Alexandra Prillaman.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23420770A81506860FC5C000B6CA4196441BE4C0
+magnet:?xt=urn:btih:5C833B47C83D8E9F02BBBBE4F23676522BF7FCDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,25 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600597   (998614) от 09.01.2013
+###  Публикация: 600003   (999140) от 07.01.2013
 
-74 HQ Wallpapers (06.01.13) [Wallpapers]
+Журнал | Здоровье от природы №1 [январь 2013] [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998614.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+"Здоровье от природы" - журнал о красоте, здоровье и активном образе жизни. Издание сочетает актуальную информацию о современных wellness-тенденциях с практическими рекомендациями по выбору индивидуальных способов поддержания красоты и укрепления здоровья. В журнале представлен широкий спектр традиционных оздоровительных методик с применением природных средств, а также последние научные разработки в области медицины, питания, косметологии.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D528BB783F834E282E92853D194D5CF4BC007F
+magnet:?xt=urn:btih:AF796C6D40BDD4B58D99FC632396A8378C292AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,225 +628,166 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600762   (998611) от 09.01.2013
+###  Публикация: 599994   (999136) от 07.01.2013
 
-Рисованная графика - Artworks by Hollie Hibbert
+Frugalware Linux 1.8-rc1 [x86-64] (5xDVD+2хCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел релиз-кандидат Linux дистрибутива общего назначения Frugalware 1.8, разработанного для опытных пользователей, не боящихся командной строки - уровень сложности Slackware. Основное направление развития дистрибутива - максимальное упрощение. Концепция построения дистрибутива похожа на Slackware, в качестве пакетного менеджера задействован pacman из Arch Linux. При создании пакетов разработчики стараются публиковать программы как есть, избегая внесения дополнительных патчей.
+
+Основные изменения по сравнению со старой версией: Package updates: ядро Linux 3.7.1; Boost 1.50.0; KDE 4.9.5, а также в дистрибутив добавлены mesa 7.11 драйверы.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599714   (999135) от 07.01.2013
+
+Испанский узник / The Spanish Prisoner (1997) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениального изобретателя ложно обвиняют в промышленном шпионаже, краже и убийстве. Скрываться от полиции ему помогают новые товарищи — миллиардер и его прекрасная секретарша.Жанр: Триллер, Драма, ДетективРежиссер: Дэвид МэметАктеры: Кэмпбелл Скотт, Стив Мартин, Ребекка Пиджон, Бен Газзара, Рикки Джей, Фелисити Хаффмен, Ричард Л. Фридман, Джерри Графф...Перевод: Многоголосый закадровый (профессиональный)Продолжительность: 01:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E0E5ABAA9EE116E980D916172F858431B31B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599503   (999134) от 07.01.2013
+
+Узник Зенды / The Prisoner of Zenda (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трон погибшего короля Руритании должен занять принц Рудольф, живущий в Лондоне. Чтобы обезопасить наследника престола по дороге на родину, для принца находят двойника — извозчика Сида.Жанр: Комедия, ПриключенияРежиссер: Ричард КвинАктеры: Питер Селлерс, Линн Фредерик, Лайонел Джеффрис, Эльке Зоммер, Грегори Сьерра, Джереми Кемп, Кэтрин Шелл, Саймон Уильямс, Стюарт УилсонПеревод: Двуголосый закадровыйПродолжительность: 1:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599887   (999133) от 07.01.2013
+
+PGWare PCBoost 4.1.7.2013 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999133.jpg" />
+</div>
+
+
+###  Подробнее
+
+PGWare PcBoost — это продвинутое программное средство, которое быстро в автоматическом режиме освободит ресурс вашей системы под запуск конкретной программы. Эта утилита предоставит вам возможность запускать приложения, такие как: компьютерные игры, программы для видео-фото редактирования на много быстрее, чем это было бы без поддержки данной программы. Утилита в автоматическом режиме возьмёт на себя задачу для выделения больших вычислительных мощностей для конкретных приложений, благодаря чему запущенные приложения работают быстрее.Название программы: PGWare PCBoostЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598000   (999128) от 07.01.2013
+
+VA - В ритме танца. Вальс (3CD) (2010) [MP3|320 кб/с]<Easy Listening, Waltzes>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999128.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1. Будь, что будетЖанр: Easy Listening, WaltzesПродолжительность: 01:04:35
+45. Edelweiss - Dauglas Gamley And His Orchestra
+46. A Place In Paris - Matt Monro & Michael Legrand And His Orchestra
+47. Valsinha - Dominique Chatelain,His Piano And Orchestra
+48. Where Is Your Heart - Mary Carewe
+49. The Canals Of Amsterdam - Ben Cramer
+50. Les Filles Du Bord De Mer - Christian Colombier And His Orchestra
+51. Paris Musette - Paul Mauriat And His Orchestra
+52. Frou-Frou - Ralph Benatar And His Orchestra
+53. L'amour Est Un Bouquest De Violettes - Lei Wang,Violin With The Fierland Fest.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09C6A71D76BD1C4C227B4AD9D36B4C4D8F79164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599686   (999124) от 07.01.2013
+
+Рисованная графика - Artworks by Sushi XAV
 
 >>Графика, Арт, Разное
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998611.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника-иллюстратора Hollie Hibbert.
+Работы художника-иллюстратора Sushi XAV.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A9B368F310D5689628C72B5C6F9AF0D6E3EFCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600625   (998610) от 09.01.2013
-
-Фотография - Фотограф Scott Church
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Scott Church
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C031EAA4AD7B223CDA9D52578502A28C2535B1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600748   (998607) от 09.01.2013
-
-SolveigMM Video Splitter 3.6.1301.9 Final [MULTi / Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998607.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolveigMM Video Splitter – редактор для MPEG-2, AVI, WMV, ASF, MP3, WMA файлов. Основные функции программы - возможность быстро сохранить или вырезать произвольное количество медиа фрагментов из видео / аудио файла, а также объединение медиа файлов. Все операции выполняются с сохранением исходного качества и без потери видео/аудио синхронизации. Интуитивно понятный интерфейс позволяет редактировать медиа-файлы всего в несколько кликов мыши. Программа создана на основе SolveigMM Video Editing SDK, программа обеспечивает высокие качество и скорость обработки избегая операций перекодирования данных. Начиная с версии 2.0 добавлена функция редактирования с покадровой точностью для MPEG-2 файлов. Продвинутая технология SolveigMM оставляет 99% исходных данных в оригинальном виде, транскодируя только некоторые кадры, находящиеся в начале и конце фрагментов.
-
-(   Читать дальше...   )Название программы: SolveigMM Video SplitterЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599010   (998605) от 09.01.2013
-
-Сестрички Долли / The Dolly Sisters (1945) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история началась в 1904 году, когда две сестры близняшки Янси и Рожичка под чутким руководством своего дядюшки начинают исполнять танцевально-музыкальные номера в венгерском кафе, выдавая себя за сестер из Будапешта. Проходят годы и они становятся звездами мирового масштаба и это все благодаря своему изворотливому дядюшке-импресарио, который умудрился обмануть (   Читать дальше...   )Производство: СШАЖанр: Мьюзикл, драма, мелодрама, биографияРежиссер: Ирвинг КаммингсАктеры: Бетти Грэйбл, Джон Пейн, Джун Хэвер, С.З. Сакалл, Реджинальд Гардинер, Фрэнк Латимор, Джин Шелдон, Сиг Руман, Труди Маршалл, Элмер, Лестер Аллен, Херберт Эшли, Нино Беллини, Труде Берлинер, Кэти Даунс, Мэри Куррье
-.Перевод: Многоголосый закадровыйПродолжительность: 01:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA635D3311B031F861E158B5BD1418CF0157DE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600694   (998603) от 09.01.2013
-
-The Faceless - Autotheism (2012) [FLAC|Lossless]<Progressive / Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autotheist Movement I: Create (3:44)
-02. Autotheist Movement II: Emancipate (7:20)
-03. Autotheist Movement III: Deconsecrate (6:40)
-04. Accelerated Evolution (4:39)
-05. The Eidolon Reality (3:47)
-06. Ten Billion Years (5:55)
-07. Hail Science (0:54)
-08. Hymn Of Sanity (1:35)
-09. In Solitude (6:28)Жанр: Progressive / Technical Death MetalПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600765   (998602) от 09.01.2013
-
-DFX Audio Enhancer 11.108 [Английский + Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998602.jpg" />
-</div>
-
-
-###  Подробнее
-
-DFX Audio Enhancer — звуковой плагин для улучшения звучания медиа-плееров и Windows в целом.  Качество звучания значительно улучшается за счет совершенствования частотных характеристик, для чего и предназначен этот плагин. С помощью DFX Audio Enhancer устраняются два главных недостатка — срез высоких частот и недостаточное разделение стереобазы и ее глубины, а также добавляются режимы объемного звучания и супербаса. При помощи этого инструмента вы получите высочайшее качество звука и сможете услышать музыку такой чистоты, как будто вы сидите в концертном зале или рядом с музыкантом.
-
-(   Читать дальше...   )Название программы: DFX Audio EnhancerЯзык интерфейса: Английский + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600879   (998597) от 09.01.2013
-
-AoA DVD Creator 2.6.2 [Eng]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998597.jpg" />
-</div>
-
-
-###  Подробнее
-
-AoA DVD Creator - программа для создания DVD, просто перетащите видео файлы, нажмите "Старт" и дело сделано. С DVD Creator вы можете редактировать ваше видео, сделать структуру и меню для вашего нового DVD, также можете создавать высококачественные DVD-диски с видео и сохранить во все пользующиеся популярностью типы медиа файлов.
-В довершение всего, это программное обеспечение, при конвертации MP4 в формат DVD, ни чем не уступает по скорости большинству конкурирующих программ.
-
-AoA DVD Creator программное обеспечение, которое способно создавать DVD из всех типов файлов. И не только может обрабатывать видео в различные форматы, но он может записывать внушительное количество MP4 на DVD очень быстро.
-
-Еще одна особенность этого программного обеспечения предлагает - совместимость со всеми популярными типами медиафайлов, что удобно, если у вас много файлов для записи, которые хранятся в различных медиа-форматах. Вы можете просто загрузить все файлы, независимо от того являются ли они в том же формате или (   Читать дальше...   )Название программы: AoA DVD CreatorЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600342   (998595) от 09.01.2013
-
-Непослушные родители / Still Standing (2004-2005) SATRip [Сезон 3, 1-23(23)]
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билл и Джуди Миллеры, продавец унитазов и ассистентка дантиста. Они вместе еще со школы и уже годы живут в законном браке. Живут дикой и отвязной жизнью, какой жили еще в школе, но теперь они уже родители троих очень разных по возрасту и по характеру детей. Старший — очень образованный парнишка, который, однако, к ужасу родителей, еще не определился с ориентацией. (   Читать дальше...   )Жанр: СемейныйРежиссер: Эндрю Д. Вейман, Кэти Гарретсон, Джерри Коэн, Джон Трэйси, Марк Сендроуски, Боб Коэрр, Джоэль Мюррей, Роберт Берлингер, Генри Чан, Леонард Р. Гарнер мл.Актеры: Марк Эдди, Джеми Гертц, Дженнифер Ирвин, Тэйлор Болл, Рене Ольстед, Солей Борда, Джоэл Мюррэй, Салли СтратерсПеревод: ДублированныйПродолжительность: Серия ~00:20:00
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:D30846662B5ED83DE31D625B9F7BA8B9158DF49F
 ```
 
 https://mybot314.ru/tekegram_catalog/

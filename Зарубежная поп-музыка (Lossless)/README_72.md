@@ -1,3 +1,119 @@
+###  Публикация: 1642032   (235779) от 26.06.2023
+
+Marshmello - Mellokillaz (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronique, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solteiro Sou um Perigo [00:02:49]
+02. Movimenta [00:02:14]
+03. Taka Taka [00:02:29]
+04. Vem K Me Dá [00:02:31](   Читать дальше...   )Жанр: Electronique, Dance, EDM, Electrohouse, Trap, Progressive-HouseПродолжительность: 00:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4624B0F97C3516B56E877674C4FFD6CC28ABC2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632249   (235615) от 09.05.2023
+
+Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 1) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_235615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Newton-john & Cliff Richard - Suddenly
+02. Olivia Newton-john & Dolly Parton - Jolene
+03. Olivia Newton-john & Michael Mcdonald - Act Of Faith
+04. Olivia Newton-john & Chloe Lattanzi - Window In The Wall(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EC6B2DB7D48262E13072F7B3EF0A1A1E9320EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642044   (235195) от 25.06.2023
+
+Katy Perry - One Of The Boys (2008) 15th Anniversary Edition, 2023, Capitol Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of The Boys [00:04:07]
+02. I Kissed A Girl [00:02:59]
+03. Waking Up In Vegas [00:03:19]
+04. Thinking Of You [00:04:06](   Читать дальше...   )Жанр: PopПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC9F448317C1634AF8530DFCC4331D1CA93B75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632787   (235103) от 11.05.2023
+
+Belinda Carlisle - Kismet (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Big Love
+02. If U Go
+03. Deeper Into You
+04. I Couldn't Do That To Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA51F5B154854D5B8E3EEC5B08603BE86848B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576860   (234851) от 16.09.2022
 
 VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -632,122 +748,6 @@ Marco Mengoni - Atlantico (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:510CE3FDE9E54CBC26A646AA7C5EC2DDE8D7170D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268231   (229295) от 09.12.2018
-
-VA - Now That's What I Call Music! 101 (2018) Box Set, 2CD, UK Series [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229295.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 23 ноября 2018 г. вышел очередной сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальный трейлер к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь (   Читать дальше...   )CD1:
-01. Little Mix feat. Nicki Minaj - Woman Like Me  (3:50)
-02. Calvin Harris & Sam Smith - Promises  (3:35)
-03. Ariana Grande  - God is A Woman  (3:17)(   Читать дальше...   )Тип издания: 2 × CD, CompilationРелиз состоялся: 23 ноября 2018 г.Жанр: Rock, Reggae, PopПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414AA21B324F5778290F227DAD3298F0D757A75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341816   (229221) от 29.11.2019
-
-VA - 538 Hitzone 91 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes - Senorita  (3:12)
-02. Kygo - Higher Love  (3:48)
-03. Lauren Daigle - You Say  (4:30)
-04. Kensington - What Lies Ahead  (3:25)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CDEF360F2BA1B535741CDDB478C577EFA12361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649662   (229213) от 28.07.2023
-
-Mcfly - Power To Play (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Did All the Guitars Go? [00:04:00]
-02. Land of the Bees [00:04:03]
-03. Forever's Not Enough [00:04:41]
-04. God of Rock & Roll [00:03:31](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E5B23E132F2D320D32BF9CBC74CF88BDDD19AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341814   (229077) от 29.11.2019
-
-VA - 538 Hitzone 90 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Borsato, Armin Van Buuren & Divina Michelle - Hoe Het Danst  (4:13)
-02. Shawn Mendes - If I Can't Have You  (3:12)
-03. Meduza Featuring Goodboys - Piece Of Your Heart  (2:33)
-04. Imagine Dragons - Birds  (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A71A03D4430E1BD5FBC25F680CC704A448EE0EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

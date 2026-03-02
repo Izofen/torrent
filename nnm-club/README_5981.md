@@ -1,25 +1,25 @@
-###  Публикация: 1120581   (802120) от 31.03.2017
+###  Публикация: 1010755   (802563) от 25.04.2016
 
-Another Messiah - Dark Dreams, My Child (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Art Farmer - In Europe (1970) Remaster, 2006, Enja[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802120.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. These Lonely Eyes (6:11)
-02. And Now I Will (5:01)
-03. My God It's Him (6:36)
-04. I Never Noticed (6:36)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:06
+01.Concord [09:28]
+ 02.Overnight [15:20]
+ 03.Re-Entry [10:16]
+ 04.Concourse [14:11](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:00:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F00C39A6DD4619E2A88DAA1CF6A4CD24CC7E7EBA
+magnet:?xt=urn:btih:74E70CF2EBCF8B49EDD9811BDC6A28663728493E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,273 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010594   (802119) от 25.04.2016
+###  Публикация: 1010749   (802561) от 25.04.2016
 
-Jimmy Page, John Paul Jones, John Bonham - Rock And Roll Highway (2007) [APE|Lossless|image + .cue] <Rock>
+Art Farmer & Benny Golson - Meet the Jazztet (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Serenata [03:33]
+ 02.It Ain't Necessarily So [04:30]
+ 03.Avalon [03:33]
+ 04.I Remember Clifford [03:14](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285A492FE9D5DE1E9A3AD5EB95ADED0BF4E742D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010611   (802560) от 25.04.2016
+
+Billy Cobham - Magic (1977) Reissue 2004 [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Magic Carpet Ride
+02. AC/DC
+03. Leaward Winds
+04. Puffnstuff(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298DCABE303E89FF9E8C564CDF95FCE2133EC188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010458   (802559) от 25.04.2016
+
+В. Д. Гранов и др. | В поисках духовной опоры: Общеполитические и международные аспекты буржуазных концепций «реидеологизации» (1981) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802559.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии анализируется процесс «реидеологизации», то есть усиление внимания правящих кругов капиталистических стран к идеологической обработке масс в условиях духовного кризиса буржуазного общества.
+
+Исследование показывает, как под влиянием глубоких сдвигов в международных отношениях правящие круги, крупнейшие буржуазные партии стран Запада обосновывают «реидеологические» (   Читать дальше...   )Жанр: История, политология, социология, философия, психологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316ADD18D9076BC2026CC7B33FB39670787A95E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010632   (802558) от 25.04.2016
+
+Подмосковные вечера (2016.02.21) HDTVRip [H.264/1080p] (выпуск 1)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может быть лучше, чем поиграть вечером в компании добрых друзей? В первом выпуске шоу «Подмосковные вечера» в гости к дуэту «Сестры Зайцевы» пришли Нюша, Михаил Галустян, Александр Ревва, Дмитрий Шепелев, Ёлка… и молодой, перспективный телеведущий Иван Ургант!Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469D08F8ECF0A6315DDBC2FF94C494F7330A6E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010784   (802557) от 25.04.2016
+
+Dropzone 3.5.5 (906) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone: Автоматизация рутинных действий
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что Mac OS X заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные операции, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 апреля 2016Разработчик: Aptonic LimitedПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDEB344ABB1DA02721919058EEF86D7D4225514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010477   (802556) от 25.04.2016
+
+С. И. Попов | Кризис буржуазной идеологии как духовное выражение общего кризиса капитализма (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Буржуазная идеология — это весьма сложное духовное образование, включающее совокупность философских, социологических, социально-политических, юридических, политико-экономических, исторических, художественно-эстетических, религиозных и иных идей, концепций и теорий. Всякая идеология была и остается сознанием классовым, а следовательно, партийным, хотя буржуазная партийность, (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F175B1F3B714C4C1263CFAA21465922F0B102064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010728   (802555) от 25.04.2016
+
+Елена Холмогорова | Признаки жизни (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под этой обложкой собраны истории со счастливым концом. Они написаны в форме музыкальных произведений, поэтому содержание книги напоминает программу концерта. Их объединяет главный, общий мотив - надежда. Ищет счастье героиня "Сиротской зимы", уверенность в том, что лучшее впереди - центральная тема "Признаков жизни", о том, как возвращается, (   Читать дальше...   )Жанр: Современная отечественная прозаПродолжительность: 05:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9B742358DF9149BF07B44C548EBFEDE795708C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010636   (802554) от 25.04.2016
+
+Подмосковные вечера (2016.03.12) HDTVRip [H.264/1080p] (выпуск 3)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шоу «Подмосковные вечера» две команды соревнуются между собой, принимая участие в разных конкурсах. В составах команд – звезды, а капитаны – обычные люди. Команда‑победитель принесет своему капитану денежный приз (максимальный размер приза – 500 тысяч рублей).
+В очередном выпуске участвуют команда московского юриста Артема и команда работника банка Анастасии. (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПеревод: ОтсутствуетПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CD18CDD94DE46F6D08844FD1A4B2E118F1B30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010633   (802553) от 25.04.2016
+
+Подмосковные вечера (2016.03.05) HDTVRip [H.264/1080p] (выпуск 2)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802553.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шоу «Подмосковные вечера» две команды соревнуются между собой, принимая участие в разных конкурсах. В составах команд – звезды, а капитаны – обычные люди. Команда‑победитель принесет своему капитану денежный приз – до 500 тысяч рублей.
+Во втором выпуске участвуют команда Екатерины Дементьевой, организатора гастролей детских спектаклей, и команда Александра (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A75298D15ADC02B62C83AAF13D1176964C141AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010772   (802551) от 25.04.2016
+
+Donavon Frankenreiter - Donavon Frankenreiter (2004) [FLAC|Lossless|tracks] <Rock, Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802119.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everything I Do Is Wrong
-02. Think It Over
-03. Dixie Fried
-04. Fabulous(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:15
+01. It Don't Matter    03:06
+02. Free (featuring Jack Johnson)    02:28
+03. On My Mind    03:07
+04. Our Love    02:28(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:38:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC247DC07A0762032DCAD4D0CB9129DAA551D060
+magnet:?xt=urn:btih:7CFE07410F9184858F329BBCF2CEC183407BDF24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +301,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120504   (802118) от 31.03.2017
+###  Публикация: 1010174   (802550) от 25.04.2016
 
-Frailty - Ways of the Dead (2017) [MP3|320 Kbps] <Doom, Death Metal>
+Владимир Семенов | Жизнь и Победа (2015) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802118.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. And the Desert Calls My Name
-02. Daemon Sultan
-03. Cthulhu
-04. With the Deep Ones I Descend(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:07:37
+В книге рассказывается о замечательном семействе Ашиков, более 200 лет живущих в России. Выходцы из Сербии, они оставили заметный след в истории государства Российского. Более подробно повествуется о нелегкой судьбе одного из последних представителей династии – Михаила Владимировича Ашика, Героя Советского Союза, полковника в отставке, пережившего блокаду Ленинграда, (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литература, История, Книги о войнеФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1CBD392C458F549F2012930AE857891EAF398E9
+magnet:?xt=urn:btih:53FF4FE8336C648424BFFAEAEC67A94A2D6AC200
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,54 +327,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120467   (802117) от 31.03.2017
+###  Публикация: 1010507   (802549) от 25.04.2016
 
-OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfall (04:45)
-Desire (03:16)
-The First Cut (03:25)
-Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010776   (802116) от 25.04.2016
-
-Василий Маханенко | Гамбит Картоса (2016) [MP3]
+Владимир Тан-Богораз | Союз молодых (2016) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802116.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новейшие технологии позволили создать Барлиону – виртуальный мир развлечений, отдыха и общения. Правительство выступило гарантом легитимности игровых денег и их свободного обмена на реальные кредиты. Население почувствовало «халяву» и хлынуло в Барлиону. И кто-то, разумеется, додумался превратить Барлиону в место наказания преступников. Тело осужденного помещали (   Читать дальше...   )Жанр: Фэнтези. LitRPGПродолжительность: 12:50:59
+В 1928—1929 годах Владимир Тан-Богораз подготовил к изданию четыре тома своих беллетристических произведений о Севере, которые вышли в издательстве ЗИФ.
+В 1927-1928 годах он написал «несколько неожиданно для самого себя, урывая досуги от научной работы», большой роман «Союз молодых», широкое полотно ссылки начала века, революции и гражданской войны на Севере. «Написано (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 16:11:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E4D1FE729FFB8715FB4E6455994E91B9A577350
+magnet:?xt=urn:btih:F0AC690F0ACFC90E2E911A32739A8DD77020EBEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,57 +354,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120559   (802115) от 31.03.2017
+###  Публикация: 1010550   (802548) от 25.04.2016
 
-VA - Beatport Trance  Pack (31.03.) (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul van Dyk - Touched By Heaven (Extended)  7:30
-02.  Davey Asprey - Fallout (Extended Mix)  5:52
-03.  Ratty - Sunrise (Indecent Noise's Dreamstate Remix)  7:22
-04.  Sean Matthews - Our Empire (John Askew Remix)  7:40(   Читать дальше...   )Жанр: Trance, Energy, Uplifting, Emotional, Blissful, ProgressiveПродолжительность: 03:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA7A9619C3FAEFF6959FBA037A46E71B866AB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120338   (802114) от 31.03.2017
-
-Cosmic Gate - Earth Mover (Platinum Edition) (2009) [MP3|320 Kbps] <Trance, Progressive Trance>
+Александр Бородыня | Цепной щенок [сборник] (1998) [FB2]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802114.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  Cosmic Gate feat. Sir Adrian - A Mile In My Shoes  7:17
-02.  Cosmic Gate feat. Jan Johnston - I Feel Wonderful (Cosmic Gate's AM 2 PM Edit)  4:36
-03.  Cosmic Gate - Element Of Life  5:58
-04.  Cosmic Gate feat. Tiff Lacey - Should've Known  7:23(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:47:34
+В сборник современного российского писателя Александра Бородыни включены три криминальные истории: роман о подростке, втянутом в чужую страшную игру «Цепной щенок», роман о старом уголовнике «Вирус G» и повесть о преступлении на туристическом лайнере «Самолет над квадратным озером».Жанр: Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FA32171490DECD16191FC3C8FCBA37653435FFE
+magnet:?xt=urn:btih:66209B3C87908DD093291060BA083FD83ECEB127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +380,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120519   (802113) от 31.03.2017
+###  Публикация: 1010647   (802547) от 25.04.2016
 
-Orpheus Blade - Wolf's Cry (2015) [MP3|320 Kbps] <Progressive Metal, Avant-Garde Metal>
+Владимир Тендряков | Покушение на миражи (2012) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802113.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shadows Still
-02. The Finest Art of Feeding
-03. The Becoming
-04. Under Dying Stars(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:00:21
+Всю свою жизнь Владимир Тендряков мучился вопросами бытия, видел и старался писать бескомпромиссную правду. В романе "Покушение на миражи", который стал одним из последних его произведений, писатель с публицистической резкостью обрушивается на созданные людьми миражи, разрушает иллюзии безмятежной жизни.Жанр: Русская классическая прозаПродолжительность: 08:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B77CA3933274AC5C7BE7A62D0ABE39C059A203E4
+magnet:?xt=urn:btih:38B26B47C39E94AE87E05C3C89DA41076FBF1ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,56 +406,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010663   (802112) от 25.04.2016
+###  Публикация: 1010499   (802546) от 25.04.2016
 
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 29 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nude Disco & Heidrun - Only You (03:37)
-02. Modern Talking - Brother Louie (Dj Peretse Remix) (04:49)
-03. Bad Boys Blue - You're A Woman (Dj Peretse Remix) (05:23)
-04. Boney M - Nightflight To Venus (Blank & Jones Remix) (04:44)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 05:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D1725D9B319F1EFF9D068A5CB4B2F2C9185AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120734   (802111) от 31.03.2017
-
-Things 2.8.11 [Multi/Ru]
+Футбол. Чемпионат Англии 2015-2016. 35 тур. Сандерленд - Арсенал (24.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802111.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+24 апреля 2016, воскресенье. 16:05 МСК
+35-й тур
 
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2017Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+Стадион: Стэдиум оф Лайт (Сандерленд, Англия) , 45 420 зрителей (93 % при вместимости 49 000)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:42:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AAFEF14BA5F9F8E210196C42264F153C59A0CF8
+magnet:?xt=urn:btih:15EC7A9831BB4B0F6049993372E8FE3D1E8CA4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,54 +435,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010560   (802110) от 25.04.2016
+###  Публикация: 1010706   (802545) от 25.04.2016
 
-Stand Up (2016.04.24) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 9)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E125EA0C53D524938E514F694765239174FBEDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120379   (802109) от 31.03.2017
-
-Quiver: The Programmer's Notebook 3.0.5 [En]
+Path Of Destiny - Dreams In Splendid Black (2016) [FLAC|Lossless|image + .cue] <Melodic, Symphonic Black, Death Metal>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802109.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Quiver — это записная книжка, специально созданная для программиста.
+Chapter 1: Of Demons And The Wretched Spawn: 
 
-Основные возможности:
-	•	С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 марта 2017Разработчик: HappenApps, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+01. The Awakening 01:39
+02. Invocation 03:47(   Читать дальше...   )Жанр: Melodic, Symphonic Black, Death MetalПродолжительность: 00:48:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DF9FDEDC733B4D2A3399EE54689681CDD85DF24
+magnet:?xt=urn:btih:D92E4FC2392ADED24737F65EE742FB50D145F4DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,25 +464,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010735   (802108) от 25.04.2016
+###  Публикация: 1010741   (802544) от 25.04.2016
 
-Проекты - VideoBlocks - Glitchy Digital Slides [AEP]
+Lena Anderssen - Eagle In The Sky (2015) [FLAC|Lossless|tracks] <Pop, Alternative, Folk>
 
->>Проекты
->>Слайдшоу (проекты)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802108.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для создания слайд шоу с эффектом глюка.Формат: AEP
+01. Home Sweet Home    03:14
+02. Eagle In The Sky    04:49
+03. Sorry That I Made You Cry    04:05
+04. Oh Brother With The Broken Wing    04:43(   Читать дальше...   )Жанр: Pop, Alternative, FolkПродолжительность: 00:46:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A07ECEAF3E1D75712EF91B8A82A4B3362919EB50
+magnet:?xt=urn:btih:03410EE691B1B0B95CA58C937C83FA5790FCF606
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,25 +493,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010505   (802107) от 25.04.2016
+###  Публикация: 1384461   (802543) от 20.05.2020
 
-Проекты - VideoHive - Agency Models Photos Videos MediaBook HD [AEP]
+Microsoft Visual Studio 2019 Community 16.5.4 (Offline Cache, Unofficial) [Ru/En]
 
->>Проекты
->>Презентации (проекты)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802107.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для создания фото-видео книги модельного агентства, свадебного альбома, воспоминаний и т.д. Очень легкие и быстрые настройки.Формат: AEP
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.
+Процедура регистрации:Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2CADBFC5770C1CD6FD55B02D43EE68A4DDDB373
+magnet:?xt=urn:btih:B0E0F293F00E812DEC51C1B552B3D117AA91E958
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,25 +520,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010502   (802106) от 25.04.2016
+###  Публикация: 1384403   (802541) от 20.05.2020
 
-Проекты - VideoHive - Disco Style [AEP]
+Векторный клипарт - Cute little forest fairy with magic wand and funny characters [EPS]
 
->>Проекты
->>Слайдшоу (проекты)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802106.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disco Style - Это новый взгляд на стиль диско. Легкая атмосфера, сцена с большими изогнутыми экранами и 3D-текстом. Композиция очень легко настраивается и редактируется.Формат: AEP
+Векторный клипарт для дизайна.
+Милая маленькая лесная фея с волшебной палочкой
+9 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15363E866FA12414ECDDF38AE44C3E565E743DB6
+magnet:?xt=urn:btih:B9B995DE45155EBEF8BE641A8B4C6C744C97D563
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,25 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120573   (802100) от 31.03.2017
+###  Публикация: 1384366   (802540) от 20.05.2020
 
-Вечерний Ургант (2017.03.30) SATRip
+GeoGebra 6.0.583.0 Classic + Portable [Multi/Ru]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802100.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:46
+GeoGebra — мультиплатформенное программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D307C11E2065C181BBB113D4D26778AE1ACBF6F7
+magnet:?xt=urn:btih:736DE4F3ED39E476D4F270230D72022CEF7DE9F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,28 +574,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120589   (802099) от 31.03.2017
+###  Публикация: 1384420   (802539) от 20.05.2020
 
-Markus Schulz - Global DJ Broadcast:guest Nifra (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+AnyBurn 5.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Burn - небольшая бесплатная утилита для работы с CD/DVD/Blue-ray дисками. Интерфейс программы достаточно удобен: главное окно представляет из себя набор закладок, которые выбираются в зависимости от конкретной задачи. Можно записать на диск готовые образы или отдельные файлы и папки, записать Audio-CD из имеющихся файлов аудиоформата, стереть перезаписываемый (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3CC94513307D4B07BC29485D523A8FD6BDE4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384452   (802537) от 20.05.2020
+
+Ultra Mood - Oblivion (2020 Edit) (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802099.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Markus Schulz
-01. Dan Thompson - Lucid
-02. Alpha 9 & Koven - Only Good Mistake
-03. Soundprank - Don't Take it Away(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 02:00:31
+01. Oblivion (2020 Edit)Жанр: HardstyleПродолжительность: 00:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2018FF0AE32B04FDBBF732248340644F527C9125
+magnet:?xt=urn:btih:8179D052F8F9B14BEDAAC953CA34D859BCC127F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,115 +626,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120378   (802098) от 31.03.2017
+###  Публикация: 1384458   (802536) от 20.05.2020
 
-VA - 100 House Matrix (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802098.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Janieck - Feel The Love (Sam Feldt Edit)
-002. Tom Novy - Dance The Way I Feel - Club Mix
-003. Agresias - Ink (Original Mix)
-004. Gil Glaze - Can't Let You Go - Radio Edit(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 09:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE45929A0EE9414336DBA2534FBB99AA471FE286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120516   (802097) от 31.03.2017
-
-Come To Dolly - Desire (2017) [MP3|320 Kbps] <Alternative Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire
-02. If I Lead You To The Moon
-03. Zero Point
-04. I Move The Stars For No One(   Читать дальше...   )Жанр: Alternative Metal, Progressive MetalПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76572CC064D53C31F3295A5C459CEE9D9F94E297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120685   (802096) от 31.03.2017
-
-НаmmerFаll - Вuilt То Lаst (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring It! (4:20)
-02. Hammer High (4:39)
-03. The Sacred Vow (4:13)
-04. Dethrone And Defy (5:11)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2705A6EA49DD4BFC0CE85ACAC38CE506B645C286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120396   (802095) от 31.03.2017
-
-Студия Маркел - Малина (2017) [MP3|320 Kbps] <Шансон>
+Microsoft Visual Studio 2019 Professional 16.5.4 (Offline Cache, Unofficial) [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802095.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Малина
-02. Марафет
-03. Губы твои алые
-04. Укушенный(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:00
+Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BF6BDFBE7F0210F62EE70FCD7B248D38B53E473
+magnet:?xt=urn:btih:16573F2B4BCB99F1A420E4B5CFD6144B5D6D2D90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,140 +652,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120626   (802094) от 31.03.2017
+###  Публикация: 1384480   (802535) от 20.05.2020
 
-Call The Mothership - 2 Альбома (2014-2017) [MP3|320 кб/с]<Progressive Metal, Earthcore, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802094.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 - Of Cold Fusion And Light Mass
-2017 - Of Dark Matter And AscensionЖанр: Progressive Metal, Earthcore, Groove MetalПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA7274B55A1AB742362B6C48E8E1CF22663289B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120683   (802092) от 31.03.2017
-
-Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Coughlin (02:59)
-02. Albert’s Girl (02:45)
-03. The Getaway (03:05)
-04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02D9777F18AA69564907CF58EAAEAFDAC9BA1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120505   (802091) от 31.03.2017
-
-Lodz - Time Doesn't Heal Anything (2017) [MP3|320 Kbps] <Atmospheric Post-Hardcore, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Negligence
-2. Time Doesn't Heal Anything
-3. The Sound of Deceit
-4. Shattered Dreams(   Читать дальше...   )Жанр: Atmospheric Post-Hardcore, Post-MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165B963B5456E8D39474BF7CC0492B30F09669C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120503   (802090) от 31.03.2017
-
-Heart Attack - The Resilience (2017) [MP3|320 Kbps] <Modern Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Sight
-02. Burn My Flesh
-03. Congrats to People
-04. Fight to Overcome(   Читать дальше...   )Жанр: Modern Thrash, Groove MetalПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A525768C952E7C299C3AEA27881CFE9E79362846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120442   (802089) от 31.03.2017
-
-Espresso 3.0 [En]
+Telegram Desktop 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802089.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Espresso - веб-ориентированный текстовый редактор
-Espresso  вернулся. Для людей, которые делают восхитительные, инновационные и быстрые веб-сайты. Espresso помогает вам писать, кодировать, проектировать, создавать и публиковать с чуткостью и эффективностью. Сложные текстовые функции, потрясающий просмотр в реальном времени с помощью браузера Xray, инструменты CSSEdit, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 марта 2017Разработчик: MacRabbitПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
+Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44B5972AB564D88D88979C438AEC1041340EA8F3
+magnet:?xt=urn:btih:795D2392886D935216ED60E26F4B94AD3932EA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384454   (802532) от 20.05.2020
+
+Microsoft Visual Studio 2019 Enterprise 16.5.4 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB5F38A65D92C69A6116FEC9B580249C0E64352
 ```
 
 https://mybot314.ru/tekegram_catalog/

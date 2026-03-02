@@ -1,3 +1,61 @@
+###  Публикация: 1577902   (350295) от 21.09.2022
+
+Магистр - Бубльгум (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Встаньте в круг [00:01:01]
+02. Никто не знает ничего [00:02:58]
+03. Словно меч [00:04:50]
+04. Деньги & слава [00:04:42](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4B643FA4F6E491EE0D8BAD90F9AA71A95C82E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072870   (349835) от 14.11.2016
+
+On-The-Go - Origins (2016) Digipak CD Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electricity (4:54)
+02. Two of a Kind (4:36)
+03. Genesis (1:04)
+04. Wake Up Call (3:06)(   Читать дальше...   )Жанр: Indie Rock, Rock, ElectronicПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84957FB1E1BA02ADAEC81347D9C94A6B4028030D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953408   (349559) от 04.11.2015
 
 Ва-Банкъ - Игроки и шпионы (2005) [FLAC|image+.cue]<Rock>
@@ -693,63 +751,6 @@ Zmey Gorynich - Vжица (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51FD69005A0210A8394A35B9C3AF15262CB0782D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955695   (330207) от 14.11.2015
-
-СатанаКозёл - 3 альбома (2008-2015) [FLAC|Lossless|image+.cue] <Pagan, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330207.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Рогатыя
-2010 - Солнце мёртвых
-2015 - СеверЖанр: Pagan / Folk MetalПродолжительность: 02:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6896211145F36C759598FD9756CF0BFD33FB73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956221   (330176) от 14.11.2015
-
-Браво - Навсегда (2015) [FLAC|image + .cue]<Pop Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перемена мест (3:13)
-02. Ray Davies (3:18)
-03. DJ Фантомас (3:50)
-04. Навсегда (3:25)(   Читать дальше...   )Жанр: Pop Rock, Rock'n'RollПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360123AAD45107CC6A6482567BDA0295A942C632
 ```
 
 https://mybot314.ru/tekegram_catalog/

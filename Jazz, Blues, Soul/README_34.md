@@ -1,32 +1,3 @@
-###  Публикация: 1461801   (1021532) от 11.04.2021
-
-Popa Chubby - Tinfoil Hat (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinfoil Hat (4:07)
-02. Baby Put On Your Mask (2:45)
-03. No Justice No Peace (5:06)
-04. Someday Soon (Change Is Gonna Come) (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B447073BA2A00A91DE8DF90D998F25E66106C79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461979   (1021463) от 12.04.2021
 
 Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -745,6 +716,35 @@ Luis Russell - 1945 - 1946 (1999) Classics [FLAC|Lossless|image + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B1ADAFC94FFEF1E3C32325CDD4DF10DD8E0F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465773   (1018998) от 27.04.2021
+
+Buddy DeFranco (De Franco) - 1949 - 1952 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boy Next Door [2:36]
+02. A Bird in Igor's Yard [2:54]
+03. This Time the Dream's on Me [3:08]
+04. Bud's Invention [2:39](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC392F94437405670531C5CA7E2DA257AE5C902
 ```
 
 https://mybot314.ru/tekegram_catalog/

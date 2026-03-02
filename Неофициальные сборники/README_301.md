@@ -1,3 +1,218 @@
+###  Публикация: 906932   (641461) от 10.06.2015
+
+Space - Лучшие хиты (2014) [MP3|320 кб/с]<Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly
+02. Symphony
+03. Tango In Space
+04. Just Blue(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF1C8E532599B07216D1EF0D54AAE0035569D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518711   (641437) от 04.07.2012
+
+VA - Союз Золотой 8 50/50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Анна Семенович - Июльское Лето
+002 Dr. Alban - Loverboy
+003 Инь-Ян - Инопланетянин
+004 Rihanna feat. Calvin Harris - We found love
+005 Маша Вебер - Всё Для Тебя
+006 Rico Bernasconi & Freeze - Hit the dust (Video mix)
+007 Алабама - Испанское Лето
+008 Ivan Gough & Feenixpawl feat. Georgi Kay - In my mind (Radio mix)
+009 Reflex - Я буду небом твоим
+010 Basto! feat. Yves V - Cloud breaker (Basto radio edit)(   Читать дальше...   )Жанр: РорПродолжительность: 05:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8D75C8EA9E1B4556A8FA968C0FE4F032428015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518620   (641396) от 04.07.2012
+
+VA - Kiss FM - Top-40 (03.07.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parachute Youth - Can't Get Better Than This (Original Mix)
+ 02. Gotye - Somebody That I Used To Know (Dberrie Rmx)
+ 03. Adam F - When The Rain Is Gone
+ 04. Armin van Buuren - Orbion
+ 05. Orjan Nilsen - Amsterdam (Original Mix)
+ 06. Skrillex & Members of The Doors - Breakn' A Sweat (Zedd Rmx)
+ 07. Emma Hewitt - Colours (Armin Van Buuren Rmx)
+ 08. Правительственный Гаражный Бэнд - Гимн Казантипа 2012 (Original)
+ 09. Dada Life - Rolling Stone T-Shirt (Cazzette Remix)
+ 10. DJ Fresh feat. Rita Ora - Hot Right Now (Extended mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BF4A59B414C480E05E06AC2A3002CF0F8F30B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906841   (641378) от 10.06.2015
+
+VA - My Favourite Hits of 1976 (14CD) (2015) [MP3|320 кб/с]<Electronic, Chanson, Funk, Disco, Pop, Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nazareth - Somebody To Roll (03:53)
+002. ABBA - Dancing Queen (03:48)
+003. Smokie - I'll Meet You At Midnight (03:15)
+004. Boney M. - Daddy Cool (03:27)(   Читать дальше...   )Жанр: Electronic, Chanson, Funk, Disco, Pop, Rock, Blues RockПродолжительность: 16:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4E5C4E2E221B0483692EF12B9729246AE82465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906811   (641366) от 10.06.2015
+
+VA - Лирика по венам. Первая доза (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Денис RiDer - Будущая
+ 02. DJ HaLF & SERPO - Мономир
+ 03. Serpo - 24 часа
+ 04. Андрей Леницкий - Никогда(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 03:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAF0AAA443FEDEF1193EFE5AA6E1177490E9ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292967   (641359) от 01.04.2019
+
+VA - Connection Through Sound (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641359.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Leavon - When Im With You
+002. Aly & Fila With Sue Mclaren - Surrender
+003. Ana Criado & Alan Morris - Border Line (Radio Edit)
+004. Haris C & Michael Angelo - Take It All Back (Original Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 11:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2728B88150318AFB41ECC5A8F6CE6B54D861634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292969   (641357) от 01.04.2019
+
+VA - Music Fop A Bright Dream (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 01-N - Rudra
+002. Allaby - Black Sands
+003. Berg - Big Bang Machine
+004. Brainiac - Computer Brains(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4B034A596F67B684BC7B9112F75C44B7C77981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906941   (641356) от 10.06.2015
 
 VA - Союз летних хитов на Europa Plus (2015) [MP3|256 кб/с]<Pop>
@@ -551,209 +766,6 @@ VA - Blues Hits - (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Blues, Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B3E946DABF70AC8D0027760AC2264AEAB0939E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142768   (640516) от 15.06.2017
-
-VA - Billboard Hot 100 Singles Chart 24.06. (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
-002.  Bruno Mars - 24k Magic  3:47
-003.  DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One  4:49
-004.  Ed Sheeran - Shape Of You  3:54(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730A0055A652066084B8B1CB1A60E9B314DE8192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292954   (640493) от 01.04.2019
-
-VA - Exotic Disco Dance (2019) [MP3|320 Kbps] <Electronic, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abbe - You Make It Hard To Love You (1980) (7:13)
-02. AKB - Stand Up - Sit Down (1979) (8:13)
-03. Amadeo - Moving Like A Superstar (1977) (10:05)
-04. Bombers - (Everybody) Get Dancin' (1979) (9:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1763B8928877BA003036BA6CA5F19B13E0FD4A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033380   (640204) от 10.07.2016
-
-VA - My Boo: R&B Dance (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Town DJs - My Boo - Hitman's Club Mix
-02. Usher - Pop Ya Collar
-03. Destiny's Child - Jumpin
-04. R. Kelly - Bump n' Grind(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9875FACC7075A48314EDE01C5F15635443B5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033209   (640193) от 10.07.2016
-
-VA - Funky Club House XS (2016) [MP3|245-320 Kbps] <Club, Funky House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640193.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Def Rock & Tarlan - Hook (Radio Edit)
-002. Marsal Ventura & Gerox - Take My Hand (Radio Edit)
-003. Karim Mika - Sax (Afrojack Edit)
-004. Dainpeace - Its Not Too Late (Radio Edit)(   Читать дальше...   )Жанр: Club, Funky House, ElectroПродолжительность: 10:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3D40582F95990711288C6889DD6A58DA522CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033375   (640112) от 10.07.2016
-
-VA - Planeta Mix Hits 2016 - Summer Edition (2016) [MP3|320 Kbps] <Funky, Progressive, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Booty Shake (Radio Edit) (3:26)
-02. Clubhunter - Pump It! (Turbotronic Radio Edit) (2:56)
-03. Jimmy Trias - Take Solutions (Radio Edit) (3:48)
-04. Giovanni Russo - My Summer (Original Mix) (4:37)(   Читать дальше...   )Жанр: Funky, Progressive, Club, HouseПродолжительность: 02:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC70020D231BE415DB83B2DC4A159F6A64ADFA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033115   (640009) от 10.07.2016
-
-VA - Summer Running (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Palma Feat. Craig David - Our Love (Club Mix)
-02. Sean Norvis & Lil Lee - Piece of Me
-03. Sky and Sand - Feeling Alive (Radio Love)
-04. Soundmietzen Feat. Egowelle - Meine Welt (Mabose Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 07:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990FB7A5BDE5E93C7B6EADEB293CAEDAD8908EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033326   (640007) от 10.07.2016
-
-VA - Summer Hits 2016 Vol.3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fait - Lost (Short Mix)
-02. Ti-Mo - One Way Street (Radio Edit)
-03. Ray Knox - Reach Out (Rob Mayth Edit)
-04. Age Pee - Out of the Dark (Rob Mayth Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A558CFF158E6C8487C1E1C9CC6A7AF305A1271
 ```
 
 https://mybot314.ru/tekegram_catalog/

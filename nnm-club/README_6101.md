@@ -1,25 +1,22 @@
-###  Публикация: 1273912   (798775) от 04.01.2019
+###  Публикация: 1507043   (799096) от 02.11.2021
 
-They Might Be Giants - The Escape Team (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+TurboMosaic Pro 3.6.4 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798775.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jackie the Clipper
-02. Chip the CHiP
-03. Burnice
-04. Dr. Sy Fly(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:23:48
+TurboMosaic — утилита, позволяющая легко и быстро строить превосходные фото мозаики из выбранных Вами изображений. Удивите друзей плакатом или постером, созданными своими руками из Ваших фотографийТип издания: macOS SoftwareРелиз состоялся: 08.09.2021Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:156B1E65B9D325CF9BB185526C76172BE5A1DDFC
+magnet:?xt=urn:btih:0F1E6FFE7B3FA987FE458ECE3E6D5692C246C695
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273986   (798774) от 04.01.2019
+###  Публикация: 1507009   (799095) от 02.11.2021
 
-Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
+Privacy Eraser Free 5.17.0 Build 4067 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D21F41772AEF5180C01D10DBA39E4365466CD94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507052   (799094) от 02.11.2021
+
+Dropzone 4 Pro v4.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Aptonic LimitedПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF801C50382AFF7543E1B375B1F56064D0D713B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506964   (799093) от 02.11.2021
+
+Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. ID - ID
+03. Quisan - Cumulos
+04. ID - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C75864C5735C451108FB489D18C0968728E010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506889   (799092) от 02.11.2021
+
+VA - Relaxing Therapy Session with José Sierra (Pt 2) (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dualsong - Memories in Time (Original Mix) (5:35)
+02. Magmatunes - Visions (4:19)
+03. Dharma Frequency - The Vision (Original Mix) (3:15)
+04. Firas Tarhini - Dream Away (Original Mix) (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B26ED4ADFFFFC968632747A21BC1CB93DD8BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506803   (799091) от 02.11.2021
+
+Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Chill House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bugsmasher (04:50)
- 02. Katacomb (05:43)
- 03. Oceans 1300 (05:59)
- 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
+01. Pitch Dark (4:54)
+ 02. Proud (3:56)
+ 03. Jones St. (4:52)
+ 04. Fireworks (4:25)(   Читать дальше...   )Жанр: EDM, Deep House, Chill HouseПродолжительность: 01:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
+magnet:?xt=urn:btih:7B8982B4F3BB9040DD349A415EAAE0975B0A5B92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273919   (798773) от 04.01.2019
+###  Публикация: 1506577   (799090) от 02.11.2021
 
-Kryder - Kryteria Radio 167 (Best Of 2018) 2019-01-02 [MP3|192 Kbps] <House, Tech House, Tribal House>
+VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798773.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. FISHER - Losing It (Dave Winnel For The Win Remix)
-02. Safri Duo - Played A Live (The Bongo Song) (Massivedrum 2K18 Remix)
-03. Agent Greg & Dim Chord - RYDM
-04. Sunnery James & Ryan Marciano x Nicola Fasano & Adam Clay - Born Again (Babylonia) (Festival Mix)(   Читать дальше...   )Жанр: House, Tech House, Tribal HouseПродолжительность: 01:37:21
+01. M.I.A. - Bad Girls (3:47)
+02. Billie Eilish - bad guy (3:13)
+03. Nelly Furtado - Maneater (4:25)
+04. Rockwell - Somebody's Watching Me (Single Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6C1CF086F91EF876445226F8EF1C8C4BA5E41BB
+magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +194,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273856   (798772) от 04.01.2019
+###  Публикация: 1507063   (799089) от 02.11.2021
 
-Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
+TechSmith Camtasia 2021 Studio 2021.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A70B71C653F1090AD4F37E0D8B8B8AF2AF9AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506977   (799088) от 02.11.2021
+
+Рю Мураками | Пирсинг (2021) [MP3, Юрий Гуржий]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рю Мураками в своем неповторимом стиле исследует тему семейного насилия над детьми. Главный герой - горожанин, человек интеллектуального труда, пребывает в состоянии дикого страха. Он боится, что зарежет свою крошечную дочку. Его сознание искалечено было в детстве издевательствами матери. Он должен убить... И если жертва не его собственный ребенок, кто тогда?Жанр: Cовременная зарубежная литератураПродолжительность: 04:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D54E6F98F6895EF61768C6E59881B1602D281B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506469   (799087) от 02.11.2021
+
+Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Corkscrew (09:43)
- 02. Girl With The Silver Eyes (09:40)
- 03. Remedios The Beauty (15:37)
- 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
+Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
+magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +272,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273837   (798771) от 04.01.2019
+###  Публикация: 1506892   (799086) от 02.11.2021
 
-Saba - Care For Me (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop>
+Свобода / Svoboda (2021) WEBRip [H.264/2160p]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798771.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Busy / Sirens (feat. theMIND) (5:29)
-02. Broken Girls (4:37)
-03. Life (3:48)
-04. Calligraphy (3:04)(   Читать дальше...   )Производство: Saba Pivot LLC - 843357130095Жанр: Hip-Hop, Jazz HopПродолжительность: 00:42:41
+Свобода - это славянское слово, связанное с выражением свободы. Спортсмен по маунтинбайку Алекс Волохов передаёт это чувство творчества через свою собственную езду и построение трасс, а его ценности ещё больше укоренились в нём после значительного времени, которое он провёл с покойным Джорди Ланном.Производство: КанадаЖанр: Документальный, видовойРежиссер: Лиам МалланиПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA250E295F4DC3D1742FDFBBB1D62B6E44AF53BA
+magnet:?xt=urn:btih:6845F1AEEFA2F763A11B825F7AE79B630DE8764D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,228 +298,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273840   (798770) от 04.01.2019
+###  Публикация: 1507011   (799085) от 02.11.2021
 
-Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Birth Of The Universe (Instrumental) [01:40]
-2. Moonchild [04:50]
-3. Surveillance Society [04:39]
-4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273794   (798769) от 04.01.2019
-
-Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half-Live I (19:49)
-02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273833   (798768) от 04.01.2019
-
-Berlin Blondes - The Complete Recordings (1980-1981) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Synthpop,New Wave>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Framework
-02.	Astro
-03.	Science
-04.	Romance(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F001235C255C719EE87F8C0CC0ED080D193EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273785   (798767) от 04.01.2019
-
-Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Your Love (5:33)
-02. Surrender To Me (5:33)
-03. Livin' For You (4:57)
-Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273843   (798766) от 04.01.2019
-
-Colorado - California Dreaming (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreaming (7:07)
-02. Bus Stop (5:11)
-03. Should I (4:15)
-04. Colorado Stones (5:40)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC0C30741FF9EEC3D40E93FA56C3D2001265055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274005   (798765) от 04.01.2019
-
-Зимовье зверей - Новейшая хронология (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константин Арбенин заново собрал «Зимовье Зверей». Группа возвращается к студийной и концертной деятельности в обновлённом составе.
-Главная интрига проекта: в качестве его аранжировщика и саундпродюсера выступает Вадим Курылёв, музыкант-мультиинструменталист, хорошо известный слушателям по работе в группе «ДДТ», ансамблю «Дубы-колдуны», «ЭлектропартиZанам» и сольному (   Читать дальше...   )01. Новейшая хронология
-02. Дети-блюз
-03. Из лета в осень переезд
-04. Интро-стих 1(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F2B6BF71383482B7B8A5EB1D619B22C9B30B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507153   (798764) от 03.11.2021
-
-Display Maestro 5 v5.0.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Maestro - простая утилита, которая дает вам полный контроль над подключенным дисплеем, позволяя вам изменять не только разрешение экрана, но и глубину цвета, что невозможно сделать стандартными средствами Mac OS X (такая возможность была удалена еще в Mac OS X 10.5 Leopard).
-Примечание: После окончания работы с утилитой, все настройки возвращаются в первоначальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7FA6A6BBACC759EE2E67F3ECDE63A1CCF61DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507154   (798763) от 03.11.2021
-
-VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 17 (2020) [AAC|~306 Kbps] <Downtempo, Lounge, Jazz>
+Motörhead - Everything Louder Forever - The Very Best Of (2021) [AAC|~347 Kbps] <Hard Rock, Metal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798763.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sarah Menescal - I Fall Apart (3:39)
-02. Beluga's Trio, Shelly Sony - Love You Inside Out (3:43)
-03. Groove Da Praia, Ituana - Talking in Your Sleep (Bossa Nova Mix) (3:48)
-04. Urban Love, Luca Giacco - Suedehead (2:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:29:18
+01. Ace of Spades (2:47)
+02. Louie Louie (2:45)
+03. Bomber (3:41)
+04. Iron Fist (2:53)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:07:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:100DC99B2B83C84CC1D936BCAC3E3454AFB88341
+magnet:?xt=urn:btih:7D6255DB29688BDFF678A253322BEAAB293DFB5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,27 +327,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507245   (798762) от 03.11.2021
+###  Публикация: 1506849   (799084) от 02.11.2021
 
-Downie 4 v4.3.8 [Multi/Ru]
+The Doobie Brothers - Liberte (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается они все еще записывают музыку и выпускают новые альбомы. Встречайте Liberté - 15-й студийный альбом от classic southern rock band THE DOOBIE BROTHERS, новая работа с абсолютно оригинальным материалом за последние 7 лет! На пластинке есть пара треков в стиле старого southern rock, однако в целом - это разноплановый альбом с разнообразными по стилю (   Читать дальше...   )01. Oh Mexico (3:21)
+02. Better Days (3:22)
+03. Don't Ya Mess With Me (3:32)
+04. Cannonball (3:44)(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E2E5C3E1251D7167CCFE17EFCA6A9B750F5B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506980   (799083) от 02.11.2021
+
+MacBooster 8 Pro 8.1.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798762.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+MacBooster поможет настроить и ускорить работу macOS. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 IObitПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6C68054819C2B4DCEC41987B131ADAFCDFA1C3B
+magnet:?xt=urn:btih:5CB6FEABD7522866D506A6861CFA134FE8559D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,28 +382,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507145   (798761) от 03.11.2021
+###  Публикация: 1506841   (799082) от 02.11.2021
 
-VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 16 (2020) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
+Из пепла / From The Ash (2020) WEBRip [H.264/2160p]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798761.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazzystics, Apollinare Rossi - Riders on the Storm (3:46)
-02. Jamie Lancaster - Take It Easy (3:16)
-03. Michelle Simonal - Reminiscing (3:18)
-04. STEREO DUB, Karen Souza - Back Down South (Bossa Nova Mix) (2:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
+«Из пепла» - это визуальная метафора движения вперёд, когда мир, казалось бы, рушится вокруг вас.Производство: КанадаЖанр: Документальный, видовойРежиссер: Райан ГиббПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A16D564D94605003C13BDCED245BBB01A7B1CF0D
+magnet:?xt=urn:btih:002FF79387CFABE52D802DDAA2D85890FA554619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +408,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507144   (798760) от 03.11.2021
+###  Публикация: 1506930   (799081) от 02.11.2021
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Первый человек / Le premier homme (2011) BDRip [H.264/1080p]
 
->>Спорт и активный отдых
->>Футбол
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798760.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021)
-СУДЬЯ Хацеган Овидиу (Арад, Румыния)
-Судья на линии 1: Григориу Мирча Михаил (Румыния)
-Судья на линии 2: Георге Себастьян (Румыния)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:16
+Летом 1957 года известный писатель Жак Кормери, возвращается в Алжир, где прошло его детство, пытаясь примирить прошлое и настоящее как в истории своей собственной семьи, так и в истории страны.
+Это повествование о простых и важных вещах: детстве, отрочестве, силе солнца и моря, мучительной любви сына к его матери, поиске потерянного отца… Но также оно — и об истории (   Читать дальше...   )Производство: Франция, Италия, Алжир / Cattleya & Soudaine CompagnieЖанр: драмаРежиссер: Джанни АмелиоАктеры: Мишель Кремадес, Жак Гамблен, Mickaël Batret, Jean Benoit Souilh, Николас Лаблин, Florent Chesné, Франк Меркадаль, Александр Мишель, Бенуа Бертран де Баланда, Катрин СолаПеревод: Одноголосый авторскийСубтитры: Русские (полные), английские (полные)Продолжительность: 01:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D254ED52BEB82FB3BD3DF781F0925E187A2A80CF
+magnet:?xt=urn:btih:438B3086416E986AF60898F7924A53D3A05BF55E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +435,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507162   (798759) от 03.11.2021
+###  Публикация: 1506899   (799080) от 02.11.2021
 
-Sketch 79 [En]
+MacX Video Converter Pro 6.5.9 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798759.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
+MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
+MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным устройством, включая даже смартфоны и планшеты не самой первой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D714CE3A61326213F474029564177D28442D77D
+magnet:?xt=urn:btih:9D0F68A81BCBCDA3DAD59E6BA0FC0A120C9A48C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +462,182 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507308   (798758) от 03.11.2021
+###  Публикация: 1507040   (799079) от 02.11.2021
 
-Vitamin-R 4.0 [En]
+Movavi Video Suite for Mac 2022 v22.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 2022 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA2D7711CB1FD6B64721369C2F328EE30FE83E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121690   (799078) от 04.04.2017
+
+Азиатский связной / The Asian Connection (2016) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американские эмигранты, Джек и Сэм, грабят банки в Юго-Восточной Азии и случайно крадут деньги принадлежащие наркобарону, после чего они стали объектом мести местной преступной группировки. Вскоре Сэма убивают и Джек разыскивает Пом, любовь всей жизни, вместе они становятся современными Бонни и Клайд, в одиночку пытающиеся противостоять банде наркоторговцев.Производство: Таиланд, США / Kaos Entertainment Inc., Parkside Pictures, Tadross Media GroupЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Дэниэл ДзириллиАктеры: Стивен Сигал, Майкл Джей Уайт, Пим Бубеар, Дэймон Уитакер, Джон Ли, Рон Смуренбург, Байрон Гибсон, Сахайак Бунсанакит, Натали Лоренс, Оуэн О’Брайен, Дин Александру, Брайан БирнПеревод: Многоголосый закадровый, любительский (Parovoz Production)Субтитры: АнглийскиеПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD26691C14729FBD4E7B28FB493FB8204DD2B9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506994   (799077) от 02.11.2021
+
+WonderFox HD Video Converter Factory Pro 24.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799077.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92704CA661207A005FEB28E39A8D8A2387EC04D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121376   (799076) от 04.04.2017
+
+Великая стена / The Great Wall (2016) WEBRip [H.264] [MP4|1024x428] [AD]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великую стену воздвигли, чтобы оградить Поднебесную от любых угроз, но с таким врагом не сталкивались даже самые отважные ее защитники. Если вторжение не остановить — мир будет уничтожен.Производство: США, Китай, Гонконг, Австралия, Канада, Legendary East, Atlas Entertainment, China Film GroupЖанр: фэнтези, боевик, триллер, приключенияРежиссер: Чжан ИмоуАктеры: Мэтт Дэймон, Цзин Тянь, Уиллем Дефо, Энди Лау, Педро Паскаль, Чжан Ханьюй, Лухан, Кенни Линь, Эдди Пэн, Хуан СюаньПеревод: Многоголосый закадровый (Синема УС)Субтитры: Корейские (вшитие неотключаемые)Продолжительность: 01:43:50Реклама: Присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DED68E65893462DEEE4BD62EED6B300BD8A7C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506982   (799075) от 02.11.2021
+
+Первый человек / Le premier homme (2011) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам неоконченного автобиографического одноимённого романа Альбера Камю. Летом 1957 года известный писатель Жак Кормери возвращается в Алжир, где прошло его детство, пытаясь примирить в душе прошлое и настоящее как в истории своей собственной семьи, так и в истории страны...Производство: Франция, Италия, Алжир, Canal+ (fr), Cattleya, Cofinova 6, Cofinova 7, Eurimages, France 3 CinémaЖанр: драмаРежиссер: Джанни АмелиоАктеры: Мишель Кремадес, Жак Гамблен, Mickaël Batret, Jean Benoit Souilh, Николас Лаблин, Florent Chesné, Франк Меркадаль, Александр Мишель, Бенуа Бертран де Баланда, Катрин СолаПеревод: любительские одноголосые (Вячеслав Прошин, Денис Строев)Субтитры: русские (Д. Крейслер, Dimon и Thoma), английскиеПродолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7422D685B28343F09BB26750FAF89AB00ED61646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122145   (799074) от 04.04.2017
+
+The Unseen Fears: Body Thief / Невидимые страхи: Свежеватель (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый друг просит вашей помощи в расследовании серии недавних убийств. У последней жертвы не хватало всего лишь одной детали - собственной кожи! Как только вы начинаете заниматься расследованиями, вы попадаете в мир темной магии и таинственных существ. Есть ли у вас все необходимое, чтобы найти убийцу вовремя, или вы станете его следующей жертвой? Выясните это прямо (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0FF3A5DE7D1F29F772B6E67ABCB5444414E18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506911   (799073) от 02.11.2021
+
+Prizmo 4 Pro Scanning + OCR v4.2 [Multi/Ru]
 
 >>Программы для macOS
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798758.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vitamin-R — продвинутый таймер для техники Pomodoro. Каждый из нас постоянно сталкивается с ситуацией, когда необходимо сфокусироваться на выполнении задачи, но желанное состояние потока так и не приходит. Или, когда начав работать над очень важным для вас проектом, вдруг, через некоторое время, вы обнаруживаете себя на странице Facebook или бесцельно блуждающим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Rights ReservedПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
+Prizmo 4 - это современное приложение для сканирования, поддерживающее оптическое распознавание символов (OCR) с широкими возможностями редактирования, проговаривание текста, а также синхронизацию с iCloud.
+Неважно, каким устройством Вы пользуетесь - Prizmo отсканирует и распознает любой документ. Он работает с Вашими iPhone и iPad, цифровыми камерами, документами, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.06.2021Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF198764762DD58424CD432798C8CB73B6DE4026
+magnet:?xt=urn:btih:A50F764EB969B302D58CE5B16407A5BBD1675C79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,28 +645,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507155   (798757) от 03.11.2021
+###  Публикация: 1122178   (799072) от 04.04.2017
 
-VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 18 (2020) [AAC|~304 Kbps] <Downtempo, Lounge, Jazz>
+Борис Батыршин | Попутчики (2017) [FB2]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798757.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ituana - Tape Loop (3:11)
-02. Sarah Menescal - Company (3:00)
-03. Anakelly, STEREO DUB, Nova Bossa Ltd. - Last Friday Night (T.G.I.F.) (3:30)
-04. 48th St. Collective, Michelle Simonal - Over My Shoulder (3:41)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:27:01
+Первый роман цикла «Крымская война».
+
+Министерство обороны Российской Федерации проводит масштабный эксперимент по изменению прошлого. В 1854 го­ду на Крымскую войну должен отправиться батальон морпехов на большом десантном корабле. Но что, если что-то пойдет не так и в воронку времени угодят попутчики – гидрокрейсер «Алмаз» и миноносец «Заветный» из 1916 года? Англо-франко-турецкое (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F855A47EDABF297972EA177FFBE34D6F71B642A
+magnet:?xt=urn:btih:95C6BDF7A292995ADFA97B404CAD936EA4C355A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,192 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507149   (798756) от 03.11.2021
+###  Публикация: 1506906   (799071) от 02.11.2021
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Фантоцци / Fantozzi (1975) BDRip [H.264/720p] [Unrated Cut]
 
->>Спорт и активный отдых
->>Футбол
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798756.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:14
+Бухгалтер средних лет Уго Фантоцци живёт в бедно обставленной квартире с нелюбимой женой и уродливой дочерью. Его жизнь полна неудач и разочарований, несчастья сыплются на него, как из ведра. Однако Фантоцци не лишён самоиронии и чувства собственного достоинства... Экранизация книг Паоло Виладжио «Фантоцци» и «Вторая трагическая книга Фантоцци». Первая часть декалогии.Производство: Италия / Rizzoli Film S.p.a.Жанр: комедияРежиссер: Лучиано СалчеАктеры: Паоло Вилладжо, Анна Маццамауро, Жижи Редер, Джузеппе Анатрелли, Умберто Д’Орси, Лью Босисио, Дино Эмануэлли, Плинио Фернандо, Паоло Паолони, Елена ТриколиПеревод: профессиональные многоголосые (ОРТ и Мастер Тейп), авторские (Николай Золотухин (А. Яблоков) и Сергей Козлов)Субтитры: итальянские (SDH), английские (SDH)Продолжительность: 01:48:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:352638E8763ADC1016480E2663F5DA573FC7DF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507157   (798755) от 03.11.2021
-
-iNet Network Scanner 2.8.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798755.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2021Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B69B07EE63CED1C381DB36B322C4B162389729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507148   (798754) от 03.11.2021
-
-Магнитная Аномалия feat. Я Vegan - Я больше не ем животных (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я больше не ем животных
-2. Сила
-3. Нормально
-4. Еее(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54B31704863DF01B9237B7D14B136A92F43E91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507146   (798753) от 03.11.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H'. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H''. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021)
-СУДЬЯ Эрнандес Эрнандес Алехандро Хосе (Санта-Крус-де-Тенерифе, Испания)
-Судья на линии 1: Наранхо Хосе (Испания)
-Судья на линии 2: Собрино Теодоро (Испания)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCB4E3C29A113D8750733B584EFC65824FC26CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507151   (798752) от 03.11.2021
-
-Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFBA52DC367038FBB8F9FAC1A39570981EC8F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507061   (798751) от 03.11.2021
-
-Justus - Live From a Former Submarine Wharf in The Port of Rotterdam (2021-11-01) [MP3|~245 Kbps (V0)] <Big Room, Future House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justus (NL) vs. Tiësto - ID vs. Red Lights
-02. Justus - Satisfaction 2021Жанр: Big Room, Future HouseПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E455639921065EEBECC9E3F81967DB989CAE5E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507158   (798750) от 03.11.2021
-
-VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 19 (2021) [AAC|~298 Kbps] <Downtempo, Lounge, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Menescal - Like a Prayer (3:38)
-02. The Cooltrane Quartet, Eve St. Jones - Never Gonna Give You Up (3:08)
-03. Nenei - Dangerous Woman (3:41)
-04. Amazonics - Duel (3:13)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89717FDAF35E1132C5F3D0575D2F3D65D468CBA3
+magnet:?xt=urn:btih:164E95F6B1B9838B5C2E964A4A26A6756FE27414
 ```
 
 https://mybot314.ru/tekegram_catalog/

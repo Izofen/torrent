@@ -1,3 +1,119 @@
+###  Публикация: 1334634   (292912) от 30.10.2019
+
+The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] <EuroDance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (03:52)
+02. Super Trooper (04:22)
+03. Chiquitita (05:40)
+04. This Time (04:31)(   Читать дальше...   )Жанр: EuroDance, PopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A502BF9C8A4A95A3D692EEEC2C07B4721F1C62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962554   (292841) от 05.12.2015
+
+Tanita Tikaram - The Best Of Tanita Tikaram (1996) [FLAC|tracks+.cue]<Pop Rock, Soft Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist In My Sobriety (4:51)
+02. Cathedral Song (2:52)
+03. World Outside Your Window (4:52)
+04. Good Tradition (2:51)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, BalladПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A02A022AF17693FC7008C83CC90429F31EA4CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334936   (291513) от 31.10.2019
+
+Julio Iglesias - Fidele & 1100 Bel Air Place (1995) 1981 и 1984, Star Ltd. [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viens M'Embrasser [03:31]
+02. Une Chanson Qui Revient [04:39]
+03. Les Derobades [03:33]
+04. L'Amour Au Grand Soleil [03:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AEFF323574BD998EEB9B78EA24D25E9B712DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263018   (291398) от 17.11.2018
+
+Hooverphonic - Looking For Stars (2018) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Trip-Hop, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lethal Skies (3:56)
+02. Paranoid Affair (3:05)
+03. Romantic (3:15)
+04. Uptight (3:25)(   Читать дальше...   )Жанр: Dream Pop, Trip-Hop, LoungeПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41134BA4F8FE2D65E4013A98606FC3E3DE9B1F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335262   (289740) от 01.11.2019
 
 Celine Dion - D’elles (2007) [FLAC|Lossless|image + .cue] <Pop>
@@ -626,120 +742,6 @@ Sarah Brightman - The Trees They Grow So High (1998) [FLAC|image + .cue]<Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC52421A9036360E6D1275C9E53F0EB65DCBCFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264051   (282876) от 22.11.2018
-
-VA - Acoustic Winter (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tori Amos - Winter (Edit Version)
-02. Marc Cohn - Perfect Love (Remastered)
-03. Peter Cincotti - Goodbye Philadelphia (Radio Edit)
-04. Tanita Tikaram - Cathedral Song(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4328B58EBB29BD1283C549ECFAC20163D704A5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081650   (282810) от 10.12.2016
-
-Tiziano Ferro - Il Mestiere Della Vita (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epic 2:55
-02. "Solo" e solo una parola 3:42
-03. Il mestiere della vita 3:18
-04. Valore assoluto 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CBB07BF7D9133897A7F67E15E781BBD9B2CAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081591   (282508) от 10.12.2016
-
-Katy Perry - Rise (2016) Single [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry - Rise (Radio Edit) [00:03:24]
-02. Katy Perry - Rise (Instrumental) [00:03:23]Жанр: PopПродолжительность: 00:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C4D5CDC590E9EF4E8EBF6E1FDF6B624195BB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964261   (282418) от 11.12.2015
-
-VA - Whatever Happened To Christmas (2015) [FLAC|image + .cue] <Pop, Rock, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever Happened To Christmas (Aimee Mann) [02:51]
-02. I Want To Come Home For Christmas (Marvin Gaye) [03:23]
-03. The First Noel (Ella Fitzgerald) [01:48]
-04. Sweet Secret Place (Neil Finn) [03:50](   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 02:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D5FEDAFD1C45E410AF476D69316BE0A87275BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

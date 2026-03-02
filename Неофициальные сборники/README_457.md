@@ -1,3 +1,218 @@
+###  Публикация: 1173299   (390648) от 11.10.2017
+
+VA - Empire Records - House Clinic (2017) [MP3|320 Kbps] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe Carolina, Dropgun, Kaleena Zanders - Rhythm Is A Dancer (Extended Mix)
+02. Mike Williams, Brezy - Don't Hurt (Extended Mix)
+03. Azealia Banks - The Big Big Beat (Kostya Rhino Rmx)
+04. Runge - Coloured Squares (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 01:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065643983D55B2F811605F06A1FC7CD63D160154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173226   (390619) от 11.10.2017
+
+VA - Autumn Vintage: Deep House Original Chill Version (2017) [MP3|320 Kbps] <Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Keetoo - Get Me On (Original Mix)
+002. Apple Jazz - Glossolalia (Original Mix)
+003. Bed Shop Toys - Himmelhochjauchzend
+004. DJ Judi - Sun Goes Down (Original Mix)(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 09:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79B8CFDEB3BD88FA7D55F93D592C837605E5C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173388   (390566) от 11.10.2017
+
+VA - Dubstep Angry Beast (2017) [MP3|320 Kbps] <Dubstep, Bass Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3D Stas - That One (Original Mix) 04:47
+002. ENiGMA Dubz - Badness (Controlled Kaos Remix) 03:39
+003. Awoltalk & Croix - Midnight Special (Original Mix) 03:40
+004. Dope D.O.D. & Onyx - XXX 03:20(   Читать дальше...   )Жанр: Dubstep, Bass TrapПродолжительность: 08:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55581DADC35786BD1C52E3FAB2BE80EAD5C7FFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173285   (390530) от 11.10.2017
+
+Dzem - Platynowa Kolekcja (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jak malowany ptak
+02. Klosz
+03. Dzikosc mego serca
+04. Zloty paw(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA90079320ECDBF59BFFB9ABF8E87CCD7FC51B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173440   (390525) от 11.10.2017
+
+VA - Workout Mix vol.10 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electro House, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sergey Kutsuev - Tribal Dance (Original Mix)
+02-Major Lazer Feat. Busy Signal - Jump (Shtopor & Mikis Remix)
+03-KRS-One - Sound of Da Police (DMC Mikael Remix)
+04-Tujamo - Boom (Starjack Party Starter)(   Читать дальше...   )Жанр: Club House, Electro House, Big RoomПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28344D6D0BA69787E4014F3685A900BAB846EF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568418   (390457) от 05.11.2012
+
+VA - Big Room Amsterdam (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390457.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cenk Basaran - The Finger (Original Mix) (6:00)
+2. Facade and Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) (6:54)
+3. Somna - Afterglow (Original Mix) (8:37)
+4. Mosahar - Floor On Fire (Original Mix) (6:59)
+5. Kearney - Exactly (Giuseppe Ottaviani Mix) (7:43)
+6. Katy Rutkovski - Hidden Dawn (Original Mix) (6:03)
+7. Michael Dow - Ursa Minor (Original Mix) (8:45)
+8. Paul Denton - Monday Club (Original Mix) (6:48)
+9. Gary Proud - Apollo's Children (Original Mix) (7:25)
+10. Melinda Gareh - Supernal (Luke Terry Remix) (8:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C77A2D0DB3B99328162F8A70E7059CC8DB15F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570594   (390397) от 05.11.2012
+
+VA - Dub-Pack - Week 4 (2012) [MP3|320 кб/с]<Dub-Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 4 Strings – Take Me Away
+2. Alex Clare – Too Close (Distance Remix)
+3. Black Sun Empire – Hypersun
+4. Booty Luv – Say It (Nero Remix)
+5. Borgore – Birthday And The Black November
+6. Chase & Status feat. Takura – Streetlife
+7. Clint Mansell – Requiem For A Dream (Chrispy Remix)
+8. Cottonmouth – Moving On
+9. Dysphemic – Hypnosis
+10. Foreign Beggars feat. Noisia  – No Holds Barred (Excision Remix)(   Читать дальше...   )Жанр: Dub-StepПродолжительность: 02:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0DC5D54479FB99B5C1FEC379B3DBC7B65D27A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570483   (390396) от 05.11.2012
 
 VA - Dub-Pack - Week 2 (2012) [MP3|320 кб/с]<Dub-Step>
@@ -620,233 +835,6 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2836162CDA5924022704FA6610984A38DFF41908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570990   (389407) от 06.11.2012
-
-VA - Улетная 200ка: Самое лучшее! 7 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389407.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Седокова - Что я наделала
-002. Ирина Ортман и Александр Киреев - Навсегда
-003. Денис Майданов - Пролетая над нами
-004. Юлия Савичева - Я Так Тебя Жду
-005. Филипп Киркоров - Дева-вода
-006. St1m feat. Дакота - Рядом С Тобой
-007. Нереальные - Любовь-Война
-008. А.Р.М.И.Я - Клянусь
-009. Марсель - Настроение осень
-010. Настя Кудри - Оригами(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6818029F27A5865AF1668283A7BD8207B55B629C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570980   (389401) от 06.11.2012
-
-VA - Заводной музон. Только лучшие треки (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полина Гагарина - Нет
-02. Fly Project - Back In My Life (Radio Edit )
-03. Винтаж и ChinKong - Свежая Вода
-04. Лаурита - Сердце мое
-05. Серебро - Мальчик
-06. Таня Брянцева feat. KiBo - Киев
-07. Dash Berlin Feat. Emma Hewitt - Like Spinning Plates
-08. DJ Smash feat. T - Moor Rodriguez - Jump (DJ Noiz & DJ Maxtal Radio Edit)
-09. Джиган - Нас больше нет (Michael Yousher Remix)
-10. Даша Суворова - Поэты Не Спят По Ночам(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707D732E83BBB748EA5E488E024FF064B470372A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570881   (389288) от 06.11.2012
-
-VA - Mystic (2002) [MP3|320 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Enigma - Turn Around (singles edit)
-03. ERA - Dont'U (singles version)
-04. Yogeshwara - Dansing Circle
-05. Oliver Shanti - Water-Four Circles Of Life
-06. Karunesh - Call Of The Tribes
-07. Lesiem - Lesiem
-08. Beautiful World - Beautiful World
-09. Quinn - Siochain Agus Jonannas
-10. Orbis Mundi - Talking Violin(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E201A33D9D5BB4CEC034EEDDE4BFC2B38A3E80FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570987   (389210) от 06.11.2012
-
-VA - Хитовые песни от Радио Дача Vol.8 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque - In The Heat Of A Disco Night
-02. Дима Билан и Юля Крылова - Слепая любовь (новая верия)
-03. Лариса Долина - Прости меня
-04. Корни - 25 этаж (Original Version)
-05. Bad Boys Blue - Come Back And Stay
-06. Анонс - Оля И Спид
-07. Savage - Goodbye
-08. Дмитрий Маликов - Не говори прощай
-09. Chris Rea - Auberge
-10. Елена Ваенга - Курю(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5108B5EB4CCA6032CEF896F0B89F2919FF5782CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173859   (388932) от 13.10.2017
-
-VA - Private Lounge - Autumn Session Vol.3 (2017) [MP3|320 Kbps] <Lounge , Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edo Romani – Syntomatique (Flying Mix)
-02. Auromat – Song of The Heart (Original Mix)
-03. Ivan Bove – Flee (Original Mix)
-04. Lugotti – Have a Blast(   Читать дальше...   )Жанр: Lounge , Deep HouseПродолжительность: 05:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F942F31B3614AB03E706CDCC88ED3C5D501D41B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173981   (388924) от 13.10.2017
-
-VA - The World of Heavy Metal (3 CD) (2017) [MP3|192-320 Kbps] <Heavy Metal, Power Metal, Thrash Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388924.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Halford - Hells Last Survivor
-02. Dream Evil - Antidote
-03. Judas Priest - Down in Flames(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Thrash MetalПродолжительность: 03:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3B3358571DDD6E5C1BC915CB2B15A01F37B752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173788   (388871) от 13.10.2017
-
-VA - Marvellous Electro Swing (2017) [MP3|192-320 Kbps] <Jazz, Electro Swing>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Earl - Tongue Tied
-002. Bart&Baker - Why Does Love Always End Up in Tears
-003. Alice Francis - Too Damn Hot
-004. Earl - Baddabing Baddaboom(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 06:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C89D1BC733FF587F5B0BF87736872ED54041F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

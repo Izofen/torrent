@@ -1,3 +1,88 @@
+###  Публикация: 1634340   (198173) от 19.05.2023
+
+pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс подходит для новичков и для тех, кто недавно работает с Unity. Мы начнем занятия с базовых принципов, поэтому не переживайте из-за отсутствия опыта.
+Навыки программирования желательны, но не обязательны. Вы научитесь писать код на C# под простые игровые задачи.
+
+Что нужно для обучения?(   Читать дальше...   )Производство: pixel.oneЖанр: Создание игрЯзык озвучки: РусскийПродолжительность: 16:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A690CCFE3BBC8FAAF52A035D08DBEE244923B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634503   (198167) от 20.05.2023
+
+Udemy | Библиотека курсов по Matlab (2022) [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека курсов по Matlab, максимально пережатых для их компактного хранения
+Я лишь пережал видеокурсы до более компактного размера, о чем свидетельствуют буквы LQ в названии раздачи. Буквы LQ означают lower quality, но качество сохранено вполне себе терпимым для целей обучения (на мой хохряк)Производство: UdemyЖанр: ОбучениеЯзык озвучки: АнглийскийПродолжительность: 205:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4AC2D91B6D5436AC71AA3AC36BF1237B11F9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634853   (198050) от 22.05.2023
+
+Udemy, Nathan House | The Complete Nmap Ethical Hacking Course : Network Security (2018) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_198050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Welcome to the Complete Nmap Course!
+Nmap is the Internets most popular network scanner with advanced features that most people don't know even exists!
+Discover the secrets of ethical hacking and network discovery, using Nmap on this complete course.
+(   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF81F86AA71E71D4AE71A0C0ABFB14D79C05A2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635067   (197953) от 24.05.2023
 
 Skillbox, М. Овчинников, С. Корниенко и др. | Веб-вёрстка для начинающих 2.0 (2021) WEB-DL [AD] [RU]
@@ -635,92 +720,6 @@ You like to stay home & learn from your own computer?
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:927318FF8FC555D6833B5F01BF742E43B1E1820F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651852   (194627) от 08.08.2023
-
-Udemy, Richard Chesterwood | Kubernetes Hands-On - Deploy Microservices to the AWS Cloud (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kubernetes is one of the hottest topics right now, and engineers with Kubernetes skills are in big demand.
-
-Get those skills with this course! It's is a great chance to work on a real Kubernetes project, and to get yourself to a high professional standard on real projects.
-(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 28:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4A0E87F820F8F1F6F06A60679E8ADC21C3FD74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651937   (194586) от 09.08.2023
-
-Abbas Masri | Mastering Android App Development with Kotlin [XML +COMPOSE] (2023) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194586.jpg" />
-</div>
-
-
-###  Подробнее
-
-So you want to become an Android developer and start publishing your own apps?
-
-Do you have no programming experience whatsoever? Or maybe you have worked with another programming language in the past?
-(   Читать дальше...   )Жанр: Android, Android studio, KotlinЯзык озвучки: АнглийскийПродолжительность: 50:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CF3B0AD963421A6BAD8A92B47C03550460F6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652128   (194529) от 10.08.2023
-
-Udemy, Richard Chesterwood | Istio Hands-On for Kubernetes (2023) WEB-DL  [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Istio is one of the most talked-about frameworks in recent years! If you've worked with Kubernetes before, then you'll want to learn Istio! With this hands-on, practical course, you'll be able to gain experience in running your own Istio Service Meshes.
-
-This course is designed to be clear and understandable - and fun! But we also go into detail - you'll be learning (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E6C1A5D1A9B73E4530C124CFF271F4C28BAF98
 ```
 
 https://mybot314.ru/tekegram_catalog/

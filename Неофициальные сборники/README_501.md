@@ -1,3 +1,208 @@
+###  Публикация: 844153   (321483) от 24.11.2014
+
+VA - The Official UK Top 40 Singles Chart (23-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь или под спойлером NEW.
+Во все треки вшиты обложки альбомов.01. Band Aid 30 - Do They Know It's Christmas? (2014)  (3:49)
+02. Clean Bandit & Jess Glynne - Real Love  (3:40)
+03. Olly Murs Feat Travie McCoy - Wrapped Up  (3:06)
+04. Ed Sheeran - Thinking Out Loud  (4:42)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E30E6C3B9A2B9BB00387FAF91D0FD9F34B4403E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181589   (321444) от 08.11.2017
+
+Павел Воля - Лучшее от ALEXnROCK (2017) [MP3|320 Kbps] <Поп, Рэп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люблю творчество этого парня и то что он делает и в юморе и в музыке. В сборник вошли лучшие треки артиста. Филосовские и смысловые текста наполненные позитивным юмором, и крутые аранжировки. Да прибудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Новое
+02 Наша Russia
+03 Мама, мы все стареем (& Город 312)
+04 Радужная песня(   Читать дальше...   )Жанр: Поп, РэпПродолжительность: 01:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECBB04757484C499780C76E9169FCB1A308A0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420953   (321419) от 03.11.2020
+
+VA - Громкие новинки Ноября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #2Маши - Мы переживём всё (3:17)
+02. 2517 - Снег (4:10)
+03. 5sta family - Эгоистка (3:04)
+04. Al Fakher - Девочка VIP (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8778FCCF86278CD042683EE1BC4A03F5BF8C32CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259368   (321387) от 03.11.2018
+
+VA - The Official UK Top 40 Singles Chart 02.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga & Bradley Cooper - Shallow
+02. Little Mix - Woman Like Me (feat. Nicki Minaj)
+03. Calvin Harris & Sam Smith - Promises
+04. Dave, Fredo - Funky Friday(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D7809DC8D5B89E55545D208D8362F244D40AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075394   (321294) от 22.11.2016
+
+VA - State Of House Club Mix (2016) [MP3|320 Kbps] <Club House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321294.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kahwe - Patterns
+002. Simon Hardy - Mambo
+003. Mambo Brothers - Momento
+004. Illyus & Barrientos - Strings(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 09:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80984DA2B6FB79829F02A8AE1102755FE80E55CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259330   (321267) от 03.11.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 02.11.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Natural 3:09
+02. KAZKA - Плакала 3:45
+03. Dynoro & Gigi D'Agostino - In My Mind 3:05
+04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60856CCA602A12CC2FBB62022D22B9E542EE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075301   (321163) от 22.11.2016
+
+VA - Record Super Chart  #463 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3HAB - Icarus (Original Mix) 3:12
+02. KSHMR & Tigerlily - Invisible Children (Extended Mix) 3:45
+03. David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You (Extended Mix) 4:48
+04. Martin Garrix vs. Matisse Sadko - Together 3:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C0B7A96ADD6361C8F2018834860D6861DFD267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075181   (321159) от 22.11.2016
 
 VA - Радио Рекорд - Record Club за 20.11.2016 [MP3|192-320 Kbps] <Club, Trance, Electronic>
@@ -547,209 +752,6 @@ VA - Disco Queen (2017) [MP3|320 Kbps] <Italo Disco, New Generation, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD710F809A98003004DA67F255CDCC011D4E288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182140   (319086) от 09.11.2017
-
-VA - German Top 100 Single Charts 10.11.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319086.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Post Malone - rockstar (feat. 21 Savage)
-004. ZAYN - Dusk Till Dawn (feat. Sia)(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0904924607255E3C6FE9BF01F81A2447FE2D38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259460   (319046) от 04.11.2018
-
-VA - German Top 100 Single Charts 05.11.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319046.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Bra - Roli Glitzer Glitzer feat. Luciano und Eno
-002. KitschKrieg - Standard feat. Trettmann, Gringo, UFO361 und Gzuz
-003. Dynoro und Gigi D.Agostino - In My Mind
-004. Calvin Harris und Sam Smith - Promises(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABD1AFBE2CF80C224DB0B05B84C856F33B6A473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075759   (318825) от 23.11.2016
-
-VA - Beatport Trance Pack (23.11.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Emotional, Harmonic, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aley & Oshay - So Far Away (Original Mix) (feat. Sunflare) 8:36
-02. Assaf - Syndicate 3:33
-03. Feel - Did We Feel (Mark W Dub Mix) 5:55
-04. Vito Fognini - New Atlantis (Original Mix) 6:33(   Читать дальше...   )Жанр: Trance, Melodic, Energy, Emotional, Harmonic, ProgressiveПродолжительность: 06:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347BDC2EB370B335051E6DCC5271FC305D5F23A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075685   (318821) от 23.11.2016
-
-VA - Ibiza Missing Magic Music (2016) [MP3|320 Kbps] <House, Progressive, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DBSTF & Maurice West - Temple 3:11
-02. Axwell & Shapov - Belong (Extended Mix) 5:30
-03. Quintino & Joey Dale Ft. Channii Monroe - Lights Out (Extended Mix) 3:38
-04. Disco Killerz & Liquid Todd Ft Jimmy Gnecco - Stellar (Aiden Jude Remix) 6:06(   Читать дальше...   )Жанр: House, Progressive, Dance, ClubПродолжительность: 08:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3739A6E7914ECE77CC0AB50B28F5A20DC32A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075524   (318683) от 23.11.2016
-
-VA - Отрывайся C Лучшими Хитами #2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318683.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mseven - Листья 3:53
-002. Helena Shadia - Твоя Девочка 3:32
-003. Валенсия & Андрей Гражданкин - Лепестки Белых Роз 4:14
-004. Hardwell - Blackout 5:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04ABE9577A31247A8EEB046A34033E5AD23DE750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259606   (318649) от 04.11.2018
-
-VA - Rivers Of Babylon: The Kings Of Reggae (2018) [MP3|320 Kbps] <Reggae, Ska, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Maytals - Peeping Tom
-002. Larry Lawrence - Garden Of Eden
-003. Theo Beckford - Bajan Girl
-004. Derrick Morgan - No Raise, No Praise(   Читать дальше...   )Жанр: Reggae, Ska, SoulПродолжительность: 08:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F497E8F6D113882D5319A9145BE9FC6567EFEE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075718   (318534) от 23.11.2016
-
-VA - Piano Music for Concentration (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Verde - Under My Skin
-02. Leading - Landscape
-03. Toni Verde - Good Vibrations
-04. LifeBlood - Essence(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E072C2C063F3175DBA00ABDC92449957928EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

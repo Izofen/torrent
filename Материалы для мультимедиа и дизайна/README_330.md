@@ -1,3 +1,29 @@
+###  Публикация: 1521005   (137363) от 31.12.2021
+
+3D модели - Lamborghini 3D Car Collection 2019-2022 [FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137363.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модели автомобилей марки  LamborghiniФормат: FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8BE60DE7A796293A2FC14ED0B65538A648E236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521115   (137343) от 31.12.2021
 
 Шаблоны - Creative Market - Gift Box Mockups Bundle - 6617999 [PSD]
@@ -653,34 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756623473F736F9BF0CC463F6821E843E2D5DEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436345   (137134) от 31.12.2020
-
-Векторный клипарт - New Year and Christmas illustrations in vector 56 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-10 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07326F5C5059EB406B694804A599555731F52E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

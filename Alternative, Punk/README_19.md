@@ -1,25 +1,22 @@
-###  Публикация: 1227268   (648484) от 25.05.2018
+###  Публикация: 532885   (534781) от 09.08.2012
 
-Bleeding Through - Love Will Kill All (2018) [MP3|320 Kbps] <Symphonic Metalcore>
+745 - 745 (2009) [MP3|256кб/с] <Rapcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648484.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Darkness, A Feeling I Know
-02. Fade Into The Ash
-03. End Us
-04. Cold World(   Читать дальше...   )Жанр: Symphonic MetalcoreПродолжительность: 00:37:04
+Жанр: RapcoreПродолжительность: 00:50:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4FBF5DBE6CD8D50B8F08CBD97BA77205F6957D9
+magnet:?xt=urn:btih:BB656EFC891AA010E58D6674AE9DC34A89CFD810
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292378   (646679) от 29.03.2019
+###  Публикация: 1050838   (534662) от 10.09.2016
 
-Russkaja - No One is Illegal (2019) [MP3|320 Kbps] <Gypsy-Punk, Ska-Punk>
+Rev Theory - The Revelation (2016) [MP3|320 Kbps] <Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646679.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534662.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Love Revolution
-2. Druschba (You're Not Alone)
-3. No One Is Illegal
-4. Here is the News (Papa´s Got a Brand New Pigbag)(   Читать дальше...   )Жанр: Gypsy-Punk, Ska-PunkПродолжительность: 00:45:54
+01. Guns
+02. We Own The Night
+03. Red Light Queen
+04. Piece Of Me(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5562A27B74D73EE41891F093C9007F4609972D8A
+magnet:?xt=urn:btih:41B016F76EBA9989276EE1564123A9E0760E404D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906168   (645781) от 08.06.2015
+###  Публикация: 926603   (533318) от 10.08.2015
 
-Annie Eve - Sunday '91 (2014) [MP3|320 кб/с]<Alternative, Indie Folk, Indie Pop>
+Asian Dub Foundation - More Signal More Noise (2015) [OGG| 456-528 кб/с]<Alternative, Electronic, Dub, Breakbeat, Ragga, Bhangra, Hip-Hop, World, Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645781.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Animal (04:59)
-02. Bodyweight (04:23)
-03. August (04:11)
-04. Bedtime (03:45)(   Читать дальше...   )Жанр: Alternative, Indie Folk, Indie PopПродолжительность: 00:42:06
+01. Zig Zag Nation (03:55)
+02. Signal And The Noise (03:22)
+03. Radio Bubblegum (03:52)
+04. Blade Ragga (06:11)(   Читать дальше...   )Жанр: Alternative, Electronic, Dub, Breakbeat, Ragga, Bhangra, Hip-Hop, World, PunkПродолжительность: 00:48:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29F038F247C3B0B6526D98111E441946F9A274A5
+magnet:?xt=urn:btih:0162D9BF0ADE537B7197562FA03BCF438AB236F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906134   (645766) от 08.06.2015
+###  Публикация: 1239895   (533229) от 08.08.2018
 
-Dominik Nicolas - La beaute de l'idee (2015) [OGG|489-536 кб/с]<Alternative, Electro Pop / Rock>
+Erra - Neon (2018) [MP3|320 Kbps] <Progressive Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645766.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ici
-02. L'amour
-03. Le soleil est comme toi
-04. Underground(   Читать дальше...   )Жанр: Alternative, Electro Pop / RockПродолжительность: 00:57:47
+01. Breach
+02. Monolith
+03. Signal Fire
+04. Valhalla(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:42:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0FD572F1FB6BBB123F833CFDE43EDC056C51ADA
+magnet:?xt=urn:btih:25CF113A7553A065B63D2A88D77A927266F4C9B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905959   (645647) от 08.06.2015
+###  Публикация: 926843   (531713) от 11.08.2015
 
-Lifehouse - Out Of The Wasteland (2015) Target Edition [MP3|320 кб/с]<Alternative Rock, Pop Rock, Post-Grunge>
+Kurt Vile - b'lieve i'm goin down... (2015) [MP3|320 кб/с]<Alternative, Indie Rock, Folk, Acoustic, Psychedelic>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645647.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hurricane
-02. One For The Pain
-03. Flight
-04. Runaways(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Post-GrungeПродолжительность: 01:01:00
+01. Pretty Pimpin
+02. I'm An Outlaw
+03. Dust Bunnies
+04. That's Life, Tho (Almost Hate To Say)(   Читать дальше...   )Жанр: Alternative, Indie Rock, Folk, Acoustic, PsychedelicПродолжительность: 01:01:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC13343B335B962545C37AF3572737ECC4098544
+magnet:?xt=urn:btih:D8D027E5D74D08F64030E555DBCBF78876D5B2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,34 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 518104   (645348) от 02.07.2012
+###  Публикация: 1051979   (530887) от 12.09.2016
 
-Reel Big Fish - Candy Coated Fury (2012) [MP3|320 kbps] <Ska Punk>
+The Stranges - Madhouse (2016) [MP3|320 Kbps] <Alternative Rock, Alternative Metal, Female Vocal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645348.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everyone Else Is An Asshole (04:11)
-02. Punisher (04:00)
-03. She's Not The End Of The World (03:42)
-04. Don't Let Me Down Gently (02:25)
-05. I Know You Too Well To Like You Anymore (04:25)
-06. Hiding In My Headphones (04:47)
-07. I Dare You To Break My Heart (05:15)
-08. Your Girlfriend Sucks (03:30)
-09. Don't Stop Skankin' (03:59)
-10. Famous Last Words (03:50)(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 00:55:02
+01. Runaway
+02. Madness
+03. Secrets
+04. Not The End(   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Female VocalПродолжительность: 00:36:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19186108CD8017DEFD525CFE18E4B3E3234C86C4
+magnet:?xt=urn:btih:553F7230BCB15DDAC955E3E4E08EBB1FA17530A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142296   (644255) от 13.06.2017
+###  Публикация: 927000   (529946) от 12.08.2015
 
-Nickelback - Feed The Machine (2017) [MP3|320 Kbps] <Post-Grunge, Alt. Rock>
+ON AN ON - Give In (2013) [OGG| 437-595 кб/с]<Alternative, Indie, Dream Pop, Shoegaze>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Feed The Machine
- 02. Coin For The Ferryman
- 03. Song On Fire
- 04. Must Be Nice(   Читать дальше...   )Жанр: Post-Grunge, Alt. RockПродолжительность: 00:43:13
+01. Ghosts (05:07)
+02. Every Song (03:36)
+03. American Dream (03:14)
+04. The Hunter (Single) (03:17)(   Читать дальше...   )Жанр: Alternative, Indie, Dream Pop, ShoegazeПродолжительность: 00:44:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F3595F1E9F5685AAA9EF13344CA1FB81D57A3A0
+magnet:?xt=urn:btih:8A1ED9C5E4FD516361790550E2499A254B2F6F91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032771   (644109) от 08.07.2016
+###  Публикация: 927036   (529941) от 12.08.2015
 
-Down and Outlaws - Above Snakes (2016) [MP3|320 Kbps] <Alternative, Garage Rock>
+ON AN ON - And The Wave Has Two Sides (2015) [OGG| 459-517 кб/с]<Alternative, Indie, Dream Pop, Shoegaze>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644109.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roll That Stone (02:30)
-02. I Don't Care (I Don't Care) (03:04)
-03. Lay Me Down (03:21)
-04. Fever (02:56)(   Читать дальше...   )Жанр: Alternative, Garage RockПродолжительность: 00:34:22
+01. Behind The Gun
+02. Icon Love
+03. Alright Alright
+04. I Can’t Escape It(   Читать дальше...   )Жанр: Alternative, Indie, Dream Pop, ShoegazeПродолжительность: 00:40:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:790E2C5B9B8CC8BBCB6FEA7755B469576BC2AFD5
+magnet:?xt=urn:btih:BB2159E4A91073913406E4424D8328187A24C6E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032567   (643806) от 08.07.2016
+###  Публикация: 1052034   (529000) от 13.09.2016
 
-HER - Revolution (2016) Special Edition [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Electronic Rock>
+Nick Cave & The Bad Seeds - Skeleton Tree (2016) [MP3|320 Kbps] <Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643806.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revolution
-02. Crush
-03. Give It to Me
-04. You(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, Electronic RockПродолжительность: 00:41:41
+01. Jesus Alone
+02. Rings Of Saturn
+03. Girl In Amber
+04. Magneto(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02D34DBF15ACEC5353509D2686660475FB8BF20E
+magnet:?xt=urn:btih:1FE30F634626647BA3DA012D5AFEB807EE3BF1C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,26 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515932   (643748) от 03.07.2012
+###  Публикация: 1559486   (524414) от 25.06.2022
 
-On My Way - Апатия (2012) [MP3|320 кб/с]<Alternative Rapcore>
+Greg Puciato - Mirrorcell (2022) [MP3|320 Kbps] <Mathcore, Grunge, Sludge, Industrial>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643748.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Интро
-02. То местоЖанр: Alternative RapcoreПродолжительность: 00:25:26
+01. In This Hell You Find Yourself [00:01:26]
+02. Reality Spiral [00:03:45]
+03. No More Lives To Go [00:03:35]
+04. Never Wanted That [00:05:29](   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 00:44:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50DC3FD2EDF8CF17C7A44EF1719AB341A03E9F72
+magnet:?xt=urn:btih:F3ADA1D4D28F0F44147B6EEAD7EB9E926B59F566
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032568   (643678) от 08.07.2016
+###  Публикация: 927788   (524115) от 14.08.2015
 
-Chevelle - The North Corridor (2016) [MP3|320 Kbps] <Alt.Metal>
+The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 кб/с]<Post-Punk/New Wave>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643678.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Door to Door Cannibals (04:35)
-02. Enemies (03:29)
-03. Joyride (Omen) (03:37)
-04. Rivers (03:59)(   Читать дальше...   )Жанр: Alt.MetalПродолжительность: 00:44:31
+01.  Holidays In The Sun (3:32)
+02.  Problems (4:28)
+03.  No Feelings (3:23)
+04.  God Save The Queen (3:13)(   Читать дальше...   )Жанр: Post-Punk/New WaveПродолжительность: 00:41:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E2A1E687A46256B3B93F2AA316B176AD7A16E68
+magnet:?xt=urn:btih:144F82B5ED92FD1FA8B4A826A6FE9DC3F87DBC60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,28 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 186434   (642962) от 09.06.2015
+###  Публикация: 928007   (523328) от 15.08.2015
 
-10 Years - 7albums + 2EP (2001-2015) [MP3|320kbps] <Alternative Rock>
+Hanna Turi - Tracks in the Water (2015) [MP3|320 кб/с]<Piano Rock, Alternative Rock, Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Alternative Rock, Post-Grunge, Alternative Metal |Продолжительность: 00:16:41
-01  Focus                              6:03
-02  All Your Lies                      4:19
-03  Proud Of You                       5:23(   Читать дальше...   )
+01. Oh-My-Night
+02. What Did I Do With My Time
+03. Cotton Wads
+04. You Collect(   Читать дальше...   )Жанр: Piano Rock, Alternative Rock, PopПродолжительность: 00:38:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3643271AEA4D640B356A1BE6C24EEA82DB012748
+magnet:?xt=urn:btih:D202DBB5325F94C3DA9306E8B4E8E2E40C4DA694
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,34 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 280143   (642751) от 03.07.2012
+###  Публикация: 928065   (523292) от 15.08.2015
 
-Pearl Jam - 16Albums+26Singles+2EP (1991-2011) [MP3|320 kbps]<Grunge/Alternative Rock>
+Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642751.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pearl Jam — одна из четырех главных групп (наряду с Nirvana, Alice in Chains и Soundgarden) музыкального движения гранж, пользовавшегося большой популярностью в первой половине 90-х годов XX века. Pearl Jam оказались из этой «большой четверки» наиболее коммерчески успешными. И в XXI веке Pearl Jam продолжает выпускать альбомы — несмотря на то, что их новые работы не достигают того же уровня популярности, который сопутствовал их первым трём альбомам «Ten», «Vs.» и «Vitalogy».CD 1:
-01. Release (Verona, Italy 9-16-06) (4:47)
-02. Alive (Moore Theatre, Seattle 12-22-90) (4:48)
-03. Garden (Zurich, Switzerland 2-19-92) (6:08)
-04. Why Go (Hamburg, Germany 3-10-92) (3:23)
-05. Black (MTV Unplugged, NYC 3-16-92) (5:40)
-06. Blood (Auckland, New Zealand 3-25-95) (3:16)
-07. Last Exit (Taipei, Taiwan, 2-24-95) (2:46)
-08. Not for You (Manila, Philippines 2-26-95) (6:19)
-09. Do the Evolution (Monkeywrench Radio, Seattle 1-31-98) (3:42)(   Читать дальше...   )Жанр: Grunge/Alternative RockПродолжительность: 01:05:58
+01. In Plain Sight
+02. While You Wait
+03. The Burning Number
+04. Silence(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 00:41:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:437A8B0BAD36C60FC74FEB3B2FF61FBF2EF25162
+magnet:?xt=urn:btih:5FA0E3EA9F7DC8F2A1BE936017F4AA4B2687FA0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,28 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 906740   (641702) от 10.06.2015
+###  Публикация: 143040   (523131) от 15.08.2015
 
-She's So Rad - Tango (2015) [OGG|447-541 кб/с]<Alternative, Electronic, Indie Pop, Shoegaze>
+Linkin Park - Chiba City Japan Live (2009) [MP3|320 kb/s]<Alt.Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641702.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_523131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Levels (03:39)
-02. Cool It (03:25)
-03. Better Off On Your Own (04:24)
-04. Say The Word (feat. David Dallas) (03:26)(   Читать дальше...   )Жанр: Alternative, Electronic, Indie Pop, ShoegazeПродолжительность: 00:34:43
+Жанр: Alt.RockПродолжительность: 01:30:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0283B3A81D312831A3C1E432D7CCA9182E2C1DD6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,34 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 347304   (639719) от 08.06.2011
+###  Публикация: 1559865   (522717) от 27.06.2022
 
-CG Bros. - Под Прицелом Врага (2011) [MP3|320 kbps]<Alternative Rock>
+Our Dying World - 2 Albums (2019-2022) [MP3|320 Kbps] <Symphonic, Thrash, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639719.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Мама (03:45)
-02. Акулы Пера (02:18)
-03. Настоящий Мужик (02:32)
-04. Жди Меня (03:42)
-05. Совесть (02:22)
-06. Неприступный Вид (02:40)
-07. Мораль (03:10)
-08. Пустые Слова (02:22)
-09. Воины (04:48)
-10. Красота (04:06)(   Читать дальше...)Жанр: Alternative RockПродолжительность: 00.34.41
+01. Ars Moriendi [00:01:46]
+02. Everything We Know Is Gone [00:04:44]
+03. Under The Hunter's Blade [00:07:33]
+04. Survivor [00:07:32](   Читать дальше...   )Жанр: Symphonic, Thrash, Death MetalПродолжительность: 2 CD, 01:09:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:811116AFE597CC7453B04F1FD0BDA48428B3CD2F
+magnet:?xt=urn:btih:36ABD798C48D85F7F0BAC8F7412AFF5DB42AF91D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,28 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033362   (639684) от 10.07.2016
+###  Публикация: 928674   (521780) от 17.08.2015
 
-Billy Talent - Afraid of Heights (2016) [MP3|320 Kbps] <Alternative Rock, Punk Rock>
+New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639684.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Red Gun
-02. Afraid Of Heights
-03. Ghost Ship Of Cannibal Rats
-04. Louder Than The DJ(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 00:48:55
+01. Everywhere I Go (Kings and Queens) (03:25)
+02. West End Kids (03:32)
+03. Girl Crush (02:54)
+04. Lovers in a Song (03:12)(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:44:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:919D361617F8A87B313C7646853CE3A15A9F1A28
+magnet:?xt=urn:btih:EE18950682F554F9DEB8EF8E96438B983C4D2028
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293179   (637659) от 03.04.2019
+###  Публикация: 928875   (521711) от 17.08.2015
 
-Scheuber - Shades (2019) [MP3|320 Kbps] <Indie>
+Young Guns - Ones and Zeros (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Helium
-02. Smoker
-03. Spirit
-04. Coloured Rays(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:51:26
+01. Rising Up
+02. I Want Out
+03. Infinity
+04. Memento Mori(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:03:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7481B762DC8BD6B782588134FCEAF6060945DE7
+magnet:?xt=urn:btih:580FA5751F2A0A2B2DD5DBA7061403F111AAA075
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,28 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228387   (637382) от 31.05.2018
+###  Публикация: 929274   (519600) от 19.08.2015
 
-Circle of Dust - alt_Machines (2018) [MP3|320 Kbps] <Electronic, Industrial Metal>
+Ben Folds Five - Ben Folds Five (1995) [OGG| 469-511 кб/с]<Alternative, Classic Indie Rock, Piano Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637382.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Humanarchy (Blue Stahli Remix)
-02. Neurachem (Voicians Remix)
-03. Contagion (Sebastian Komor Remix)
-04. Hive Mind (The Anix Remix)(   Читать дальше...   )Жанр: Electronic, Industrial MetalПродолжительность: 01:06:16
+01. Jackson Cannery
+02. Philosophy
+03. Julianne
+04. Where's Summer B.?(   Читать дальше...   )Жанр: Alternative, Classic Indie Rock, Piano RockПродолжительность: 00:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6778AD1DA2E7AA00C402505B9862B83C6579CC7E
+magnet:?xt=urn:btih:0DF0278E229C52FDE3D18C09DAA1CC63AABC9DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,28 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541391   (636957) от 07.04.2022
+###  Публикация: 929296   (519592) от 19.08.2015
 
-Группа Саша и Сирожа - Куй (2022) [MP3|320 Kbps] <Comedy Rock>
+Ben Folds Five - Whatever And Ever Amen (1997) Special Expanded Edition /2005, Epic/ [OGG| 383-539 кб/с]<Alternative, Classic Indie Rock, Piano Rock, Funk, Soul>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Кап-кап (2:23)
-02. Надоело (2:17)
-03. Рыбалка (2:00)
-04. Не успел (2:15)(   Читать дальше...   )Жанр: Comedy RockПродолжительность: 00:25:02
+00. Hidden Track
+01. One Angry Dwarf And 200 Solemn Faces
+02. Fair
+03. Brick(   Читать дальше...   )Жанр: Alternative, Classic Indie Rock, Piano Rock, Funk, SoulПродолжительность: 01:16:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:119DAFE6982F4B6A901A7ACA8B4A5F6515AFE89E
+magnet:?xt=urn:btih:B7119B4E73054AD3335B3D54B282924B93DDDDC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,28 +543,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 908018   (636165) от 13.06.2015
+###  Публикация: 534558   (519310) от 14.08.2012
 
-Sitcom - What's Up (2015) [MP3|320 кб/с]<Indie Rock, Pop>
+Tokyo Shoegazer - Crystallize (2011) [MP3|320 кб/с]<Alternative Post-Rock / Shoegaze>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636165.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. White Reeboks 05:36
-02. Ginger Ale 03:49
-03. Window View 03:32
-04. How R You 03:28(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:41:54
+01. 299 Addiction (03:45)
+ 02. Just Alright (03:48)
+ 03. Bright (08:18)
+ 04. Silent Lies (04:31)
+ 05. Waltz Matilda (06:24)
+ 06. Free (03:34)
+ 07. Back To My Place (08:58)Жанр: Alternative Post-Rock / ShoegazeПродолжительность: 00:39:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:535D82F4178D01DB82E228B0DCBEA2E12ECE5C9E
+magnet:?xt=urn:btih:3CF4A0DC999E71EA2ED4AE23FB0BAF6BBA7A567C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,28 +575,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 908373   (634194) от 14.06.2015
+###  Публикация: 929476   (518503) от 20.08.2015
 
-Ash - Kablammo! (2015) Deluxe Edition [MP3|320 кб/с]<Indie Rock, Alternative, Powerpop>
+Failure - Fantastic Planet (1996) [OGG| 477-552 кб/с]<Alternative Rock, Space Rock, Grunge>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634194.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Juvenilia
-2. Terraform
-3. This Time Tomorrow
-4. Anything Is PossibleЖанр: Indie Rock, Alternative, PowerpopПродолжительность: 00:53:07
+01. Saturday Saviour
+02. Sergeant Politeness
+03. Segue 1
+04. Smoking Umbrellas(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, GrungeПродолжительность: 01:08:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9517F13F6DE2CA3FA82785C2BCE247DFD6A5421D
+magnet:?xt=urn:btih:353CA1ECA84E6A70909371B50777A71FB974E1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,27 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228751   (633914) от 02.06.2018
+###  Публикация: 929454   (518502) от 20.08.2015
 
-TIGRESS - Human; Like It Is; Who Cares? (2015-2018) 3 EP [MP3|320 Kbps] <Alternative Rock, Pop Rock, Female Vocal>
+Failure - The Heart Is a Monster (2015) [OGG| 391-551 кб/с]<Alternative Rock, Space Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633914.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2015 - Human
-2017 - Like It Is
-2018 - Who Cares?Жанр: Alternative Rock, Pop Rock, Female VocalПродолжительность: 01:01:06
+01. Segue 4
+02. Hot Traveler
+03. A.M. Amnesia
+04. Snow Angel(   Читать дальше...   )Жанр: Alternative Rock, Space RockПродолжительность: 01:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2206BAD8CBB912A7817636EBADF13FE788F7836B
+magnet:?xt=urn:btih:5A609741728432B5C9FD59CE546DDC78AD124147
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143724   (633261) от 19.06.2017
+###  Публикация: 929580   (518488) от 20.08.2015
 
-Ida Maria - Katla (2010) [MP3|320 Kbps] <Alternative Rock, Blues, Rock>
+King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 кб/с]<Alternative, Psychedelic Rock, Garage Soul, Surf>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633261.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Quite Nice People
-02. Bad Karma
-03. 10,000 Lovers
-04. Cherry Red(   Читать дальше...   )Жанр: Alternative Rock, Blues, Blues Rock, Hard Rock, Punk Rock, Classic Rock, TejanoПродолжительность: 00:34:43
+01. I'm In Your Mind
+02. I'm Not In Your Mind
+03. Cellophane
+04. I'm In Your Mind Fuzz(   Читать дальше...   )Жанр: Alternative, Psychedelic Rock, Garage Soul, SurfПродолжительность: 00:42:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47C640449951B972472DBC26B3955481D3699A83
+magnet:?xt=urn:btih:6AAFB97DD557EFCB7C3B70AFE7DC841F31D12D14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,28 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143891   (632925) от 19.06.2017
+###  Публикация: 929711   (518398) от 20.08.2015
 
-Royal Blood - How Did We Get So Dark? (2017) [MP3|320 Kbps] <Alternative, Rock, Garage Rock>
+P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632925.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. How Did We Get So Dark?
-2. Lights Out
-3. I Only Lie When I Love You
-4. She's Creeping(   Читать дальше...   )Жанр: Alternative, Rock, Garage RockПродолжительность: 00:34:31
+01. Am I Awake
+ 02. This Goes Out To You
+ 03. Rise Of NWO
+ 04. Criminal Conversations (Feat. Maria Brink)(   Читать дальше...   )Жанр: Rap Metal, Nu MetalПродолжительность: 00:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12342F142EB60D55098B39C706DF3ACE28B76BDA
+magnet:?xt=urn:btih:E716275445F2E1253323475CDE980AFF370AE4DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,28 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 908657   (632485) от 15.06.2015
+###  Публикация: 929569   (518194) от 20.08.2015
 
-The Pop Group - Citizen Zombie (2015) Deluxe Edition [MP3|320 кб/с]<Post-Punk, Experimental>
+King Gizzard and the Lizard Wizard - Quarters! (2015) [OGG| 493-548 кб/с]<Alternative, Psychedelic Rock, Lo-Fi, Garage Soul>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Citizen Zombie (3:52)
-2. Mad Truth (3:47)
-3. Nowhere Girl (3:26)
-4. Shadow Child (2:45)(   Читать дальше...   )Жанр: Post-Punk, ExperimentalПродолжительность: 00:52:12
+01. The River (10:10)
+02. Infinite Rise	(10:10)
+03. God Is In The Rhythm	(10:10)
+04. Lonely Steel Sheet Flyer	 (10:10)Жанр: Alternative, Psychedelic Rock, Lo-Fi, Garage SoulПродолжительность: 00:40:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBEC0180D3A8F79587DFAEC0B75FE96F08C5CCF4
+magnet:?xt=urn:btih:D9D74A7716F386A1574D19165FDB4F9FF7742EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -738,28 +720,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034974   (632423) от 14.07.2016
+###  Публикация: 1560748   (517719) от 02.07.2022
 
-Good Charlotte - Youth Authority (2016) [MP3|320 Kbps] <Pop-Rock>
+Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Alt. Rock, Post-Grunge, Nu-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632423.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Changes
-02. Makeshift Love
-03. 40 oz. Dream
-04. Life Can't Get Much Better(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:44
+01. What Would You Do? [04:49]
+02. Will It Ever End? [04:08]
+03. Feast Or Famine [04:33]
+04. Wasteland (Alternate Version) [04:20](   Читать дальше...   )Жанр: Alt. Rock, Post-Grunge, Nu-MetalПродолжительность: 2CD, 01:28:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F43DE8AD69E3EAF247CD3EECE6E0E8C7247BCC68
+magnet:?xt=urn:btih:95018C2F92052F0C43ADDE9FBF3631BF8FDFA5A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

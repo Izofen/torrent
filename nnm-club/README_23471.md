@@ -1,25 +1,22 @@
-###  Публикация: 1706201   (113648) от 12.03.2024
+###  Публикация: 1705094   (113974) от 07.03.2024
 
-Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+Рио Браво / Rio Bravo (1959) BDRip [H.264/720p] [MVO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113648.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Uptown Jazz (3:28)
-02. Time Travel (4:11)
-03. Peace In The Melody (3:13)
-04. Funky Smooth (2:53)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 02:22:18
+По мотивам рассказа Б. Х. Маккэмпбелла "Рио Браво"... Шериф маленького городка Рио Браво Джон Ченс арестовывает убийцу. Брат арестованного, известный бандит, собирает самых отчаянных головорезов со всей округи для его освобождения. Город наводнён преступниками, но Ченс принимает вызов. На помощь к шерифу приходят лишь пьяница, хромой старик и молодой быстрый (   Читать дальше...   )Производство: США / Armada ProductionsЖанр: драма, вестернРежиссер: Ховард ХоуксАктеры: Джон Уэйн, Дин Мартин, Рики Нельсон, Энджи Дикинсон, Уолтер Бреннан, Уорд Бонд, Джон Расселл, Педро Гонсалес-Гонсалес, Эстелита Родригес, Клод Экинс, Малкольм Аттербери, Гарри Кэри мл., Шеб ВулиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:21:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BA7F6A503C7FCFC8CC931C37549952AC381F83C
+magnet:?xt=urn:btih:242A0683136C138EDC33ED0D805123FA3A1D9139
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,83 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706318   (113647) от 12.03.2024
+###  Публикация: 1705074   (113973) от 07.03.2024
 
-John A. Showler - Swinging Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Life (3:51)
-02. Swinging Doors (3:23)
-03. Nothing Changes (5:39)
-04. Elige Vitam (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84324561B6429E24944F9FAE84013ECB846B1D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706279   (113646) от 12.03.2024
-
-Stash for Mac 2.5.6 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stash — это многопротокольный прокси-клиент на основе правил для платформы iOS/macOS. Он полностью совместим с конфигурацией Clash Premium и поддерживает правила набора правил, подключения по требованию, группу политик SSID, MitM, анализ HTTP, перезапись сценариев JavaScript и другие богатые функции. Это лучший выбор для правил Clash на платформе iOS. Stash использует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2023Разработчик: © 2024 Stash Networks LimitedПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25563CABD09EDE4B9AA81F63CF639B43307F879B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706403   (113645) от 12.03.2024
-
-S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Hardcore, Speed Metal, Thrash>
+VA - With love to children (С любовью к детям) (1991) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113645.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 March Of The S.O.D.
-A2 Sargeant D & The S.O.D.
-A3 Kill Yourself
-A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Metal, ThrashПродолжительность: 01:16:27
+Side 1:
+01. Love Is Such A Lonely Word (D. Bohlen) – Blue System
+02. Big Time (Muller – G+M Koppehelle) – C. C. Catch
+03. Sole (G. Castelli – G. Gaste) – Gino Castelli(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:59:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
+magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706307   (113644) от 12.03.2024
+###  Публикация: 1705119   (113972) от 07.03.2024
 
-Black Electric - Late Night Lightning (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Крид 3 / Creed III (2023) BDRip [H.264/1080p] [UKR, EN / EN Sub]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113644.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Put It Down On Me (3:49)
-02. World Ain't So Heavy (4:43)
-03. Take The Roof Off (3:40)
-04. Come On Over (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:35
+На свободу после длительного тюремного заключения выходит друг детства Крида и бывший вундеркинд бокса Дэмиан «Дама» Андерсон, который горит желанием доказать, что заслуживает своего шанса на ринге. Чтобы свести счеты, Донни должен поставить на карту свое будущее, ведь Дэмиану нечего терять.Производство: США / Chartoff-Winkler Productions, Glickmania, Metro-Goldwyn-Mayer (MGM), Outlier Society Productions, ProximityЖанр: драма, спортРежиссер: Майкл Б. ДжорданАктеры: Майкл Б. Джордан, Тесса Томпсон, Джонатан Мэйджерс, Вуд Харрис, Филисия Рашад, Майла Дэвис-Кент, Хосе Бенавидез, Селенис Лейва, Флориан Мунтяну, Тадеус Дж. МиксонПеревод: Дублированный (укр.)Язык озвучки: украинский, английскийСубтитры: английскиеПродолжительность: 01:56:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DBDD0E80ABBB322D0B08B1BD417A4E6EDFE6638
+magnet:?xt=urn:btih:F3C840AE0FCF81E8CEEB48ABF2EA8D754173DD5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,27 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706225   (113643) от 12.03.2024
+###  Публикация: 1705161   (113971) от 07.03.2024
 
-Downie 4 v.4.7.5 [Multi/Ru]
+Chromium 122.0.6261.112 + Portable (x64) [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113643.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81B8ECCF0A230D934ACC22AE0D734CDC43E9C33C
+magnet:?xt=urn:btih:E586C024980A487F1AAE45C880C48CDA9A4524B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706377   (113642) от 12.03.2024
+###  Публикация: 1695278   (113970) от 07.03.2024
 
-S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash, Hardcore>
+Рожденный чемпионом / Born a Champion (2021) HDRip [MVO]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113642.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. March Of The S.O.D.
-A2. Sargeant D & The S.O.D.
-A3. Kill Yourself
-A4. Milano Mosh(   Читать дальше...   )Жанр: Thrash, HardcoreПродолжительность: 00:28:31
+Микки Келли, обладатель черного пояса по бразильском джиу-джитсу, оставляет тех, кого любит, ради участия в нелегальном турнире MMA.Производство: США / ESX EntertainmentForrest FilmsЖанр: боевик, драма, спортРежиссер: Алекс РанаривелоАктеры: Деннис Куэйд, Катрина Боуден, Шон Патрик Флэнери, Карри Грэм, Костас Мэндилор, Морис Комт, Рено Уилсон, Али Афшар, Харрисон Сюй, Джонатан КовальскиПеревод: Многоголосый профессиональный (Официальный, OKKO)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:51:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00F5387B593C58308B580708704B1BCF20331AD3
+magnet:?xt=urn:btih:750AB371623FBEDDB1C51C801E51FEA500C0D2F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,108 +131,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706370   (113641) от 12.03.2024
+###  Публикация: 1705149   (113968) от 07.03.2024
 
-Михаил Волконский | Две жизни (2011) [MP3, Маргарита Иванова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
-Роман «Две жизни» вводит слушателя в полную тайн и мистики атмосферу (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 08:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D9C6BF05AFEC0D9D30213B75F308CF23FFA134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706368   (113640) от 12.03.2024
-
-Газета | Народный совет №10 (27 февраля 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A9A37CAAFE0DF48B96715991D015A4D93320ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706314   (113639) от 12.03.2024
-
-Crimson Crux - Teenage Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Day (3:03)
-02. Black & Blue (3:29)
-03. Hit the Lights (3:52)
-04. Teenage Rebel (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D888E1E0F3D02A99E823D4FE5ADBB2B9C93F9D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706236   (113638) от 12.03.2024
-
-iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
+AutoCrypt 2.5.2 [En]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113638.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iShot — отличный и комплексный инструмент для создания скриншотов областей, окон, многооконных снимков, длинных снимков экрана, снимков экрана с оболочкой, интервальных снимков экрана, быстрых аннотаций, текстур, выбора цвета, записи экрана, записи звука, оптического распознавания символов и инструментов перевода снимков экрана.Тип издания: macOS SoftwareРелиз состоялся: 05.02.2024Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+AutoCrypt - это приложение для шифрования / дешифрования с подходом на основе документов, которое может обрабатывать большое количество файлов в пакетном режиме.
+Оно позволяет сохранять в документах все настройки, используемые для шифрования файлов, включая файл, с которым нужно работать, и повторно использовать его в дальнейшем.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3F28CDA7A5F6B3CD9E0330D16B8BA6246452F57
+magnet:?xt=urn:btih:D07F2849A41CAC8DA67CF552D065CCDC41950F27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,28 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706323   (113637) от 12.03.2024
+###  Публикация: 1705190   (113967) от 07.03.2024
 
-Pathmaker - Something More (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Михаил Салтыков-Щедрин | Бедный волк (2024) [MP3, Александр Здориков]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113637.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Catalyst (4:35)
-02. Voices In The Mirror (4:21)
-03. Forgive And Forget (3:41)
-04. The Defier (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:06
+Всю жизнь волк убивает и разбойничает, чтобы добыть еду себе и своей семье. К старости он понимает, что убивать — плохо, но иначе жить не может, поэтому решает сдаться охотнику. Он знал, что и охотник такой же.Жанр: КлассикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:14:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB1547F665A87469841456F55A879280CADD135F
+magnet:?xt=urn:btih:A724783237FE42317242C80C4F04AE850712A8F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,107 +184,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706244   (113636) от 12.03.2024
+###  Публикация: 1705063   (113966) от 07.03.2024
 
-Газета | Аргументы и Факты. Москва №10 (6-12 марта 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3330995C7D3FCE679DD9BA828B1DA4E043C00102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706228   (113635) от 12.03.2024
-
-Navicat for Redis on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для Redis — это простой в использовании визуальный интерфейс для визуализации и оптимизации данных Redis. Он предоставляет надежный набор функций, которые упрощают, упрощают и повышают эффективность рутинных задач управления по сравнению с использованием только текстовых команд.
-Подключайтесь к любым локальным и удаленным серверам Redis и совместим с облачными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAF50DCD6D0A71B55C0D5B3608C1638F6BC62BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706363   (113634) от 12.03.2024
-
-Газета | Народный совет №9 (20 февраля 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0272ED5086614B3BB78E2BE8966D20955E03AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706345   (113633) от 12.03.2024
-
-Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunday [7:58]
-02. Soul Shack [7:15]
-03. Love Nest [6:18]
-04. Hairy [5:57](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 01:14:45
+01. Desejo da Banalidade do Bem (9:34)
+02. A War Is Knockin' At Your Door (8:32)
+03. Waiting For The Rain (8:02)
+04. Elena Is A Name Of Beauty (10:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:14:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EA91C1586051AA1619C5E9593E8E4CF275310D9
+magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,57 +213,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706247   (113632) от 12.03.2024
+###  Публикация: 1705050   (113965) от 07.03.2024
 
-Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Old Wheels (2:59)
-02. All Comes Easy (4:25)
-03. Out of This Train (2:51)
-04. Nothing but the Blues (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBF6BA5CDEDA43AA5692CB68F7B67D9BD7F3A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706362   (113631) от 12.03.2024
-
-Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
+VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113631.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Romancero Gitano (Hino) - 8:05
-02. Sweet Love of Mine (Shaw) - 7:38
-03. Bluestruck (Hino) - 5:01
-04. Rain Again (Hino) - 7:17(   Читать дальше...   )Жанр: Fusion, BopПродолжительность: 00:57:46
+01. Anthony Ventura - Eternal Flame (3:41)
+02. Manuel & The Music Of The Mountains - Misty (3:35)
+03. George Benson - Breezin’ (5:42)
+04. Antonio Carlos Jobim - Surfboard (2:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:54:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94D82906405C899741F9C7605B80E7289A3D62E8
+magnet:?xt=urn:btih:8E5679F9D116EA4C23D61AAA1B841721A1E3ABBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,25 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706433   (113630) от 12.03.2024
+###  Публикация: 1705217   (113964) от 07.03.2024
 
-Keep It 2.4.3 [Multi]
+Folder Icons 1.6 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Арабский и Иврит
+Добавьте крутой значок в ваши файлы/папки за 3 шага!Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2F47845A35B68BF5C2D70A8B2CFF87B1190204F
+magnet:?xt=urn:btih:12A9A62E0D32FF2F78087D0F4A634095EAA84488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,28 +268,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706436   (113629) от 12.03.2024
+###  Публикация: 1705093   (113963) от 07.03.2024
 
-Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113629.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Cromlech
-A2 Sunrise Over Locus Mortis
-A3 Soulside Journey
-A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:46
+Side 1
+01. Люсиль
+Lucille (R. Bowling - H. Bynum)
+02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
+magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,27 +297,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706230   (113628) от 12.03.2024
+###  Публикация: 1705053   (113962) от 07.03.2024
 
-Piezo 1.8.2 [En]
+Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113628.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
-Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
-Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2024 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+01. Suffering Is Optional (4:07)
+02. Optimistic Once Again (Smooth Jazz Version) (4:33)
+03. Sacred Mandala (Smooth Jazz Version) (3:51)
+04. Childhood Trauma (4:12)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:41:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E02FFA79F9FFCFFA476C6E9952EF06C43072AE33
+magnet:?xt=urn:btih:2F60DC4DB380CD3A2028D42EE76AFD9F4EC2E6D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,25 +326,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706405   (113627) от 12.03.2024
+###  Публикация: 1705079   (113961) от 07.03.2024
 
-EazyDraw 11.6.2 [Multi]
+The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Blues>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113627.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2022-2024 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+01. Let's Have a Good Time (feat. Castro 'Mr. Sipp' Coleman) [4:07]
+02. Boogie in the Dark (feat. Bobby Rush) [3:55]
+03. I'm a Woman (feat. Shemekia Copeland, Buddy Guy, Charlie Musselwhite) [4:59]
+04. Down Home Blues (feat. Keb' Mo', Lauren Mitchell) [4:37](   Читать дальше...   )Жанр: Swing, Big Band, BluesПродолжительность: 00:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4252A3E30B60FBC5EC2CE444CCC810C5EB521899
+magnet:?xt=urn:btih:F3E6ECDB8BFB33C349CC954D24406650EF925BFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,25 +355,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706389   (113626) от 12.03.2024
+###  Публикация: 1705191   (113960) от 07.03.2024
 
-Notebooks – Write and Organize 3.4 [En]
+Очарование Флориды / A Florida Enchantment (1914) WEBRip
 
->>Архив торрентов
->>Архив 4Apple
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113626.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2012-2024 Alfons SchmidПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+Этот своеобразный и веселый фильм основан на романе 1891 года и пьесе 1896 года (не сохранившейся) с тем же названием, написанных Фергюсом Редмонтом и Арчибальдом Гюнтером.
+В фильме Лилиан Трэверс, богатая женщина с севера, собирающаяся выйти замуж, получает волшебные семечки, которые способны превращать своего владельца в человека противоположного пола. И не столько (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: комедия, немое киноРежиссер: Сидни ДрюАктеры: Сидни Дрю, Эдит Стори, Чарльз Кент, миссис Сидни Дрю, Ада Гиффорд, Этель Ллойд, Лиллиэн Барнс, Грэйс Стивенс, Аллан Кэмпбелл, Cortland Van DeusenПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5B36866B543F7C4F62DDF3B5ACDD9950D8E9DA
+magnet:?xt=urn:btih:C61C3127AEDAF3875712D99EBFA36DCD0214C971
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,25 +382,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706226   (113625) от 12.03.2024
+###  Публикация: 1705070   (113959) от 07.03.2024
 
-Permute 3 v.3.11.7 [Multi/Ru]
+PopChar for Mac 10.0 [Multi]
 
->>Архив торрентов
->>Архив 4Apple
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113625.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский и др.
+Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 Ergonis SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D735E23DAFDB40BDD7353E65ED6E96707EF7751C
+magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +408,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706250   (113624) от 12.03.2024
+###  Публикация: 1705087   (113958) от 07.03.2024
 
-Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113624.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don´t leave me alone tonight (4:54)
-02. A one and only soul (6:20)
-03. I still care (4:07)
-04. Never coming down (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:24
+Сторона 1
+Modern Age Rock'N'Roll
+01.Сегодняшний рок-н-ролл (муз. и сл. Дж. Стингрэй и Б. Гребенщикова)
+Give Me Some More Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF0753716BB03DC0F3FFD1EC8FBC179B0B3C7028
+magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +437,276 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706248   (113623) от 12.03.2024
+###  Публикация: 1705163   (113957) от 07.03.2024
 
-Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Илья Духовный - Грустная история (1998) [FLAC|Lossless|tracks + .cue] <Pop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. That's Where My Mojo's At (3:09)
-02. Superfunk (4:04)
-03. Love Denied (3:57)
-04. Red, Hot and Blue (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+01. Ненужная песенка 03:34
+02. Грустная история 04:05
+03. Курортная любовь 03:35
+04. Звёздочка 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45F92A82F98885D177AC8928D172529F5126405F
+magnet:?xt=urn:btih:1A400B98EE50EDE89998296BF4E1C946AD24CC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705227   (113956) от 07.03.2024
+
+Navicat Data Modeler Essentials for Mac 3.3.17 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Data Modeler Essentials — это мощный и простой в использовании инструмент проектирования баз данных для создания моделей данных и управления ими. Он поддерживает различные системы баз данных, включая MySQL, MariaDB, Oracle, SQL Server, PostgreSQL и SQLite.
+С помощью Navicat Data Modeler Essentials вы можете легко создавать высококачественные модели данных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705199   (113955) от 07.03.2024
+
+ToothFairy 2.8.4 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113955.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToothFairy - это небольшое приложение позволяет всего лишь одним кликом управлять любым устройством посредством Bluetooth.
+ToothFairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2022 C-Command SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D66AA75BD20A8AABF7810B4626F307B5C66CDEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705061   (113954) от 07.03.2024
+
+Dynamic Wallpaper Engine 17.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Wallpaper Engine позволяет использовать живые обои на рабочем столе/экранной заставке. Он предоставляет тысячи живых обоев в Мастерской, потребляя при этом как можно меньше системных ресурсов. Это движок обоев для Mac.Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2020 WHBALZAC IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859DA949DE712816FBB74A8507746957A85A395F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705036   (113953) от 07.03.2024
+
+Disk Graph 3.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Graph - инструмент, который позволяет проверить ваш диск и легко найти файлы, какие занимают большую часть дискового пространства. С его красивым интерфейсом и его подобным кругу графиком, определение местоположения больших файлов никогда не было проще.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 DesairemПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4E730FB4D7A70A4F2B64095BE3D2F6B84AC395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705095   (113952) от 07.03.2024
+
+Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01 - Кто идет (Д.-Б. Бембо — С. Бардотти — Н. Джакомелли — И. Форсман) — на шведском яз.;
+02 - Тайные влюбленные (П. Хочкисс — С. Джонсон):
+03 - Кто-то другой (А. Гленмарк — Т. X. Майнор):(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705124   (113951) от 07.03.2024
+
+Оскар Уайльд и др. | Сказки английских писателей. Кентервильское привидение (2013) [MP3, Татьяна Телегина и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Предлагаем вашему вниманию произведения знаменитых английских писателей Оскара Уайльда и Редьярда Киплинга, сказки известного собирателя фольклора Джозефа Джекобса, а также Джулии Кавана, Джорджа Макдональда, Уиды (Луизы де ла Раме), Эдит Несбит.
+
+ Оскар Уайльд на NoNaMe Club (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 11:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22B85C131B25F7E5C1A0204A072617A7B22A63A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705150   (113950) от 07.03.2024
+
+Оскар Уайльд | Идеальный муж (2015) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оскар Уайльд (1854–1900) – ирландский писатель и поэт.
+Пьеса посвящается литератору Фрэнку Гаррису, подарившему писателю сюжет комедии. Премьера состоялась 3 января 1895 года.
+Комедия в четырёх действиях. Это драматическое произведение названо комедией скорее в соответствии с традицией, так как у него счастливый конец.
+Семья Чилтернов кажется идеальной. Он преуспевающий (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедия, пьесаИздательство: Нигде не купишьПродолжительность: 04:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5A8651CEE213F0F245C70FA65C65C9CA6EFFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705089   (113949) от 07.03.2024
+
+YT Saver Video Downloader & Converter for Mac 7.4.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неограниченная загрузка с помощью YT Saver Downloader, с помощью этого приложения вы можете загружать неограниченное количество видео и плейлистов с потоковых сайтов и получать доступ к своим видео в автономном режиме, а также загружать несколько видео одновременно.Тип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2023 YT Saver StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA7CE9397390EF5F05D0DEF4E32B7842A106A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705065   (113948) от 07.03.2024
+
+Cedar Walton Trio - Ironclad (1989) 1995, Monarch Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Band Intro [0:16]
+02. Bremond's Blues [4:49]
+03. My Old Flame [9:15]
+04. N.P.S. [8:33](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66C07256E3CFB6D3E22F2E86F44EF452EADC6EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

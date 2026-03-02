@@ -1,3 +1,60 @@
+###  Публикация: 955695   (330207) от 14.11.2015
+
+СатанаКозёл - 3 альбома (2008-2015) [FLAC|Lossless|image+.cue] <Pagan, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330207.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - Рогатыя
+2010 - Солнце мёртвых
+2015 - СеверЖанр: Pagan / Folk MetalПродолжительность: 02:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6896211145F36C759598FD9756CF0BFD33FB73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956221   (330176) от 14.11.2015
+
+Браво - Навсегда (2015) [FLAC|image + .cue]<Pop Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перемена мест (3:13)
+02. Ray Davies (3:18)
+03. DJ Фантомас (3:50)
+04. Навсегда (3:25)(   Читать дальше...   )Жанр: Pop Rock, Rock'n'RollПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360123AAD45107CC6A6482567BDA0295A942C632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580342   (329991) от 02.10.2022
 
 ГефесТ - Сам не свой (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
@@ -690,65 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:780FF86D2A02EA261A1E1C5E88C84C13CC8ABFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420957   (322284) от 03.11.2020
-
-UNBLOCKERS - Бытие (2020) EP [FLAC|Lossless|WEB-DL|tracks] <HardCore-Punk, Sludge-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало [00:00:46]
-02. Бытие [00:02:50]
-03. Внутреннее я [00:03:15]
-04. Школа Насилия [00:03:07](   Читать дальше...   )Жанр: HardCore-Punk, Sludge-MetalПродолжительность: 00:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F068AFA12244D5DCF4D6278109A4D929E3600F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181582   (321788) от 08.11.2017
-
-Project NT - Дневник Постороннего (Истории Темных Времен, том II) (2017) Авторская раздача [FLAC|Lossless|WEB-DL|tracks] <Experimental, Psychedelic, Industrial, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение Историй Темных Времен – том II. В другом стиле, с другим подходом к музыке и к текстам. Скажем так, если первый том содержал рассказы внешнего наблюдателя, то том второй – взгляд изнутри. Пусть это и взгляд постороннего. А кто здесь не посторонний?
-Обложку для диска сделала великолепная художница Екатерина Гречко.01. Труд 03:36
-02. Дневник Постороннего 06:24
-03. Теория Вероятности 04:56
-04. Посмертный Подарок 05:51(   Читать дальше...   )Жанр: Experimental, Psychedelic, Industrial, Post PunkПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A4C94857613589B9FA5EBC721A95AD338FF0B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

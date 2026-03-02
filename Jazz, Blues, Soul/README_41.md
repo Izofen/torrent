@@ -1,32 +1,3 @@
-###  Публикация: 1482199   (1007738) от 07.07.2021
-
-Dave Rudolf - Nostalgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backstreet Driver (3:52)
-02. Wayfaring Stranger (4:01)
-03. I Thought I Knew (3:54)
-04. Nostalgia (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF0D102690980CD2A0BF087128A93A7168040DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482205   (1007726) от 07.07.2021
 
 Sonic Blue - Last Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -745,6 +716,35 @@ Brian Walton - Still Got My Mojo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA7285D6413F804D24E33898345AA35263CFC14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483693   (1006402) от 17.07.2021
+
+Teena Marie - Super Hits (2002) Compilation [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.If I Were A Bell
+02.Dear Lover
+03.My Dear Mr. Gaye
+04.Just Us Two(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2580248D075C3927C68418409B8A885D65422CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

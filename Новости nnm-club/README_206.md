@@ -1,3 +1,29 @@
+###  Публикация: 1333322   (304564) от 24.10.2019
+
+Adobe Acrobat Pro DC 2019.021.20049 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8535C719E358271F097257F28450B24B80575D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960957   (304563) от 29.11.2015
 
 Serious Sam 3: BFE / Крутой Сэм 3 (2011) [Ru/Multi] (3.0.3.0.233089/dlc) Repack R.G. Механики
@@ -649,32 +675,6 @@ Star Wars: Republic Commando (2005) [Ru/Multi] (1.2.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BED345579C4D70BEBFEC60E3F18724062CE15D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131218   (302323) от 11.11.2018
-
-OfficeSuite + PDF Editor v10.0.15671 Premium Mod by Balatan [Ru/Multi] - Офисный пакет для Android
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302323.jpg" />
-</div>
-
-
-###  Подробнее
-
-OfficeSuite является наиболее полным приложение для просмотра документов для Android позволяющие открыть DOC, DOCX, TXT, XLS, XLSX, CSV, PPT, PPTX, PPS, PPSX и PDF-файлов и вложений. Поддерживает работу на планшетах.Тип издания: Пиратка (Premium Features Unlocked and GDrive Working)Релиз состоялся: 10.11.2018Разработчик: Mobile SystemsПоддерживаемая ОС: Android OS 4.0 +Язык интерфейса: Русский /Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9D5112596F51C3015EE71F70C08321A2773CA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

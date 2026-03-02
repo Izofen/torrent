@@ -1,3 +1,29 @@
+###  Публикация: 1274139   (794926) от 05.01.2019
+
+3D модели - Hum3D - Ford Expedition MAX Platinum 2017 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794926.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EF86BC075F36F577F2BA14B277DA816FC38198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274117   (794866) от 05.01.2019
 
 3D модели - ArtStation - Max Mad [MAX, FBX, OBJ]
@@ -648,32 +674,6 @@ La Mona Kids это довольно интересный шрифт, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274618   (792924) от 07.01.2019
-
-Шрифты - Creative Market - Biker Remastered font + graphics - 681973 [TTF, OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленный шрифт Biker включает в себя символы кириллицы, цифры и другие основные символы. Также теперь он разделен на файлы шрифтов для теневого слоя. Грубые и чистые версии доступны. В качестве бонуса включена иллюстрация черепа с крыльями и лентой и иллюстрация медведя в векторном формате eps.Формат: TTF, OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

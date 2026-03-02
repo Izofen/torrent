@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1855601   (1058576) от 25.02.2026
+
+Max Damage - 3 Albums (2026) AI-generated content [MP3|320 Kbps] <synthwave, darkwave, darkpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Max Damage (2026) I Drive Tonight
+Max Damage (2026) Laser Love
+Max Damage (2026) UncannyЖанр: synthwave, darkwave, darkpopПродолжительность: 3 CD, 03:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC919387661CA1538C624D6BA65A9AAC74D85CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853982   (1056978) от 15.02.2026
 
 Renegade Robot - 3 Releases (2025-2026) [MP3|320 Kbps] <synthwave, darkwave, darksynth>
@@ -715,35 +744,6 @@ W O L F C L U B (Wolfclub) - 6 Albums (2017-2021) [MP3|320 Kbps] <Electronic, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996F3580801507344EF6425444A8265B04C80560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463807   (1020142) от 20.04.2021
-
-Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Line (5:53)
-02. SOS from Planet 0712 (5:34)
-03. Zero Gravity (Pt.1) (0:59)
-04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412C4BED5FAB38D5486197064CA11238E895694C
 ```
 
 https://mybot314.ru/tekegram_catalog/

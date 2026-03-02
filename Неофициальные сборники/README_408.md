@@ -1,3 +1,230 @@
+###  Публикация: 547533   (474438) от 15.09.2012
+
+VA - Billboard Hot 100 (08.09.2012) [MP3|219-298 кб/с]<House, Club, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - We Are Never Ever Getting Back Together [03:11]
+ 02. Flo Rida - Whistle [03:45]
+ 03. Ellie Goulding - Lights [03:31]
+ 04. Maroon 5 - One More Night [03:39]
+ 05. Fun - Some Nights [04:37]
+ 06. Carly Rae Jepsen - Call Me Maybe [03:13]
+ 07. Katy Perry - Wide Awake [03:41]
+ 08. Maroon 5 ft. Wiz Khalifa - Payphone [03:51]
+ 09. Owl City ft. Carly Rae Jepsen - Good Time [03:26]
+ 10. Justin Bieber ft. Big Sean - As Long As You Love Me [03:49](   Читать дальше...   )Жанр: House, Club, Funky, Dance, VocalПродолжительность: 06:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07B83537A3722B765D5D3B57186740CBC9C30FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567299   (474435) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 12 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukkino Feat. Hecate - Aliens (Vox & Sax Zuli Radio Version)
+02. Fabrizio La Marca - Alone With You
+03. Loving Touch - Take Me
+04. Dino Del Moro - Just Believe(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:28:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6921CADD13366C02C1067010357B07B894BE7DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567303   (474431) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 13 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fandoctor - Want 2 Dance
+02. WastReal - Flava Pas
+03. Newsouth Housewaves - Greece 2022
+04. My Secret Garden - If I Say(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:36:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD0F72CB31E658ABEC111084E7E47E48EAF77A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567291   (474422) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 11 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakus Feat. Yonna Marie - YEARN (Original Mix)
+02. JSED - Give Me A Feelin (6AM Extended Remix)
+03. Lau Kid - Wandering (Original Mix)
+04. Lee Dagger & Melanie Fontana - Making It Up (Dark Intensity Radio)(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:38:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC29777FCF305E8CC72368A7A10916159A95DDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547196   (474343) от 15.09.2012
+
+VA - 101-й километр Выпуск 3 (2011) [MP3|128 кб/с]<шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474343.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Альберт Салтыков - Города-дороги 03:59
+002 Ирина Круг - Неужели любовь обман 04:00
+003 Михаил Кириллов - За тех, кто в пути 03:35
+004 Happy Sovok - Девушка за рулем 03:11
+005 Крестовый туз - Водила 04:17
+006 Сергей Славянский - Сто дорог 03:42
+007 Александр Кальянов - Корма с трубой 03:17
+008 Виталий Синица - Песня дальнобойщика 03:17
+009 Игорь Герц - Трасса 05:02
+010 Виктор Калина - Холодная весна 03:59(   Читать дальше...   )Жанр: шансонПродолжительность: 12:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C8C1AE0CD1ED48B5B7F82BF432BC8327915DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547614   (474340) от 15.09.2012
+
+VA - Лучшая Best-Of-Ka За Рулём Зарубежная (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474340.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+002. Tacabro - Yeah Yeah Yeah
+003. Alex Sensation feat. Pitbull & Sensato - Noche De Placer
+004. Inna feat. Play & Win - Inndia (Radio Edit)
+005. DJ Nano & Kate Ryan feat. Dmol - The Next Road
+006. Khaled feat. Pitbull - Hiya Hiya
+007. Tarkan - Hatasiz Kul Olmaz
+008. Justice Crew - Boom Boom
+009. Fabio Da Lera & Alenna - One More Night (Radio Edit)
+010. DJ Sanny J feat. Los Tiburones - Chaka Chaka (Sax Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0366A35EF24E90A7F3ED06BF41A137975D25BA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547230   (474334) от 15.09.2012
+
+VA - Наши Новые Поп Хиты (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474334.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. T1One - Дышу Тобой
+002. Jandro - С Тобой
+003. Анна Герцен - Very Good
+004. Виталий Козловский & Varda - Не Оставляй Меня
+005. Бьянка - So Sexy
+006. Алена Винницкая - Я Жду
+007. Анжелика Варум - Лао
+008. Время и Стекло - Серебряное Море (DJ Kerim Muravey & DJ Yura Spitsa Remix)
+009. Elvira T - Все решено
+010. MaXimA - Алло (Fidel Wicked mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF6B5EBEE12E836C3ABADA77430391EFA214703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567305   (474329) от 02.08.2022
 
 VA - Nothing But... Pure Dance Vol. 14 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
@@ -557,209 +784,6 @@ VA - The Best Of Miсrofunk [Compiled by Zebyte] (2016) [MP3|320-416 Kbps] <Miс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:891E5F35CFD3735C810FB6FE30EFB7EE27570C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406742   (473064) от 04.09.2020
-
-VA - Music News vol.33 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473064.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ask & Nerak - Прости (03:08)
- 002. 6ix9ine feat. Leftside - Nini (02:18)
- 003. Addal - Blinding Lights (04:15)
- 004. Alex Parker - Goodbye (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BA1D8D5C15B1C326D17AC643B35D5411D109F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057766   (473055) от 29.09.2016
-
-VA - В плену попмузыки. Суперсборник от Русского радио (2016) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473055.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - Туманы
-002. L'One feat. Ёлка - Шанс
-003. Юлианна Караулова - Разбитая Любовь
-004. Настя Задорожная - Условный Рефлекс(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB41DC6BAD37E68739751B08E64BFEECC3F89DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320180   (473039) от 17.08.2019
-
-VA - Зайцев.нет Лучшие новинки Августа 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Swanky Tunes feat. Jantine - I'll Live On (3:05)
-2.Maruv - Между нами (2:59)
-3.Ольга Бузова - Лайкер (3:44)
-4.Rick Ross - Turnpike Ike (4:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B141C6086BA9F99F7F4AEF4D549A13923ED80C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406628   (472928) от 04.09.2020
-
-VA - не Громкие новинки недели 80 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alishka - Малышка (2:17)
-02. Aquaneon - По Ночам (1:46)
-03. Bolshevseh - Магма (3:02)
-04. DaBro - Все За Одного (Bgdnv Remix) (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4CA717DB1AD53875AD11C888B6693F4C18D538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057701   (472912) от 29.09.2016
-
-VA - 100 Planet Pop Love Songs Lyric (2016) [MP3|320 Kbps] <Pop, Lyric >
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472912.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. George Ezra - Budapest
-002. Birdy - Growing Pains
-003. Calum Scott - Dancing On My Own
-004. Hozier - Take Me To Church(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 10:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED625059885058DF8DD815B42139B0AFF186B446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406732   (472772) от 04.09.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 04.09.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
-02. R3HAB & GATTÜSO - Creep (2:41)
-03. Stefy De Cicco & Ben Hamilton - Day 'N' Nite (Martin Jensen Edit) (2:46)
-04. Ava Max - Salt (3:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6648966B0DE680A93BE97C80B337AD1EF0165D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406613   (472648) от 04.09.2020
-
-VA - The most famous Soul and Funk (2020) 2CD [MP3|320 Kbps] <Funk, Soul, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sly & The Family Stone - Remember Who You Are
-02. James Brown - I Got You (I Feel Good)
-03. The Jacksons - Blame It on the Boogie
-04. Wild Cherry - Play That Funky Music(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 10:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CA3D465E91F52331311ABD2E27CE857E3CCCDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

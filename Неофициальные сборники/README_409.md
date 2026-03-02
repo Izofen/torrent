@@ -1,3 +1,206 @@
+###  Публикация: 1406742   (473064) от 04.09.2020
+
+VA - Music News vol.33 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473064.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ask & Nerak - Прости (03:08)
+ 002. 6ix9ine feat. Leftside - Nini (02:18)
+ 003. Addal - Blinding Lights (04:15)
+ 004. Alex Parker - Goodbye (02:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BA1D8D5C15B1C326D17AC643B35D5411D109F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057766   (473055) от 29.09.2016
+
+VA - В плену попмузыки. Суперсборник от Русского радио (2016) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473055.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Макс Барских - Туманы
+002. L'One feat. Ёлка - Шанс
+003. Юлианна Караулова - Разбитая Любовь
+004. Настя Задорожная - Условный Рефлекс(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB41DC6BAD37E68739751B08E64BFEECC3F89DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320180   (473039) от 17.08.2019
+
+VA - Зайцев.нет Лучшие новинки Августа 2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Swanky Tunes feat. Jantine - I'll Live On (3:05)
+2.Maruv - Между нами (2:59)
+3.Ольга Бузова - Лайкер (3:44)
+4.Rick Ross - Turnpike Ike (4:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B141C6086BA9F99F7F4AEF4D549A13923ED80C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406628   (472928) от 04.09.2020
+
+VA - не Громкие новинки недели 80 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alishka - Малышка (2:17)
+02. Aquaneon - По Ночам (1:46)
+03. Bolshevseh - Магма (3:02)
+04. DaBro - Все За Одного (Bgdnv Remix) (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4CA717DB1AD53875AD11C888B6693F4C18D538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057701   (472912) от 29.09.2016
+
+VA - 100 Planet Pop Love Songs Lyric (2016) [MP3|320 Kbps] <Pop, Lyric >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472912.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George Ezra - Budapest
+002. Birdy - Growing Pains
+003. Calum Scott - Dancing On My Own
+004. Hozier - Take Me To Church(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 10:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED625059885058DF8DD815B42139B0AFF186B446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406732   (472772) от 04.09.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 04.09.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NRD1 - All Good Things (Come To An End) (Extended) (4:24)
+02. R3HAB & GATTÜSO - Creep (2:41)
+03. Stefy De Cicco & Ben Hamilton - Day 'N' Nite (Martin Jensen Edit) (2:46)
+04. Ava Max - Salt (3:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6648966B0DE680A93BE97C80B337AD1EF0165D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406613   (472648) от 04.09.2020
+
+VA - The most famous Soul and Funk (2020) 2CD [MP3|320 Kbps] <Funk, Soul, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sly & The Family Stone - Remember Who You Are
+02. James Brown - I Got You (I Feel Good)
+03. The Jacksons - Blame It on the Boogie
+04. Wild Cherry - Play That Funky Music(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 10:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CA3D465E91F52331311ABD2E27CE857E3CCCDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547571   (472424) от 16.09.2012
 
 Nic ZigZag - Winter Road Mix (2012) [MP3|320 кб/с]<Drum and Bass>
@@ -554,209 +757,6 @@ VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939987   (470977) от 23.09.2015
-
-VA - Осенний Хит на радио Хит FM (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Татьяна Овсиенко - В Сердце
-02. Zlata (Злата) Feat. Dj Рубль - Курс Рубля
-03. Зарина Тилидзе - Нежность
-04. Mozgi (Потап) - Хлам(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF296284587193B5AB8B2C0D247351ADD9096015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058026   (470962) от 30.09.2016
-
-VA - Top 50 Workout Hits Rhythm (2016) [MP3|175-320 Kbps] <Trance, Euro House, Techno, Dubstep, Bassline, Psy, UK Garage>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Dance Alliance (D.D. Alliance) - Diving (Radio Edit) 03:17
-02. Klaudia Gawlas - In Unison 07:36
-03. Pier Boston Featuring Danny G - Turning Around (Radio Edit) 03:41
-04. Alex Preda - Expansion Of Particles (Original Mix) 07:15(   Читать дальше...   )Жанр: Trance, Euro House, Techno, Dubstep, Bassline, Psy, UK GarageПродолжительность: 04:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD19270CC18A33CDBDE8F17EED12D1D516CC3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406761   (470853) от 05.09.2020
-
-VA - Summer Vacation: National Pop Music (2020) [MP3|320 Kbps] <Pop, Folk, Ethnik>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nameless In August - Been There Before
-002. Georgia Ruth - In Bloom
-003. Calimeros - Playa Blue
-004. Issam Hajali - Ana Damir El Motakallim(   Читать дальше...   )Жанр: Pop, Folk, EthnikПродолжительность: 10:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD3AEE069E1B59EF053822F8D03D75BE7635C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406596   (470839) от 05.09.2020
-
-VA - Music for You vol.12 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pomegranate Tiger - Gift of Tongues (01:26)
- 02. The Omnific - Pharaoh (04:45)
- 03. Imperial Triumphant - Transmission to Mercury (06:41)
- 04. Circles - Blueprints for a Great Escape (04:48)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8D72554128649F1B1AEF1ACB0FCF47981F9457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058174   (470821) от 30.09.2016
-
-VA - Soft Jazz Best Background Music: Exam Study Music to Help Increase Concentration (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz for Study Music Academy - Soft Jazz: Best Background Music
-02. Easy Study Music Academy - Concentration and Brain Power
-03. Exam Study Piano Music Guys - Improve Human Memory
-04. Jazz Relax Academy - Positive Motivating Energy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05E3FC2B5EC03361334DB82757EE5BB4243C85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406758   (470695) от 05.09.2020
-
-VA - Beatport Tech House: Electro Sound Pack #170 (2020) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470695.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fat Legs - Do You Know
-002. Rich Wakley - Chase The Same High
-003. F-Lame - Minimal Terror
-004. Sergio Fernandez - Urano Beatz(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 14:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA4A3853E965AC73C9B36A1AEDA93995086E5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939942   (470687) от 23.09.2015
-
-VA - Top 100 Зайцев.Нет Cентябрь (2015) [MP3|320 кб/с]<Pop, Dance, Rap, R&B, Rock, Chanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470687.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимати feat. Рекорд Оркестр - Баклажан (03:07)
-002. Imany - Don’t Be So Shy (Filatov & Karas Remix) (03:10)
-003. Время и Стекло - Имя 505 (03:19)
-004. Паола - #Девочкитакиедевочки (02:24)(   Читать дальше...   )Жанр: Pop, Dance, Rap, R&B, Rock, ChansonПродолжительность: 05:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92C0A435FFCC5F4ADA5BBCBFCB14FF2639B2363
 ```
 
 https://mybot314.ru/tekegram_catalog/

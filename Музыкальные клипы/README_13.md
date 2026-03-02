@@ -1,22 +1,22 @@
-###  Публикация: 637679   (897988) от 01.04.2013
+###  Публикация: 1211501   (777078) от 08.03.2018
 
-Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
+Ленинград / Не Париж  (2018) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: SynthpopПродолжительность: 00:04:00
+Группа «Ленинград» выпустила клип на новую песню «Не Париж». В восьмиминутном ролике, больше похожем на фильм (у него даже есть полноценные финальные титры), рассказывается история ижевской семьи: домохозяйка Юля втайне от своего мужа облачается в костюм супергероини и борется с преступностью.Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:07:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF157448A30B02318E3265AFBFEE0D81FE01D4C8
+magnet:?xt=urn:btih:389220E935F42ED35E4A40DE4BA4B4F1AA837713
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370467   (896861) от 27.03.2020
+###  Публикация: 1211731   (776783) от 09.03.2018
 
-Welicoruss - Siberian Heathen Horde (2020) WEBRip [H.264/1080p-LQ]
+Фабрика / Вова Вова (2018) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896861.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Welicoruss - Siberian Heathen HordeЖанр: Symphonic Black MetalПродолжительность: 00:05:49
+Матвиенко в совместной творческой работе с группой Фабрика придумали и выпустили необычную песню-частушку «Вова Вова», на которую сразу же сняли клип. В основе сюжета песни обычные девушки, существующие в стандартной офисной рутине, но безудержно пытающиеся покорить сердце мужчины мечты с русским, всем нам знакомым именем - Вова.Производство: РоссияЖанр: ПопПродолжительность: 00:02:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DA077C0DA401DE771FFA7DB0074270AD8EF1BF4
+magnet:?xt=urn:btih:2A3DF551A4AE8FA01433CB4AC16FDC95B39887A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370383   (896789) от 27.03.2020
+###  Публикация: 1211562   (776740) от 09.03.2018
 
-Kreator - 666 - World Divided (2020) WEBRip [H.264/1080p-LQ]
+VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896789.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Kreator - 666 - World DividedПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:04:47
+Весенние (07.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexandra Stan - Mami (3:30)
+2. Alexandra Stan - Noi 2 (3:22)
+3. Besford ft. Manu LJ - Another World (Official Video) (3:24)
+4. Claudia Leitte ft. Pitbull - Carnaval (3:45)(   Читать дальше...   )Жанр: Pop, Dance, House, Reggaeton, Rap, Hip-HopПродолжительность: 01:10:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBC16AC00C258849B28DD85D03CAEB3A7A2FE55F
+magnet:?xt=urn:btih:078CB43CA744F45B213999529F6D1F73C3325112
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,26 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370470   (896755) от 27.03.2020
+###  Публикация: 1211814   (776704) от 09.03.2018
 
-Lamb of God - Checkmate, Memento Mori (2020) WEBRip [H.264/1080p-LQ]
+VA - Весенний марафон № 228: (Дискотека с размахом) (2018) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896755.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Lamb of God - Checkmate
-02 Lamb of God - Memento MoriЖанр: Groove, Thrash MetalПродолжительность: 00:10:05
+Весенние (08.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Reea - Stole My Heart (Official Video) (3:36)
+2. Amme - Vis Strain (3:32)
+3. Andreea Banica ft. Balkan - Ce vrei de la mine (Official Video) (3:29)
+4. Andrey Exx, Elis M Feeling ft. Misha - Missing You (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Latino, ReggaetonПродолжительность: 01:31:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D66975C97CA63888DA65F9F302826F4CC64D765
+magnet:?xt=urn:btih:C97E6637362B38214E4D687A3C06CEF77340024E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370055   (896555) от 27.03.2020
+###  Публикация: 1212241   (776353) от 10.03.2018
 
-Die Antwoord - 23 Music Videos (2009-2020) WEBRip [VP9/H.264/2160p/1080p/720p/480p/360p-LQ]
+Вадим Галыгин и гр. Ленинград / 8 Марта (2018) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896555.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 2009 Die Antwoord - Zef Side [1080p]
-002 2010 Die Antwoord - $copie (Live) [720p]
-003 2010 Die Antwoord - $o$ (Gorillaz' Stylo ) [720p]
-004 2010 Die Antwoord - Enter The Ninja (Explicit Version) [480](   Читать дальше...   )Производство: Left Post ProductionЖанр: Alternative Hip-Hop, Electronic, Experimental, TrapПродолжительность: 01:43:35
+Данное музыкально-художественное произведение создано для привлечения общественного внимания к проблеме отношений между мужчиной и женщиной.Производство: РоссияЖанр: ПопСубтитры: русскиеПродолжительность: 00:05:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFF5A025C17C6050E41A285369C290DAF8A3F28D
+magnet:?xt=urn:btih:0381696988B2863D616BFFB1D192C33049DE7B19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,25 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370150   (896543) от 27.03.2020
+###  Публикация: 1212216   (776301) от 10.03.2018
 
-Эдуард Суровый - Love Of Russian Man (1974) remastered 2020 WEBRip [H.264/720p-LQ]
+Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896543.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эдуард Суровый - Love Of Russian Man (1974) Remastered 2020Производство: Россия, ТНТЖанр: PopРежиссер: SMM & DigitalАктеры: Эдуард СуровыйПродолжительность: 00:03:56
+Это полное собрание клипов и лучших концертных выступлений немецкой группы. Все видео взято с оригинальных блю рей и двд, звук не менял, так как он превосходный. Поскольку фирменный блю рей с клипами делался из обычного видео с низким разрешением и судя по всему учавствовали в этом процессе люди слабо разбирающиеся в видео, и состряпали халтуру. Выставили в некоторых (   Читать дальше...   )00 Intro
+01 Rammstein - Du riechst so gut
+02 Rammstein - Links 2 3 4
+03 Rammstein - Rammstein(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 03:36:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00827CC7DA01D48D0352E494E8D17A4099D690E4
+magnet:?xt=urn:btih:A7E930D1866A57759E9B9616E8D41F4534D94796
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 637492   (894922) от 03.04.2013
+###  Публикация: 1212202   (776273) от 10.03.2018
 
-Anna Cyzon - Into The Sun (2013) WEBRip [H.264/720p]
+VA - Весенний марафон № 229: (Новые Лучшие Зарубежные клипы) (2018) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894922.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, RockПродолжительность: 00:04:51
+Весенние (10.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent - Deep In Your Eyes (Official Video) (3:06)
+2. AMI - Niste dragoste (Official Video) (3:17)
+3. Ashley Monroe - Hands On You (Official Music Video) (3:46)
+4. Camila Cabello - Never Be the Same (4:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Soul, House, TranceПродолжительность: 01.39.51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1F81366F46BAB2CE6DA37F3230E32FCA3B51156
+magnet:?xt=urn:btih:6484DACB8BC435EA6D611BF4C6710D546D3ECB4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 295010   (894303) от 14.02.2011
+###  Публикация: 1013801   (775680) от 09.05.2016
 
-Inna - Deja Vu (2010) HDTVRip
+Everest of Rock - 2 (1980) WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выступление румынской певицы Inna - Deja Vu (Live).Жанр: PopПродолжительность: 00:04:05
+Так назван сборник ( Everest of Rock ) Уверен , что сборник понравится "старичкам" но и молодым ценителям современного Рока будет интересно познакомиться с классикой жанра . (Иваныч)© Часть 2.01 The Doors - The Changeling (1971)
+02 Deep Purple - Smoke On The Water (1972)
+03 Alice Cooper - Schools Out (1972)
+04 The Hollies - Long Cool Woman in a Black (1972)(   Читать дальше...   )Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 01:40:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45B9CE3D482AD8CDF70B97D7C4608FBD606FCC16
+magnet:?xt=urn:btih:64C1B8B2E2B855EBE0222DB70BEE425890A9B245
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,26 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370582   (893489) от 29.03.2020
+###  Публикация: 193595   (774197) от 17.05.2010
 
-Трупный Яд - Чума (Black Death) (2020) WEBRip [H.264/1080p-LQ] <Thrash>
+Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893489.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видеоклип (2020) Трупный Яд - Чума (Black Death) Vayper
-CDA Трупный Яд - 1995 - О.В.О. При О.В.ДЖанр: ThrashПродолжительность: 00:06:14
+Сборник клипов группы Bon Jovi. Оригинальные дорожки были перекодированы из LPCM во FLAC. Там где это было возможно, дорожки AC3 и MP3 также были заменены на FLAC. Рипал сам, если что не так - пишите, учту на будущее ;). Приятного просмотра.Жанр: RockПродолжительность: 00:03:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6172C9E1F13EB6FC615E8B4132265310BD3488DA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,26 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370684   (893417) от 29.03.2020
+###  Публикация: 1277427   (774037) от 23.01.2019
 
-Skrik - Апофеоз (COVID-19. Коронавирус, Италия) (2020) WEBRip [H.264/1080p-LQ] <Hardcore, Crust-Punk>
+Сборник клипов - Rock Ballads - Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видеоклип Skrik - Апофеоз (COVID-19. Коронавирус, Италия)
-CDA Skrik (2020) Жупелъ ЕP (Hardcore, Crust, Россия)Производство: СМЕРЧ-ИНФОЖанр: Hardcore, Crust-PunkПродолжительность: 00:03:36
+В собрание вошла классическая рокерская лирика на все времена. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00 Rock Ballads - Intro
+01 Guns N' Roses - November Rain
+02 Mr. Big - To Be With You
+03 Skid Row - Quicksand Jesus(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1E222BC7E2F4021C36C0F1DE87CF960CD884796
+magnet:?xt=urn:btih:088C2282252519BE79C052CD2381A8EE8FF5B51B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,28 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 993716   (893177) от 06.03.2016
+###  Публикация: 1015822   (771350) от 13.05.2016
 
-VA - Весенний марафон № 226: Хиты до Утра (2016) WEBRip [H.264/1080p-LQ]
+Everest of Rock - 3 (1980) WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893177.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весенние (05.03.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Guard - Give It Up (Official Video) (00:03:14)
-02. Jana Kramer - Said No One Ever (Official Video) (00:03:00)
-03. Kat DeLuna ft. Jeremih - What A Night (Official Video) (00:03:02)
-04. Nicole Cherry - Cine iubeste (Official Video) (00:03:34)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Reggae, Rap, Hip-HopПродолжительность: 01:30:15
+Так назван сборник ( Everest of Rock ) Уверен , что сборник понравится "старичкам" но и молодым ценителям современного Рока будет интересно познакомиться с классикой жанра . (Иваныч)© Часть 3.1 Slade - How Does It Feel (1974)
+2 Sweet - Action (1975)
+3 Queen - Death On Two Legs (1975)
+4 Link Wray - Midnight Lover (1975)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:39:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51C1CB2952041FC9EF3E0E4237C3D1843D363E98
+magnet:?xt=urn:btih:C0CB61EBE4AF5193DB84F488CE6A3095F01CAECA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,31 +305,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 638908   (892066) от 04.04.2013
+###  Публикация: 1391738   (771275) от 22.06.2020
 
-Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
+Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892066.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Born To Die (2011), 00:04:46
-2. Video Games (2011), 00:04:45
-3. Blue Jeans (2012), 00:04:20
-4. Ride (2012), 00:10:08
-5. National Anthem (2012), 00:07:48
-6. Summertime Sadness (2012), 00:04:39
-7. Blue Velvet (2012), 00:02:13Жанр: Indie Pop
+Профессиональный клип от Dirty Seagulls, Nils Astrologo, Gianmarco Gabriele на песню Al Bano & Romina Power - Liberta! из альбома 1987 г.
+Потрясающий «эффект присутствия». Рим мастерски снят с помощью дрона во время пандемии в апреле 2020 г.
+Отсутствие людей на улицах и площадях напоминает Апокалипсис. Знаменитая песня Liberta! в исполнении Al Bano & Romina (   Читать дальше...   )Производство: Италия / Dirty Seagulls, Nils Astrologo, Gianmarco GabrieleЖанр: PopПродолжительность: 00:04:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B8BDF7D4636A6E25A90617CA45E0402F4BAD9F0
+magnet:?xt=urn:btih:FE34075B528B9D42560B1C8C775DB769A10945F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +333,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371307   (891528) от 30.03.2020
+###  Публикация: 885842   (770671) от 08.04.2015
 
-Сборник клипов - Music 80s от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+VA - Весенний марафон № 163 / Видеоклипы (Зарубежный Коктейль Новинок) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891528.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 2 — Intro
-01. Tina Turner — Simply The Best
-02. Sandra — Maria Magdalena
-03. Ray Parker JNR — Ghostbusters(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:44
+Весенние (06.04.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A.M.R feat. Ai Takekawa - Beyond The Moon (Original Mix) (00:09:04)
+2. Aerosmith - Girs of summer (00:04:02)
+3. ATC - Thinking Of You (Official Video) (00:03:29)
+4. Blake Shelton - Sangria (Official Video) (00:03:56)
+5. Cimorelli - All My Friends Say (Official Video) (00:03:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, RockПродолжительность: 01.35.30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8D8B79DC1A88EA8F8F4F43A7FC76A3005556907
+magnet:?xt=urn:btih:AC454DA34C7FC48B825653BD25F37714F3EA8E52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,26 +363,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371285   (890090) от 31.03.2020
+###  Публикация: 1376707   (769165) от 26.06.2020
 
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip [H.264/1080p-LQ]
+ДДТ - Русская весна (2020) WEBRip [VP9/2160p] <Rock>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890090.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vermicide Violence - Coronaviscerated (feat. Jared Dines) (Chodezilla Records) COVID-19 2020
-CDA Vermicide Violence - The Praxis of ProphylaxisПроизводство: Chodezilla RecordsЖанр: Death CoreПродолжительность: 00:04:43
+ДДТ - Русская весна (2020)
+CDA: ДДТ (DDT) - Галя Ходи (2018) Navigator RecordsПроизводство: Navigator RecordsЖанр: RockПродолжительность: 00:03:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3A71A28FAE2320E8A8251047F4126F2F5AF317D
+magnet:?xt=urn:btih:4B5EE05EB01D4A680ECEFBF70CFF32163E0689FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,25 +390,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371231   (889948) от 31.03.2020
+###  Публикация: 1016522   (762638) от 16.05.2016
 
-Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) (2020) WEBRip [H.264/2160p-LQ]
+Everest of Rock - 4 (1980) WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889948.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762638.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2020 Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) [2160p]Жанр: Альтернативный РокПродолжительность: 00:05:48
+Кто то считает, что в семидесятые Рок превратился в лавку экзотических товаров с витриной во всю стену, что Рок стал коммерческой музыкой, произошел полный отход от духовных корней рока, рожденного и созданного для бунта. А кто то возразит; как раз в семидесятых Рок достиг таких высот, преодолеть которые оказалось не под силу следующим поколениям (уж слишком высоко (   Читать дальше...   )01 Foreigner - Cold As Ice (1977)
+02 Tom Petty - Fooled Again (1977)Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 01:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:786DBAB82AE68873EDA60CF87772AF2BC50C5A02
+magnet:?xt=urn:btih:48AEB0E746A60D3386160659C0D3120C7ADFA01D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,26 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370708   (889900) от 31.03.2020
+###  Публикация: 780303   (759480) от 26.04.2014
 
-Пневмослон - Катастрофический пипец (COVID-19) (2020) WEBRip [H.264/1080p-LQ] <Post-Punk>
+Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889900.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видеоклип Пневмослон - Катастрофический пипец (COVID-19)
-CDA Пневмослон (2019) КонтрэволюцияЖанр: Post-PunkПродолжительность: 00:01:45
+Жанр: Instrumental, Dubstep, RockПродолжительность: 00:04:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:125DD1A42F5CEA1B78DC4A4F872E9AEDA3658A57
+magnet:?xt=urn:btih:4A0950DD183A40F1729D688C696E7403EA8F414F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,25 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 639491   (889506) от 06.04.2013
+###  Публикация: 1522340   (758536) от 07.01.2022
 
-Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
+Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:54
+«Higher Power» — песня британской рок-группы Coldplay, вышедшая 7 мая 2021 года с их предстоящего девятого студийного альбома. Песню написали все четыре члена группы в соавторстве с продюсером Максом Мартином, сопродюсерами были Oscar Holter и Bill Rahko. Песня получила положительные отзывы музыкальной критики и интернет-изданий. Элла Кемп из журнала «NME» оценила (   Читать дальше...   )Жанр: Pop, ElectronicРежиссер: Dave MeyersАктеры: ColdplayПродолжительность: 00:04:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E7D089ADF1BD2AF339EF2F22184F6E835CB6A06
+magnet:?xt=urn:btih:ED38DFD900942F89E6E95CEE12379ADEEB3ADA16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,32 +469,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 638365   (889092) от 06.04.2013
+###  Публикация: 1280790   (758347) от 04.02.2019
 
-Сборник видеоклипов / Rap Legends (Hits 1990-1994) DVDRip [EN]
+VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889092.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник видеоклипов в стиле РЭП в хорошем качестве.1990_3rd_Bass_-_Brooklyn_Queens
-1990_Dr. Alban - No Coke
-1990_Ice_Mc_-_Scream
-1990_MC Hammer - You Can`t Touch This
-1990_Snap - The Power
-1990_Technotronic_-_This_Beat_Is_Technotronic
-1990_Vanilla Ice - Ice Ice Baby
-1991_DNA_Feat._Suzanne_Vega_-_Tom_s_DinerЖанр: Rap, Hip-HopПеревод: ОтсутствуетПродолжительность: ~02:00:00
+В наступившем 2019 году представляю всем февральский UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе в основном использованы официальные видеоролики. В двух случаях (они обозначены в треклисте) использованы официальные аудио клипы.01. Ariana Grande- 7 rings  (3:05)
+02. Ava Max  - Sweet but Psycho  (3:27)
+03. Sam Smith, Normani - Dancing With A Stranger  (2:53)
+04. Calvin Harris, Rag'n'Bone Man - Giant  (3:49)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Top40Режиссер: DifferentsАктеры: Ariana Grande, Ava Max, Sam Smith, Normani, Calvin Harris, Rag'n'Bone Man etc.Перевод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 02:24:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB1EF0FE079D4AC81F182757D53E14D4DF585EC7
+magnet:?xt=urn:btih:FB078AF30001E02BACA2EA9730BDE5735E6AEE31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +498,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640535   (888957) от 06.04.2013
+###  Публикация: 1522958   (754658) от 09.01.2022
 
-Валерия и Валерий Меладзе - Не теряй меня (2013) [H.264/1080p] WEB-DLRip
+Сборник видеоклипов (2021) WEBRip [H.264/2160p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: POPПродолжительность: 00:04:42
+Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.1.Ava Max - Everytime I Cry
+2.Becky G, Natti Natasha - Sin Pijama
+3.Benny Benassi feat. Gary Go - Let This Last Forever
+4.BLACKPINK - How You Like That(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8A3A39EB40DB14D053CEC667443E6E67098576A
+magnet:?xt=urn:btih:136207894285ADDFCF0AE349466AFC0106DE61A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,25 +527,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640130   (888941) от 06.04.2013
+###  Публикация: 781851   (752390) от 30.04.2014
 
-Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
+Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888941.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: House, Dance, Pop
+Жанр: Instrumental, Dubstep, RockПродолжительность: 00:04:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FA5278308BA4C0C699C1C3E53B51DF38C68E8F9
+magnet:?xt=urn:btih:D14BDC628A3586FB50B706A059D48F9873B71A63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,25 +553,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640743   (887230) от 07.04.2013
+###  Публикация: 663788   (751321) от 02.06.2013
 
-Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
+The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887230.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:16
+Жанр: POPПродолжительность: 00:04:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B082ED479B2B2C1F522106B79B3E7786289259D2
+magnet:?xt=urn:btih:E97828AF6C8C32FDBBF75B3833BAF5F242F40763
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +579,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640712   (887110) от 07.04.2013
+###  Публикация: 663800   (750690) от 02.06.2013
 
-Емилия - Кукла (2013) WEBRip	 [H.264/1080p]
+Винтаж - Знак Водолея (2013) [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887110.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:57
+Жанр: POPПродолжительность: 00:04:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C5522088D5E418D9BC8715D95DE24312A82DB3A
+magnet:?xt=urn:btih:483AA5E6CC8E03A37F8D2E4141EAA4930E0D3F50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,27 +605,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372108   (886991) от 02.04.2020
+###  Публикация: 663793   (750682) от 02.06.2013
 
-Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industrial Melodic Death Metal>
+Ани Лорак - Оранжевые сны (2013) [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 2015 Northern Genocide - Supernova (1080р)
-002 2019 Northern Genocide  - Genesis Vol. 666 (1080р)
-003 2019 Northern Genocide - Ikiruoste (1080р)Жанр: Industrial Melodic Death MetalПродолжительность: 00:13:17
+Жанр: POPПродолжительность: 00:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E78D1DD457E6680E3809AD1F386B42DCD433677
+magnet:?xt=urn:btih:087A024763672B1F59F6A639B9991C0991A7DC44
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,28 +631,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371795   (886980) от 02.04.2020
+###  Публикация: 323682   (746871) от 15.04.2011
 
-Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
+[FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 2015 Malevolence - Condemned To Misery (1080p)
-002 2015 Malevolence - Turn to Stone (1080p)
-003 2017 Malevolence - Slave To Satisfaction (1080p)
-004 2017 Malevolence - Wasted BreathПроизводство: MLVLTD RecordsЖанр: Hardcore ,Beatdown ,SludgeПродолжительность: 00:34:30
+Жанр: Интервью + Концерт + ВидеоклипыСубтитры: НемецкиеПродолжительность: 00:55:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C23B5B00D514514ADDEFE8AD757688DB576D71DD
+magnet:?xt=urn:btih:940C19D5E2073CC2A6EBD37CB6B5622A414FEC60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,25 +657,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 762965   (886814) от 05.03.2014
+###  Публикация: 664518   (745685) от 05.06.2013
 
-NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
+Мираж - Музыка нас связала (1989) VHSRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886814.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:17
+клип на песню "Музыка нас связала"Жанр: МузыкаПродолжительность: 00:02:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E7200EB5EE407A5B682B29351DB6842BE5904A6
+magnet:?xt=urn:btih:BB9EB6F1765988A20A6CB47AA56AED3B43EE3244
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,25 +683,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 762964   (886643) от 05.03.2014
+###  Публикация: 1216387   (744439) от 03.04.2018
 
-NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
+Океан Эльзы - Без тебя / Океан Ельзи - Без тебе (2018) WEBRip [H.264/2160p] [4K]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:03
+Украинская группа Океан Эльзы выпустила новую песню и клип под названием Без тебе.
+– Весна всегда приходит неожиданно, – прокомментировала группа Океан Эльзы премьеру клипа на официальной странице в Facebook.
+Слова песни принадлежат Святославу Вакарчуку.
+В клипе главный герой путешествует на машине по малым городам, встречая много близнецов, ищет свою родственную (   Читать дальше...   )Производство: УкраинаЖанр: RockРежиссер: Анна БурячковаСубтитры: отсутствуютПродолжительность: 00:04:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FF17BF7C87935FAC6980F64D364838104E2FBA4
+magnet:?xt=urn:btih:528C9AF85A91804ACE23C5682F31C0B9DD6D915E
 ```
 
 https://mybot314.ru/tekegram_catalog/

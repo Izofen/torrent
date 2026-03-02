@@ -1,25 +1,79 @@
-###  Публикация: 1507486   (798481) от 04.11.2021
+###  Публикация: 1122582   (798797) от 05.04.2017
 
-VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+Антон Первушин | Первые в космосе. Шаг в неизвестность (2017) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798797.jpg" />
+</div>
+
+
+###  Подробнее
+
+ХХ век останется в памяти потомков прежде всего как эпоха прорыва в космос. Полеты советских космонавтов и американских астронавтов навсегда изменили нашу цивилизацию. 18 марта 1965 года Алексей Леонов поприветствовал землян из космического пространства и, если верить хронике, благополучно вернулся на станцию. Эта небольшая прогулка длиной всего пять метров обернулась (   Читать дальше...   )Жанр: Биографии и Мемуары, История, История космонавтикиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7B830049F9EDC917876C839A1D326E1FC76C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122234   (798796) от 05.04.2017
+
+Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow (Tuff City Kids Remix) (8:11)
+ 02. Left To My Own Devices (Super Version) (5:31)
+ 03. Burn (Baba Stiltz Remix) (10:22)Жанр: House, Tech HouseПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026AF669D11A7C686CDA3758EB4CE7D677883E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122653   (798795) от 05.04.2017
+
+VA - Lotus Blossom New Age Original Mix (2017) [MP3|320 Kbps] <New Age, Ambient, Downtempo>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798481.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heavy Malyari - Spaceman (5:52)
-02. StrayLight - Chasing The Light (4:28)
-03. IDEON - The World Might End Tomorrow (Gertrudda Edit) (8:10)
-04. TrialCore - Living In Cybercity (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
+001. Midori - Faery Lore
+002. Ani Yun Wiya - Children Of The Earth
+003. Mark Eliyahu - Journey (Mehmet Gulec Remix)
+004. Calming Water Consort - Sleep Better(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 08:51:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
+magnet:?xt=urn:btih:D5E79F0556276ED96D85D2F78CAC41FC4DACFC52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507481   (798480) от 04.11.2021
+###  Публикация: 1122621   (798794) от 05.04.2017
 
-VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+Грэм МакНилл | Отверженные мертвецы (2014) [MP3]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798480.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pilotpriest - Archive Seven (5:45)
-02. STARLANDER - Station 5 (5:10)
-03. Alseph - SuperNova (3:24)
-04. GUNSHIP - When You Grow Up, Your Heart Dies (5:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
+Галактика полыхает в огне гражданской войны. Верные Императору примархи готовятся к битве с Хорусом и предательскими легионами на черных песках Исстваана. Эти темные времена предвещают еще более страшные события. Астропат Кай Зулейн случайно становится хранителем секрета, способного повлиять на ход войны и изменить будущее.Жанр: ФантастикаПродолжительность: 17:35:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
+magnet:?xt=urn:btih:382CB5129D25453B5E481407EC8F455E4F22C295
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507416   (798479) от 04.11.2021
+###  Публикация: 1122558   (798793) от 05.04.2017
 
-VA - Andrew Lloyd Webber’s “Cinderella” (Original Album Cast Recording) (2021) [AAC|~299 Kbps] <Musical>
+Марина Серова | Мистика – сестра криминалистики (2017) [FB2]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798479.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrew Lloyd Webber, Helen George - Buns 'N' Roses (7:54)
-02. Andrew Lloyd Webber - It Has To Be Her (2:30)
-03. Andrew Lloyd Webber, Carrie Hope Fletcher - Bad Cinderella (3:06)
-04. Andrew Lloyd Webber, Carrie Hope Fletcher, Ivano Turco - So Long (4:23)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:55:12
+Преступник, с которым предстоит сойтись бодигарду Евгении Охотниковой, кажется, затеял игру в чисто английское убийство – с замком, кладами и привидением. Не исключено даже, что у злоумышленника все бы получилось – в конце концов, у российских бизнесменов нет такого иммунитета против привидений, как на родине Шерлока Холмса. Один маленький просчет: тот, кто придумал (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F500C937A65E6F37EB70223F1375F2D3F5ABEAD5
+magnet:?xt=urn:btih:2B5A26D5D0264E6529502CE66C46868AD9E69BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,310 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507450   (798478) от 04.11.2021
+###  Публикация: 1507247   (798792) от 03.11.2021
 
-7000$ - Прометей (2021) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь и сейчас
-02. Хардкором жги сердца людей
-03. Я человек
-04. Бомбит(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA40FB4CD204141F4DFF18D02772D3D0E1E293A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507387   (798477) от 04.11.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''B''. Тур 4. Ливерпуль (Англия) - Атлетико (Мадрид, Испания) (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''B''. Тур 4.  Ливерпуль (Англия)- Атлетико (Мадрид, Испания) (04.11.2021)
-СУДЬЯ Маккели Данни (Нидерланды)
-Судья на линии 1: Стегстра Хессел (Нидерланды)
-Судья на линии 2: де Врис Ян (Нидерланды)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806086E48985E9943FDAD072786555FED248494B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507553   (798476) от 04.11.2021
-
-Клоун Коко и постепенное исчезновение / Fadeaway (1926) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс добавляет в свои чернила очень хитрый порошок, и Ко-Ко и Фитц должны иметь дело с объектами в их мире, исчезающими на глазах...Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские hardsubПродолжительность: 00:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169B80B313A68D846215D8BB82F5ADA29B902F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505932   (798475) от 04.11.2021
-
-The Flight of Sleipnir - 4 Albums (2014-2021) [FLAC|Lossless|image + .cue] <Stoner Metal, Doom Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voland [00:07:32]
-02. January [00:06:44]
-03. Thaw [00:06:28]
-04. Bathe the Stone in Blood [00:08:06](   Читать дальше...   )Жанр: Stoner Metal, Doom Metal, Folk Metal, Black MetalПродолжительность: 4 CD, 02:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53322275DEFB1F4AE4E01B2CE695454ACF70A2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507507   (798474) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PYLOT - Faded Light (5:34)
-02. Maxthor - Run (4:30)
-03. AM 1984 - Euphoria (4:39)
-04. SUNSET 1986 - Out Of World (3:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9398ABA06E80F4151208F06FB7E976B5275C7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507439   (798473) от 04.11.2021
-
-Валерий Духанин | Знакомство с Православием, или Начало познания духовного мира (2011) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга приоткрывает дверь в мир Православия, знакомит с основами вероучения Русской Православной Церкви. Для того, чтобы искренне верить, жить единой жизнью с Церковью, необходимо знать, понимать, что такое Православие. Эта книга ответит на многие Ваши вопросы. В Кого мы веруем? Как познать Бога? Кто такие святые? Что такое Церковь и церковные Таинства? Для чего (   Читать дальше...   )Жанр: Православие. Религиозно-просветительское изданиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8716093D852B8644F329834B7792F2618CA1A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507374   (798472) от 04.11.2021
-
-Ella Fitzgerald - Milestones Of A Jazz Legend: Sings The Songbooks (1956 - 1959) 10CD, 2021, The Intense Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798472.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 -  Sings The Cole Porter Song Book, Vol.1:
-01. All Through The Night [3:19]
-02. Anything Goes [3:24]
-03. Miss Otis Regrets [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 09:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5456D5E29604C83A0EA157FDBEB6057F2370E231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507510   (798471) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 7 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FM Attack - My Life (6:31)
-02. BMX Escape - A Date With Jody (5:16)
-03. GoodMarket - Sweet Harmony (Gertrudda Edit) (7:18)
-04. Пропаганда - Белое платье (Shreds Owl Remix) (4:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 03:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AC0C2DA716F75A90EE63AEF2345C70CB456D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507477   (798470) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 3 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Z U R E - The Future Is Now (4:06)
-02. Blaze of Gunfire - We Were So Young (Gertrudda Edit) (4:26)
-03. STARLANDER - One Last Thing (6:18)
-04. Diamond Ace - Vulnerable Now (5:21)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C010FB89EA8017F0D27E2959EAEC5413A9FC9820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507398   (798469) от 04.11.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''D''. Тур 4. Реал (Мадрид, Испания) - Шахтёр (Донецк, Украина) (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''D''. Тур 3. Реал (Мадрид, Испания) - Шахтёр (Донецк, Украина)(04.11.2021)
-СУДЬЯ Бастьен Бенуа (Мец, Франция)
-Судья на линии 1: Бертомье Орельен (Франция)
-Судья на линии 2: Пажес Бенжамен (Франция)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111FB64F595B687CD10638C1AA43DA5A62E56DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507317   (798468) от 04.11.2021
-
-PopClip 2021.11.1 [Multi/Ru]
+Permute 3 v3.7.4 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798468.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PopClip предлагает достаточно удобный способ работы с текстом в Mac OS X – такой же, как в iOS. Помимо копирования, вырезания и вставки, приложение позволяет выполнять быстрый поиск в Интернете, открывать ссылки и почтовые адреса в тексте, искать определения в словаре и даже исправлять неправильно написанные слова.
-PopClip появляется на экране при выделении мышью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: © 2021 Nicholas MooreПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4078B394C656AE3B3B3BF15F4745FBA7416B40F6
+magnet:?xt=urn:btih:21718B635985A699E5CED86CC48BCCA3299EE958
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,25 +159,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507545   (798467) от 04.11.2021
+###  Публикация: 1507103   (798791) от 03.11.2021
 
-Тилли / Tilly (1910-1912) WEBRip
+VA - New Orleans Orange: Urban Chillout Music (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798467.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В начале двадцатого века было снято почти два десятка фильмов о приключениях двух подружек, хулиганок и сорванцов, шатенки Тилли и блондинки Салли. Фильмы были чрезвычайно популярны, особенно на родине актрис, в Великобритании. Достаточно сказать, что в 1915 в Англии по опросам зрителей самым популярным актером стала Альма Тейлор (Tilly), отодвинув на второе место... (   Читать дальше...   )Производство: Великобритания, HepworthЖанр: Комедия, короткометражный, немое киноРежиссер: Хэй Пламб, Lewin FitzhamonАктеры: Альма Тейлор, Крисси Уайт, Фрэнк Дентон, Хэй ПламбПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские hardsub
+01. Chris le Blanc, Leo Zabarella - Melville Sings the Blues (Album Mix) (3:35)
+02. Schwarz & Funk - Take Me Home (Original Mix) (5:54)
+03. Soul Trend - Sunday Morning (4:27)
+04. Sandro Gibellini Trio, Sandro Gibellini - Walk on By (2:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1194B1F72039194D7DA375BDC707B2F6FD41729D
+magnet:?xt=urn:btih:F5A60ED0AA6E551562225EE56DF39C8FFB0306FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,25 +188,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507567   (798466) от 04.11.2021
+###  Публикация: 1507109   (798790) от 03.11.2021
 
-PrivaZer 4.0.33 Free + Portable [Multi/Ru]
+VA - Eivissa Orange: Urban Chillout Music (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Florito, Martine - Love Finds You (Ibiza Lounge Mix) (4:21)
+02. STJ, Liba - She Believes (Radio Version) (3:42)
+03. Chillson, Marc Hartman - Free as a Bird (Original Mix) (4:38)
+04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1380386169A6B796433C7044A89CEA6BE25BC527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507122   (798789) от 03.11.2021
+
+Aldo Romano - Threesome (2004) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abruzzi [6:02]
+02. Ghost Spell [4:58]
+03. Fleeting [8:47]
+04. Blues for Nougaro [6:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91069904F52CB29CFCB40A62DA8D1174AE67CC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507202   (798788) от 03.11.2021
+
+Nightivity - Deathsurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Male Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:29)
+02. The Curse (05:48)
+03. Annabelle (04:37)
+04. Ouija (04:03)(   Читать дальше...   )Жанр: Heavy Metal, Male Female VocalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FBB2DB1D25A82BF18035F945641C376689167E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507185   (798787) от 03.11.2021
+
+Draconicon - Dark Side of Magic (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Principium Tenebris
+02. Fiery Rage
+03. Dark Side of Magic
+04. Blackfire(   Читать дальше...   )Жанр: Power Metal, Symphonic Folk MetalПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B6DAAD5C460DC760F7183A2948703E107471D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507286   (798786) от 03.11.2021
+
+ColoFolXS 2.0.1 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798466.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Компактное приложение для раскрашивания папок.
+Основные шаги очень просты:
+1. Запустите ColoFolXS.
+2. Перетащите папку в цветную ячейку.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: TrollinПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:799520DD3F563A5618C790B68653672A64E2C91F
+magnet:?xt=urn:btih:47458E0DA6572BBF5E4B8C5385480000B8AAD24A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,28 +333,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507400   (798465) от 04.11.2021
+###  Публикация: 1507238   (798785) от 03.11.2021
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''A''. Тур 4. Лейпциг (Германия) - ПСЖ (Франция) (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+4K Video Downloader 4.18.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14F34AFD50C815B5D991B7C663EDE8122EBBB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507111   (798784) от 03.11.2021
+
+VA - Strasbourg Orange: Urban Chillout Music (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airily - That's What I Want (Seaside Remix) (4:19)
+02. Ibiza Chilled - Sunset Salinas (Original Mix) (7:06)
+03. Living Room - Slow Motion Sunset (Original Mix) (5:22)
+04. Deeparture - Dream On (Original Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D258BC3B75E92A7BDEA8D5D1C2B19E55CBD43C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507097   (798783) от 03.11.2021
+
+VA - Florence Orange: Urban Chillout Music (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giacomo Bondi - Beleza Pura (Instrumental) (5:52)
+02. Marga Sol - Temple of Love (Original Mix) (6:43)
+03. Francesca Gramegna - What Is Love (3:38)
+04. Brass - Wind of Summer (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F2606A49A7682D662009DC39A6D993C35DB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507142   (798782) от 03.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Бавария (Германия) - Бенфика (Португалия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798465.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''A''. Тур 4. Лейпциг (Германия) - ПСЖ (Франция) (04.11.2021)
-СУДЬЯ Экберг Андреас (Мальме, Швеция)
-Судья на линии 1: Джулум Мехмет (Швеция)
-Судья на линии 2: Халлберг Стефан (Швеция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:49
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Бавария (Германия) - Бенфика (Португалия)(03.11.2021)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+Судья на линии 1: Сокольницкий Павел (Польша)
+Судья на линии 2: Листкевич Томаш (Польша)(   Читать дальше...   )Телекомпания: Матч! Футбол 3Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93DD63A726E68DF31B88873CFB6A304CD85B9D3E
+magnet:?xt=urn:btih:C654F72DC58E24080576E79CF0874BD527D192D3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,28 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507395   (798464) от 04.11.2021
+###  Публикация: 1507141   (798781) от 03.11.2021
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''D''. Тур 4. Шериф (Молдова) - Интер (Милан, Италия) (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F'. Тур 4. Аталанта (Италия) - Манчестер Юнайтед (Англия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798464.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''D''. Тур 4. Шериф (Молдова) (04.11.2021) - Интер (Милан, Италия)
-СУДЬЯ Цвайер Феликс (Берлин, Германия)
-Судья на линии 1: Фольтин Рафаэль (Германия)
-Судья на линии 2: Ахмюллер Марко (Германия)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:09
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F''. Тур 4. Аталанта (Италия) -  Манчестер Юнайтед (Англия)(03.11.2021)
+СУДЬЯ Винчич Славко (Словения)
+Судья на линии 1: Кланчник Томаш (Словения)
+Судья на линии 2: Ковачич Андраж (Словения)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F86F4B92E1567F12E1805A7CF196B357433220A
+magnet:?xt=urn:btih:EF90CBB5B9226528FFF98D94D2740DF37775704E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,27 +475,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507393   (798463) от 04.11.2021
+###  Публикация: 1273865   (798780) от 04.01.2019
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''C''. Тур 4. Спортинг (Португалия) - Бешикташ (Турция) (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
 
->>Спорт и активный отдых
->>Футбол
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798463.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''C''. Тур 4. Спортинг (Португалия) - Бешикташ (Турция) (04.11.2021)
-СУДЬЯ Карасев Сергей (Москва, Россия)
-СТАДИОН «Жозе Алваладе» (Лиссабон) Зрителей: 40835Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:20
+01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
+02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
+03. Vanco, Zano-Ms Jailer (feat. Zano)
+04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A55D7A45890D36ACFC1F501392C807D80E31A567
+magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +504,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507403   (798461) от 04.11.2021
+###  Публикация: 1273892   (798779) от 04.01.2019
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''C''. Тур 4. Боруссия (Дортмунд, Германия) - Аякс (Голландия) (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin Records [FLAC|Lossless|image + .cue] <Swing, Violin Jazz>
 
->>Спорт и активный отдых
->>Футбол
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798461.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''C''. Тур 4. Боруссия (Дортмунд, Германия) - Аякс (Голландия) (04.11.2021)
-СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
-Судья на линии 1: Бэрт Стюарт (Англия)
-Судья на линии 2: Беннетт Саймон (Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 3Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:36
+01. Quando, Quando, Quando [4:26]
+02. The Song Is You [5:15]
+03. Polka Dots and Moonbeams [4:25]
+04. Czardas [4:19](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:17:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E76447AC932240D79442C626A9D01BD3C9761471
+magnet:?xt=urn:btih:72681D539205A13B685345986C8EDAFCA4DA5FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507406   (798460) от 04.11.2021
+###  Публикация: 1273827   (798778) от 04.01.2019
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+It Hugs Back - Inside Your Guitar (2009) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock>
 
->>Спорт и активный отдых
->>Футбол
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798460.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (04.11.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:47
+1. Q 4:32
+2. Work Day 2:59
+3. Don't Know 3:42
+4. Forgotten Song 4:01(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C3DFD84C51046D7391EB894D64E219593CB26E3
+magnet:?xt=urn:btih:654024265AC7B8B69B59E902E007288F14D84731
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +562,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507519   (798459) от 04.11.2021
+###  Публикация: 1273977   (798777) от 04.01.2019
 
-VA - A Synthwave Panorama Vol. 22 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Electro, Broken Beat, Tech House>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798459.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AWITW - Alchemy (5:41)
-02. Lifelike - So Electric (Nabroc Remix) (3:31)
-03. CRASPORE - Iskra, Vechnostь, Snovidenie (Gertrudda Edit) (10:19)
-04. Massive Z - Synth Wave Berlin (Gertrudda Turbo Mix) (18:42)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:14:46
+01. Krupp (04:17)
+ 02. Spring Break (05:18)
+ 03. Krupp (Minilogue Remix) (09:45)Жанр: Breakbeat, Electro, Broken Beat, Tech HouseПродолжительность: 00:19:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50B0087FDFF3D5035A13D6D36F3A0E62D151DDCD
+magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,25 +590,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507437   (798458) от 04.11.2021
+###  Публикация: 1273970   (798776) от 04.01.2019
 
-Вечер в опере / A Night at the Opera (1935) BDRip [H.264/720p] [MVO]
+310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798458.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сценарий фильма, основан на рассказе Джеймса Кевина Макгиннеса. Ловкач Отис Дрифтвуд придумал способ прикарманить денежки богатой вдовы, делами которой он управлял. Вдовушка спала и видела, как бы пробиться в высшее общество, и Отис подговорил её вложить круглую сумму в нью-йоркскую оперу. Вместо прославленного тенора Ласпари Отис нанял за «десятку» певца из хора, (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: мюзикл, комедияРежиссер: Сэм Вуд, Эдмунд ГулдингАктеры: Граучо Маркс, Чико Маркс, Харпо Маркс, Китти Карлайл, Аллан Джонс, Уолтер Вулф Кинг, Сиг Руман, Маргарет Дюмон, Эдвард Кин, Роберт Эмметт О`КоннорПеревод: многоголосый профессиональныйСубтитры: русские, английские (SDH)Продолжительность: 01:31:11
+01. SMoKE DoGS Theme (04:33)
+02. Put Down That Phone (03:27)
+03. Amaroq (05:00)
+04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54A773DAA33B762E9DED8CF263FE8053A394A74F
+magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,28 +619,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507443   (798457) от 04.11.2021
+###  Публикация: 1273912   (798775) от 04.01.2019
 
-VA - A Synthwave Panorama Vol. 2 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+They Might Be Giants - The Escape Team (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798457.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pilotpriest - Miracle Mile (Gertrudda Edit) (7:45)
-02. Mr. McNoggin - Desire (4:11)
-03. AM 1984 - Red Sunset (4:55)
-04. N-THONY-N - Bells (6:35)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:11:10
+01. Jackie the Clipper
+02. Chip the CHiP
+03. Burnice
+04. Dr. Sy Fly(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:23:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E9F8B6E929A77162D5D0A43554D1B3A781A765B
+magnet:?xt=urn:btih:156B1E65B9D325CF9BB185526C76172BE5A1DDFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,28 +648,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507294   (798456) от 04.11.2021
+###  Публикация: 1273986   (798774) от 04.01.2019
 
-VA - Funky House: Sunday Mixtape (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
+Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798456.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Soul Power - Supa Fly
-002. Frank Montana - Rokit
-003. Guillaume - The Chase
-004. Anacca Jez - Cntrol(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:22:52
+01. Bugsmasher (04:50)
+ 02. Katacomb (05:43)
+ 03. Oceans 1300 (05:59)
+ 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F943DEACC3CE62AE6198F6637BE7B33A1B8BE130
+magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,28 +677,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507347   (798455) от 04.11.2021
+###  Публикация: 1273919   (798773) от 04.01.2019
 
-Бизнес-Мастер, Константин Бордунос и др. | MLM (2008) DVDRip
+Kryder - Kryteria Radio 167 (Best Of 2018) 2019-01-02 [MP3|192 Kbps] <House, Tech House, Tribal House>
 
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798455.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бизнес-семинар, лекция, для работников MLM об особенностях создания и управления своей структурой распространения продукции
-Содержание релиза:
-1. Контур опыта
-2. Физиологические причины раннего ухода из бизнеса членов вашей структуры МЛМ (часть 1)(   Читать дальше...   )Производство: Бизнес-МастерЖанр: Бизнес семинарПродолжительность: 04:27:35
+01. FISHER - Losing It (Dave Winnel For The Win Remix)
+02. Safri Duo - Played A Live (The Bongo Song) (Massivedrum 2K18 Remix)
+03. Agent Greg & Dim Chord - RYDM
+04. Sunnery James & Ryan Marciano x Nicola Fasano & Adam Clay - Born Again (Babylonia) (Festival Mix)(   Читать дальше...   )Жанр: House, Tech House, Tribal HouseПродолжительность: 01:37:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3778E017B9F80A07D47E1641A7D846BBC9B8584
+magnet:?xt=urn:btih:D6C1CF086F91EF876445226F8EF1C8C4BA5E41BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273856   (798772) от 04.01.2019
+
+Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corkscrew (09:43)
+ 02. Girl With The Silver Eyes (09:40)
+ 03. Remedios The Beauty (15:37)
+ 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
 ```
 
 https://mybot314.ru/tekegram_catalog/

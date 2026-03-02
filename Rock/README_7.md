@@ -1,3 +1,61 @@
+###  Публикация: 1479978   (1009302) от 26.06.2021
+
+Motley Crue - Theatre of Pain (2021) 40th Anniversary Remastered [MP3|320 Kbps] <Heavy Metal, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - City Boy Blues (40th Anniversary Remastered) [00:04:08]
+02 - Smokin' In The Boys Room (40th Anniversary Remastered) [00:03:27]
+03 - Louder Than Hell (40th Anniversary Remastered) [00:02:31]
+04 - Keep Your Eyes On The Money (40th Anniversary Remastered) [00:04:38](   Читать дальше...   )Жанр: Heavy Metal, Glam MetalПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608A434E87F4DC6352F3BF08D16F63F0B857BE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480055   (1009284) от 26.06.2021
+
+Arthur Brown's Kingdom Come - Eternal Messenger: An Anthology 1970-1973 (5 CD) (2021) [MP3|320 Kbps] <Psychedelic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time (Live, BBC Radio 1 "Top Gear", 23 March 1971) [00:04:49]
+02. Sunrise (Live, BBC Radio 1 "Top Gear", 23 March 1971) [00:07:19]
+03. Eternal Messenger (Live, BBC Radio 1 Mike Harding Show, 15 June 1971) [00:07:58]
+04. Galactic Zoo (Live, BBC Radio 1 Mike Harding Show, 15 June 1971) [00:04:20](   Читать дальше...   )Жанр: Psychedelic Progressive RockПродолжительность: 5CD, 05:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9522315C24F0E323C23E2E500A70C8487AEF359D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480073   (1009181) от 27.06.2021
 
 De Arma - Strayed in Shadows (2021) [MP3|320 Kbps] <Gothic Rock, Post Rock>
@@ -687,70 +745,6 @@ Deep Purple - Live in London 2002 (2021) Remastered [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7696739029878C0E13614E1A1D1874090DF963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352274   (1001277) от 13.01.2020
-
-Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Progressive Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Morning (5:44)
-02. In a Sacred Manner (4:40)
-03. Sundance Chant (4:10)
-04. Young Coyote (3:18)(   Читать дальше...   )Жанр: Progressive Rock, KrautrockПродолжительность: 01:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC16946A98EFA3FF3258943EBC94538CC37725A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597302   (1000689) от 01.01.2013
-
-Кам'яний Гість - 60/70 (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Під плач гітари моєї #1
-2. Там вдалині
-3. Люди дивні
-4. Мерседес Бенц
-5. Зафарбую чорним
-6. Ми знали
-7. Вітер десь носить
-8. Леді в чорному
-9. Храм короля
-10. Ти скажи мені, друже…(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919C37B41A520137CBF5E33AB8D9E9130EC50854
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1074305   (243936) от 19.11.2016
+
+VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
+02.Calvin Harris - My Way 3:39
+03.Bob Sinclar & Daddy's Groove - Burning 2:51
+04.Tujamo - Tujamo - Boom! 3:00(   Читать дальше...   )Жанр: DanceПродолжительность: 03:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56486034301BCBD5C67779800058A5FAEE28A47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567612   (243867) от 03.08.2022
+
+VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аракс, Геннадий Трофимов, Феликс Иванов - Эпилог (из мюзикла Звезда и смерть Хоакина Мурьеты (01:48)
+02. Поющие Гитары - Вечерний город (01:35)
+03. Нина Урбано, Тайфуны - Циганерия (04:08)
+04. Оркестр Госкино СССР - Модный танец (из к ф Служебный роман) (02:25)(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623099   (243857) от 31.03.2023
+
+Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Life
+02. I M Alone Wolf
+03. Hear My Voice
+04. Control(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714D5BA0004AA2AFB2338435C37567727603A29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567607   (243851) от 03.08.2022
+
+VA - Summer Light Deep (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faraon - Dreams You Don't Forget (Original Mix) (7:01)
+02. Nefretle - Infinity (Original Mix) (2:28)
+03. Nando Fortunato - New Love Life (Original Mix) (4:16)
+04. Marc Philippe, Pete Bellis & Tommy - Wanna Dance In The Rain (Original Mix) (3:41)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AF9B68B872086D934FF274209A91E0F3F0ED78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542022   (243850) от 05.04.2022
+
+VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaymes Young - Infinity (3:57)
+02. GAYLE - abcdefu (2:56)
+03. ARTIK pres.ASTI - Гармония (2:54)
+04. Alesso feat. Katy Perry - When I Am Gone (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA096D5FAF65FB36AB45BA9BAD4C6A72FDB2069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623157   (243842) от 31.03.2023
+
+Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark
+02. Empty Heart
+03. Dark Sun
+04. Next No You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7847F951CBD923D6F99EC15D7DB69409EABB718E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622942   (243796) от 31.03.2023
+
+VA - Compilation  part 16 Electronic (2023) [MP3|224-320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adik - Miami
+02. Gabriel Moe - Strings
+03. Aykan Emir - Infinity
+04. Neuron - Feel It(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFE5F24C1C6E72648AE8E33916A6B367FBADA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076391   (243766) от 26.11.2016
 
 VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
@@ -542,209 +745,6 @@ VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F1A495AEF05B7A697BFD4DCAC4BBB66469FE783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539398   (243224) от 27.03.2022
-
-VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk Songs>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пополните свой музыкальный кругозор вместе с 32-м релизом проекта "National Pop Dance Music". Плейлист представляемого лонгплея включает в себя 150 треков попсово-танцевальной направленности со всех сторон света.001. Najoua Belyzel - Curiosa
-002. Tocadisco - Tanz Mit Mir
-003. Zeitflug - Tausendmal Du
-004. Christiane Vallejo - Assassins(   Читать дальше...   )Жанр: Pop, Dance, Folk SongsПродолжительность: 08:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B3BFCD4DEAAD1EDB3B93F543C45245A4B72DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539375   (243200) от 27.03.2022
-
-VA - The Synthpop Disco (2022) [MP3|320 Kbps] <Synthpop, Electronic, Electro Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заряжайтесь позитивом и яркими эмоциями с музыкой электронного диско сборника под наименованием "The Synthpop Disco". Микс, сочетающий в своем творчестве танцевальную электронику с живым вокалом, и всё это - под соусом лёгких попсовых текстов с узнаваемыми нотками старого доброго диско!001. Brigado Crew - Time Moves On
-002. LP Giobbi - Take My Hand
-003. Les Loups - Enough
-004. Santoro - Lover Message(   Читать дальше...   )Жанр: Synthpop, Electronic, Electro PopПродолжительность: 08:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D889B543F621E8D26DEE1690C948C74B97CAE693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539592   (243153) от 27.03.2022
-
-VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miksu / MacLoud & T-Low - Sehnsucht
-02. Glass Animals - Heat Waves
-03. GAYLE - abcdefu
-04. Civo - Weg von mir(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC41C747129B1C8268D9E80D21F3555ADA04416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568199   (243137) от 07.08.2022
-
-VA - Шансон 2020 Музыкальный хит-парад [часть.02] (2022) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sevenrose  - Алая Роза (04:31) 2022
-02. Sevenrose  - Моя Звезда (04:20) 2022
-03. Sevenrose  - Проводи Домой (04:10) 2022
-04. Sevenrose - Прощайте, Голуби (03:47) 2022(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDD0253DE4FDF5040BFA190CB68092BBF3D7A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079433   (243136) от 04.12.2016
-
-VA - Best Chillout Vol.21 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.1Touch - Time Has Chosen Us  (Original Mix) 4:16
-002.2X2A - Saint (Original mix) 3:30
-003.Alison Wonderland & M - Phazes - Messiah (Original Mix) 3:44
-004.Alluxe feat. Zosia - Hold On (Original mix) 4:05(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5B54545F79DAF67838C159ED82DADA489BCB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456339   (243099) от 22.03.2021
-
-VA - Beatport Clubbing Techno: Electro Sound Pack #260 (2021) [MP3|320 Kbps] <Club Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите иметь в своём распоряжении сборник самых популярных хитов электронной сцены и не тратить время на поиски нужных композиций в сети Интернет? Предлагаем Вам скачать мега-сборник, состоящий из 120 хитов со всего мира, некоторые из которых уже не новые, но до сих пор звучат на различных радиостанциях и не перестают обсуждаться слушателями.001. Meither - Losy
-002. Subclass 801 - Eclectus
-003. Guillaume Leerdam - Conjunction
-004. Sev Dah - Daimonic(   Читать дальше...   )Жанр: Club Techno, Tech HouseПродолжительность: 12:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E00D5F6BA17B3FF2F5B059673589697FE09C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456345   (243075) от 22.03.2021
-
-VA - Beatport Electro House: Sound Pack #259 (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите танцевальную музыку? Но после работы так не хочется идти в клуб, а в выходные слишком много других дел? Тогда клубная музыка сборника 259-го релиза от Beatport спасет ваше положение. Сто двадцать ярких танцевальных треков сборника разукрасит Ваш вечер всеми цветами радуги и подарят массу положительных эмоций!001. Sammy Deuce - Here Come The Horns
-002. Ashibah - Suave
-003. Rio Dela Duna - Say It
-004. Daz I - Kue- K A T H Y(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 12:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BC8787B22583578F1EB37E93794B7ABF20C1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

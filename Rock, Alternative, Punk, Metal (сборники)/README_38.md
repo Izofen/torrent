@@ -1,3 +1,32 @@
+###  Публикация: 1083993   (220830) от 18.12.2016
+
+The Savage Rose - Her Story (Compilation) 2CD (2016) [MP3|320 Kbps] <Progressive rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice Of Revolution
+02. Listen to This Tune From Mexico
+03. Where Have All The Flowers Gon
+04. Help The Lonely Child(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61EF7234F47EB6BE6D317C845501720F96AA614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084161   (220402) от 18.12.2016
 
 VA - Alternative Classic Rock (2016) [MP3|320 Kbps] <Alternative, Progressive, Hard Classic Rock>
@@ -716,35 +745,6 @@ Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228B9A1640ED38C1BF75378C8084B9806E46AC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602550   (204393) от 06.01.2023
-
-VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Йорш - Половинки (3:25)
-002. Nagart - Сирена (4:15)
-003. Эпидемия - Письмо Ведьмаку (5:37)
-004. 25/17 - Остаться (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E80F6435977DD0EA1E6982AB84AD0EFFD40F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

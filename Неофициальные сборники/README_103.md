@@ -1,3 +1,206 @@
+###  Публикация: 1101937   (892897) от 08.02.2017
+
+VA - Полный отрыв. Зимние хиты выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Маша Ru - Ноль-Ноль 3:18
+002. Michael Buble - Take You Away 2:53
+003. Прогульщики - We Are Young 4:03
+004. Anthony El Mejor Vs. Dj Denis Rublev - Ласковая Моя 5:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9EB8D2A0702094AA42E3DEB887B361098830F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101872   (892868) от 08.02.2017
+
+VA - Extreme Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892868.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 40 Watt Sun - Beyond You 9:40
+002. 40 Watt Sun - Stages 16:13
+003. Crowbar - Embrace The Light 4:22
+004. Fallen Idol - The Boy And The Sea 6:32(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 18:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1D7E71134147DAE34E19B7C90D4A84EE3D06B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101882   (892843) от 08.02.2017
+
+VA - Acoustic Covers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah Dorman - Pumped Up Kicks - Acoustic Version
+02. Shannon & Keast - Crazy in Love - Acoustic Version
+03. Alice Lamb - I Can't Make You Love Me - Acoustic Version
+04. Karizma Duo - Ain't Nobody - Acoustic Version(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775BCEB6A5F42F57B85BF5941B00BFD25931A6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101851   (892831) от 08.02.2017
+
+VA - Heavy Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 13Tries - Our Father 3:55
+002. 69 Chambers - Your Fool 4:25
+003. Adrenaline Mob - Undaunted 4:45
+004. Age Of Artemis - You'll See 3:03(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 12:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A98A3F6B675945994E97FC202A96D84456802B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101819   (892784) от 08.02.2017
+
+VA - Indie & Soft Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bear Hands - Too Young 3:45
+002. Birdy - Wild Horses 3:02
+003. Broods - Couldn't Believe 4:04
+004. Broods - Hold The Line 3:33(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic RockПродолжительность: 06:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2AE2F1475A5549A3E9EC3415DB3069F22D35E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101805   (892782) от 08.02.2017
+
+VA - Gothic Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892782.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bliss In The Abyss - Tales Of Time 4:40
+002. Cascade - Mental Effort 3:53
+003. Circle Unbroken - Vampire 3:27
+004. Dark Sarah - Ash Grove 4:13(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 07:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEEF882A493EEE9AEECB8C400AC4995C6E32C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101842   (892756) от 08.02.2017
+
+VA - Nu Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alter Bridge - The Writing On The Wall 4:28
+002. Annisokay - Blind Lane 3:57
+003. Any Given Day - Hold Back The Time 4:44
+004. Alter Bridge - Crows On A Wire 4:27(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AE88988292743B74D48CF1F330ABEB174D88F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869242   (892731) от 14.02.2015
 
 VA - Лучшие песни о Любви в День Святого Валентина! (2015) [MP3|320 кб/с]<Pop, Dance>
@@ -542,209 +745,6 @@ VA - Милым дамам к празднику весны (2016) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:856898FAFD325C7494054520C1A3A12714BC781E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994199   (891644) от 07.03.2016
-
-VA - Ibiza Dance Sensation (2016) [MP3|320 кб/с] <Soulful, House, Funky, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankyboy - You Make Me (Original Mix) 05:00
-02. Escadia - Far Cry (Original Mix) 06:48
-03. Delighters, Viofly & Stev Dive - My Music (Original Mix) 05:01
-04. Yanter - Down Dugs (Original Mix) 05:21(   Читать дальше...   )Жанр: Soulful, House, Funky, Nu DiscoПродолжительность: 02:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E590AE97341FF0617FB7909F1B0820EDDA676031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994346   (891616) от 07.03.2016
-
-VA - Star Hit. Самая желанная (2016) [MP3|192 kbps - 256 kbps] <Pop, Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891616.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Бандера - Самая желанная
-002. Владимир Асмолов - Рядом быть хочу
-003. Любовь Успенская - К единственному нежному
-004. Гости из будущего - Самый любимый враг(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 06:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C13D7D33BADDD4F017077D179A4A9B94D88AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993801   (891612) от 07.03.2016
-
-VA - Судьба злодейка (2016) [MP3|224-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891612.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жека - Шуршу ля фам
-002. Иван Кучин - Судьба злодейка
-003. Трофим - Густо-не пусто
-004. Трофим - Горько(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7721F87C2EE87F27FAA9FC7A766019F31A7D1BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994081   (891605) от 07.03.2016
-
-VA - Electro Life 41 (by ZiP)(2016) [MP3|320 kbps]<Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello (Rob & Chris Remix)
-02. Aerosoul vs. Aruna - Sunrise (Original Mix)
-03. Bali Bandits - Mr.Meow (Extended Mix)
-04. Carlos Jean & Aqeel - Movin Up (Original Mix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Electro Progressive, DubstepПродолжительность: 02:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64E2E323E160717B88E5B8EDDDAA3E7C5054159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994334   (891600) от 07.03.2016
-
-VA - Душевный шансон Любимая женщина (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Михаил Бублик - Музыка Про Нее.mp3
-002.  Александр Ягья - Любимая Женщина.mp3
-003.  Александр Бешеный И Надежда Шеина - Без Тебя.mp3
-004.  Сергей Вольный - До Фонаря.mp3(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD57CED12045A7CD83B305BF8726726577459E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994177   (891599) от 07.03.2016
-
-VA - Isle Ibiza 2 Grooves White (2016) [MP3|320 кб/с] <Future House, Tropical, UK Garage, Bigroom, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891599.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kaskade feat Kolaj - Whatever (Neus Remix) 03:54
-002. Noisy Bears - Hold You (Feat SevenEver) (Original Mix) 06:54
-003. Gestort Aber Geil & Marc Narrow - geh nicht weg (extended mix) 04:41
-004. Aki - Heroin (Club Mix) 03:39(   Читать дальше...   )Жанр: Future House, Tropical, UK Garage, Bigroom, Nu DiscoПродолжительность: 09:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4293611B2300902F4BF0DDBC27E0385B64C415D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371213   (891579) от 30.03.2020
-
-Deep Forest - 100% Deep Forest (2020) [MP3|320 Kbps] <Alternative, Enigmatic, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anasthasia
-02. Bohemian Ballet
-03. Marta's Song
-04. Gathering(   Читать дальше...   )Жанр: Alternative, Enigmatic, New AgeПродолжительность: 03:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA39BD071BEE7C7B56314252E47230314067F69
 ```
 
 https://mybot314.ru/tekegram_catalog/

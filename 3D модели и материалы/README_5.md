@@ -1,108 +1,3 @@
-###  Публикация: 1489556   (925223) от 16.08.2021
-
-3D модели - Hum3D - Skoda Superb (B6) Combi 2011 [V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925223.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Skoda.Формат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D2566BB6701B8421A75D6E892E08B9AE74855F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489567   (925221) от 16.08.2021
-
-3D модели - TurboSquid - Iveco EuroCargo Double Cab Chassis Truck 2008 - 1266903 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925221.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки IvecoФормат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778B81914DCCDDA51D0CD642E56692A0D08376B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489425   (925199) от 16.08.2021
-
-3D модели - Hum3D - Peterbilt 357 Day Cab Chassis Truck 2006 [V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, MB, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925199.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Peterbilt.Формат: V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, MB, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C3F6147C46B0578EDADC755095CE2B8FA7AEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366465   (923383) от 11.03.2020
-
-3D модели - 3DDD - 3D Panel - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57F7A3098B17921846C68B3C38F55148A7256BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366471   (923376) от 11.03.2020
 
 3D модели - Evermotion - Archmodels vol. 119 [V-Ray|*.max]
@@ -673,6 +568,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39396FA69668C6A009AEE07276A3A8475E3B7008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370793   (894814) от 28.03.2020
+
+3D модели - Hum3D - Peterbilt 330 Chassis Truck 3-axle 2003 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894814.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C831227B46D18540D07B395067A84946F3B719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370703   (894806) от 28.03.2020
+
+3D модели - TurboSquid - Maserati Levante S Q4 GranSport 2019 - 1341071 [V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894806.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  MaseratiФормат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D77D7D70B9BFE210DEC31D9A09B93F1F69AB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370813   (894801) от 28.03.2020
+
+3D модели - Hum3D - Peterbilt 340 Dump Truck 2009 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894801.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C1CC9C38A5CE73FE8D2823926C02E1AE3F7097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370679   (894776) от 28.03.2020
+
+3D модели - 3DExport - Kitbash268 piece - part-1 - 130648 [MAX, FBX, OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокие и низкополигональные элементы для ZBrush кистей - 268 штукФормат: MAX, FBX, OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050500EBC2BC281C9188727E12E24E66B8F941E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

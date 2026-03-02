@@ -1,3 +1,206 @@
+###  Публикация: 1063569   (432682) от 17.10.2016
+
+VA - Осенний позитив №2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432682.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.30.02 - Я Верю
+002.Aaron Pfeiffer - Don’t Call This Us
+003.Amanda Alexander - Anytime
+004.Andreas - Нас Нет(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756AC6E1661F2B7F7C0E45D5BE02AE56545B0C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165572   (432580) от 13.09.2017
+
+VA - Deep House Collection Vol.135 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abriviatura IV - Down Down Down (Original Mix) 6:12
+002. Abriviatura IV - Take Me (Original Mix) 5:58
+003. Alaine, Diez Anders - If I Try (Original Mix) 4:25
+004. al l bo - Love Affect (Gary Taboo Instrumental Remix) 6:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81392DDDEB9ED218FD600575BCBD7897925237C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063764   (432522) от 17.10.2016
+
+VA - Отдыхаем Душой На Радио Шансон 2 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432522.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктория Калистратова - Простая Девчонка
+002. Геннадий Парыкин - Миши Круга Звезда
+003. Валерий Козьмин - Свиданка С Сыном
+004. Валерий Юг - Гуляй Гуляй(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60F4EF58672BCFC5266650A377FD6C71C5817A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707760   (432449) от 07.10.2013
+
+VA - Лирика шансона 2 (2013) [MP3|320 кб/с]<Шансон, авторская песня, поп>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виктор Петлюра - Осень постучится на порог
+02. Весна - В городе герое
+03. Алексей Брянцев и Елена Касьянова - Кусочек счастья
+04. Сергей Сердюков - Одна такая(   Читать дальше...   )Жанр: Шансон, авторская песня, попПродолжительность: 05:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07797D7EB2922AF6C28C8CC708FF50D0749E8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063672   (432389) от 17.10.2016
+
+VA - Dance exclusive №8 (2016) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432389.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Parker - Beautiful Love
+002. TORI - The Full Moon
+003. Alex Versetta Feat. Dj Agios - Fortuna (Original Mix)
+004. Inna - Say It With Your Body(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 09:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212A020A0DEC20F53D099C3736270AE36DBCADED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063563   (432377) от 17.10.2016
+
+VA - 100 хитов от Hit FM. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes - No Promises
+002. Олег Кензов - Номером Один
+003. Саша Алмазова & Non Cadenza - Неинтересно
+004. Stephen - Sincerely(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5758C5AAD348D64A86D1F70BBCCFA0308C64353C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165498   (432336) от 13.09.2017
+
+VA - Need For Speed Vol.9 (2017) [MP3|320 Kbps] <Hands Up, JumpStyle, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432336.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Damn-R - Stay (Another Day)  3:57
+002.  Ian Van Dahl - Reason (C. Baumann Oldschool Remix)  5:57
+003.  Dash Berlin feat. Chris Madin - Silence In Your Heart (UltraBooster Bootleg Mix Edit)  3:18
+004.  MC Sar & The Real McCoy - Another Night (C. Baumann Refreshed Remix)  4:50(   Читать дальше...   )Жанр: Hands Up, JumpStyle, DanceПродолжительность: 07:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E14ADB53A2E8CD914BCAA54C1C6967D4F66FEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165581   (432327) от 13.09.2017
 
 VA - The World of Enigmatic Melody (2017) [MP3|256-320 Kbps] <Enigmatic, New Age, Electronic>
@@ -553,236 +756,6 @@ VA - Megadance 2015.3 (2015) [MP3|320 кб/с]<House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F24DA2BE980228EE1E24537DE137A27B675D0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555648   (431606) от 03.10.2012
-
-VA - World Romantic Songs (2CD) (2012) [MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431606.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Bee Gees - How Deep Is Your Love
-02. Uriah Heep - Lady In Black
-03. Scorpions - Always Somewhere
-04. Mr.Big - Wild World
-05. Jason Donovan - Saled With A Kiss
-06. Joe Cocker - Tonight
-07. Lauren Cristie - Colour Of The Night
-08. Red Hot Chili Peppers - Californication
-09. Whitesnake - Is This Love(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:59:15
-01. Metallica - Nothing Else Matters
-02. Rednex - Wish You Were Here
-03. Chris Isaak - Wicked Game
-04. The Beloved - Sweet Harmony
-05. A-Ha - Summer Moved On
-06. Bon Jovi - Thank You For Loving Me
-07. Nazareth - Love Hurts
-08. Kingdom Come - What Love Can Be
-09. Guns N'roses - November Rain(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD013EEDDDF975699BD6599243D4C159A6AFE5A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555638   (431602) от 03.10.2012
-
-VA - Эксклюзив осенних хитов (2012) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alena Barcelona feat. GTM - life - Ты не знаешь слова Нет (Ночной Мир Project Club Mix)
-02. Олеся Астапова - Я И Ты (Версия 2012)
-03. The Scene & Selena Gomez - Love you like a love song (The Alias radio edit)
-04. DJ Niki feat. Soda - Она Не Ты (Radio Edit)
-05. Точка G Feat. Funky Flo - Я Убита, Ты Попал (Dance Version)
-06. Инфинити - Другая (Tony Kart & Andy Groove feat. DJ Pavel Velchev Remix)
-07. Градусы - Время мое
-08. Soda - Разлука
-09. Clark Owen feat. Лена Катина - Melody
-10. Юлия Беретта - Такси(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AA23FF39274F91D56C4CAF4AEAF44154923BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945773   (431576) от 11.10.2015
-
-VA - Музыкальное свежье русский выпуск 2 (2015) [MP3|128-320 кб/с]<Pop, Rock, Шансон, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ChipaChip, Зомб, TeeN - Визави (03:37)
-02. Reflex - После Тебя (03:25)
-03. T-Killah - Привет Как Дела (03:37)
-04. Андрей Леницкий - Кто Тебе Нужен (03:18)(   Читать дальше...   )Жанр: Pop, Rock, Шансон, RapПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E62C08B72516ADF4AFEB8D48ED2D3E575D99D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945778   (431574) от 11.10.2015
-
-VA - Cocktail new music №9 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431574.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Faby Jackson - Dance On Me (Radio Edit)
-2.OMI - Cheerleader
-3.Zedd Feat. Jon Bellion - Beautiful Now (Zonderling Remix)
-4.Alvaro Corz - My Head (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4961805E96C8AE09B2209854E0C92CF7ED41CE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323829   (431475) от 06.09.2019
-
-VA - Осенняя свежая 30-тка (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431475.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.ARCHI - Тобою покалечен (3:28)
-2.Avezza - Заберу (3:40)
-3.BOCHA - Невыносимо (3:05)
-4.Goody - Panamera (Frost & Ponamer Radio Remix) (3:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9B3783F2C9C8F5F73AAACB61388091E00D3AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410909   (431433) от 23.09.2020
-
-VA - New Age Style - Enigmatic 31 (2020) [MP3|320 Kbps] <Electronic, New age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Voyage (Enigmatic Spirit Mix)
-02. Salvador Candel - El ritmo de la luna
-03. Nonu Iazabo - Voladora
-04. Enigmatic Hits - The Temptation in Madrid(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 02:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76593168DAD8969AB00EB4A7F0EC38B8E273E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555651   (431351) от 03.10.2012
-
-VA - Инструментальная музыка (2012) vol. № 95 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.Goya - Try A Little Tenderness
-02. Gibb - How Deep Is Your Love
-03. Kajiura Yuki - Will
-04. Mario Battaini - Donde Estsas Corazon
-05. G.Marradi - Greatest Love
-06. Анс. Мелодия - Грибной дождик
-07. G.Zamfir - Wedding Song
-08. Karunesh - Zensual
-09. DJ RasPutin - Катюша
-10. J.Last - Reflections(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF02C7FEC5BD1DF5E9F9705C69F76BFEF1704B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

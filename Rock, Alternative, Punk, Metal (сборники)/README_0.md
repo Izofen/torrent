@@ -1,3 +1,32 @@
+###  Публикация: 1609741   (1043140) от 04.02.2023
+
+VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043140.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Black Keys - Lonely Boy
+002. Frank Turner - The Work
+003. The Relentless - Lost In Control
+004. Jeff Lynne's Elo - Losing You(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610383   (1042436) от 07.02.2023
 
 VA - Impressive Sound 2022.2: Volume II (2022) [MP3|320 Kbps] <Technical death metal, progressive black metal, deathcore>
@@ -716,35 +745,6 @@ VA - Glam Rock 1970 - 1976 (2021) 5CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FF32D684EF04594CB843CF965C60760CC24A655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449710   (1029520) от 23.02.2021
-
-VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Might Just Take Your Life (Remastered 2005)
-02. The Lachy Doley Group - Make or Break
-03. Santana - Oye Como Va
-04. Glenn Hughes - Steady(   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 04:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FCE9F75BF1D4177F9DDA659420105E09AE2AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

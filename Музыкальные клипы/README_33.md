@@ -1,22 +1,25 @@
-###  Публикация: 577916   (358044) от 19.11.2012
+###  Публикация: 739055   (147959) от 27.12.2013
 
-Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
+Сборник клипов - VA - Various Music part. 49 (2013) WEBRip 720p, 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358044.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+1. Ahmed Chawki feat. Pitbull and Mandinga - Habibi I Love You 1080p (3:52)
+2. Antonia - Marabou (Madalin Sichitiu Remix Edit) (VJ Tony Video Edit) 1080p (3:25)
+3. Bad Girl Takeover (ft. DJ Khaled & Meek Mill) 1080p (3:36)
+4. BASTO - Live @ Starfloor 2013 (Paris) 1080p (13:42)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CDEA2F3A68C4C92CE99E6A651E6EBC29E1C6412
+magnet:?xt=urn:btih:04586E8E76383A6B42E701B5DA8F4B1194E65A20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577730   (358040) от 19.11.2012
+###  Публикация: 1015394   (147953) от 24.12.2018
 
-ПРЕМЬЕРА! Анастасия Стоцкая - Преступник (2012)  [H.264/1080p] HDTVRip
+Нюша - Сборник видеоклипов (2009-2018) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358040.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+1.  Больно
+2.  Вою на луну
+3.  Выбирать чудо
+4.  Выше(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:57:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA4C4415D7F5BD586D6521D6FA3734D7309EBCE0
+magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577886   (358038) от 19.11.2012
+###  Публикация: 589457   (147922) от 15.12.2012
 
-Чай Вдвоем - Время-вода (2012)  [H.264/1080p] WEB-DLRip
+Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358038.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+Rammstein - Mein Herz brennt. Второй официальный клип.Жанр: IndustrialРежиссер: Zoran BihaćАктеры: Тилль Линдеманн, Рихард Круспе, Пауль Ландерс, Оливер Ридель, Кристоф Шнайдер, Кристиан Лоренц.Перевод: ОтсутствуетПродолжительность: 00:05:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
+magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577908   (358028) от 19.11.2012
+###  Публикация: 739052   (145936) от 28.12.2013
 
-Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
+Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358028.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_145936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+С 13 февраля Pink отправилась в новое мировое турне в поддержку своего альбома The Truth About Love. Турне называется The Truth About Love Tour.1. Raise Your Glass
+2. Walk Of Shame
+3. Just Like A Pill
+4. U + UR Hand(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
+magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577501   (357663) от 19.11.2012
+###  Публикация: 1347593   (143520) от 28.12.2019
 
-Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
+Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357663.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: TranceПродолжительность: 00:06:22
+360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78A5DA3D1739FC818788EA452AD3B9B2C8C19ECE
+magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577872   (357517) от 19.11.2012
+###  Публикация: 1348271   (143253) от 28.12.2019
 
-Игорь Горин (Сhiliбомберс) - Дед Лосось (2012)  [H.264/1080p] WEB-DLRip
+Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357517.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_143253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+2015 Ice Nine Kills - Communion of the Cursed (1080p)
+2017 Ice Nine Kills - The People Under the Stairs [720p]
+2019 Ice Nine Kills - A Grave Mistake (2160p)
+2019 Ice Nine Kills - IT Is The End (feat. Less Than Jake, Fenix TX, JR Wasilewski, Buddy Schaub & Will Salazar) (1080p)(   Читать дальше...   )Жанр: Metalcore, Post-hardcoreПродолжительность: 01:03:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B938B13A4FACA98A15F43F61570A2694822BB88E
+magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577867   (357402) от 19.11.2012
+###  Публикация: 1348423   (142579) от 28.12.2019
 
-Иван Дорн - Идолом (2012)  [H.264/1080p] WEB-DLRip
+Сборник клипов - Music 80s от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357402.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Muslc 80s 1 — Intro
+01. C.C. Catch — Strangers By Night
+02. Kaoma — Lambada
+03. A-ha — Take On Me(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A925DE36A15880209E09A867F34A41920674C7D0
+magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577722   (357396) от 19.11.2012
+###  Публикация: 590862   (140438) от 18.12.2012
 
-LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
+tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357396.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: РОР
+Жанр: TranceПродолжительность: 00:03:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B66AC015A41ED6E8B1AC2DE08D164086E985CA6
+magnet:?xt=urn:btih:04DBB92569A3FD955DD4547CE8139CDC60941D72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577500   (357388) от 19.11.2012
+###  Публикация: 1520419   (139921) от 29.12.2021
 
-Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
+Сборник клипов (12.2021) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357388.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Hip-hopПродолжительность: 00:03:43
+Сборник зарубежных и отечественных видеоклипов за декабрь 202101_Ольга Бузова - Игрушка
+02_Марсель - Новогодняя
+03_НАТАЛИ - Белая зима
+04_GAYAZOV$ BROTHER$ - Новогодняя(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:54:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36A429A398A9220B521F5E7E6D1207F94EA584B6
+magnet:?xt=urn:btih:2ED822B61D1F5A5ACB54A34D9358F368AD23BA65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,28 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177957   (355490) от 28.10.2017
+###  Публикация: 1347780   (139841) от 30.12.2019
 
-Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
-001 Кайрат Баекенов & Формат тобы - Махаббат
-002 Lashyn - Казагымнын арулары-ай
-003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
+Suicide Silence - Videoclips 2007-2019Bludgeoned To Death (by Scott Hansen)
+Bludgeoned to Death (Mantis Deathstep Remix)
+The Price Of Beauty
+Unanswered(   Читать дальше...   )Жанр: Death CoreПродолжительность: 01:24:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
+magnet:?xt=urn:btih:0CFC1CF888458F440C168EB2577F8C90C317E122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -261,28 +279,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 951898   (353150) от 02.11.2015
+###  Публикация: 590861   (139775) от 18.12.2012
 
-VA - Осенний марафон № 201 / Видеоклипы (Популярные треки осени) (2015) WEBRip [H.264/1080p-LQ]
+Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353150.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_139775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (30.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01.Bob Moses - Tearing Me Up (Official Video) (00:03:33)
-02. Carina Dahl - Champions (Official Video) (00:03:40)
-03. Damon Paul ft. Joelina Drews - Soulmate (Official Video) (00:03:23)
-04. Geo Da Silva - I Love U, Baby (Official Video) (00:03:29)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, PunkПродолжительность: 01:25:25
+Жанр: Electronic, InstrumentalПродолжительность: 00:04:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AC77119A54A8E6488A1184C0274B0921474AB35
+magnet:?xt=urn:btih:0C363A637F201FFB30F86F6B72FAEF853E022803
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +305,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 578523   (350586) от 22.11.2012
+###  Публикация: 1273092   (138692) от 30.12.2018
 
-Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
+Сборник клипов - Philizz "Video Yearmix" (2018) WEB-DLRip [H.264/1080p-LQ] [PR]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350586.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Electro HouseПродолжительность: 00:02:21
+Сборник клипов "Video Yearmix 2018" - фирменный видеомикс от голландского ви-джея Philizz. Почти два часа музыки, 235 музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Добро пожаловать в мир лучшей танцевальной музыки 2018 года!
+- Разбивка по трекам отсутствует.PART 1
+Avril Lavigne – Head Above Water
+Camila Cabello – Never Be The Same
+David Guetta ft. Anne-Marie – Don’t Leave Me Alone(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтключаемыеПродолжительность: 01:57:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82811AC5C11CF478FF2DE90EB398721CCE2BFE1A
+magnet:?xt=urn:btih:141D4D6BA891CB60EF72AC6D31BC0874E574CEAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +335,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 578524   (350427) от 22.11.2012
+###  Публикация: 970371   (138069) от 31.12.2015
 
-DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
+VA - Зимний марафон № 216: Новогодний Фейерверк (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350427.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ElectroПродолжительность: 00:03:27
+Зимние (29.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+P/S: Добавлены новинки с Новогодними клипами.01. Akcent ft. Sandra N - Amor Gitana (Official Video) (00:03:02)
+02. Ariana Grande - Focus (Live AMA 2015) (Official Video) (00:03:35)
+03. Diana Gloster - Buona Sera (Official Video) (00:03:10)
+04. Дуэт Свои и Прохор Шаляпин - Зима (Новогодний клип!) (00:03:46)(   Читать дальше...   )Жанр: Pop, Dance, Latino, ReggaetonПродолжительность: 01:28:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9B5B64C898F8C0023269FFD970B197C07F56AC6
+magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,25 +365,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 408329   (348212) от 12.11.2011
+###  Публикация: 1349121   (137734) от 31.12.2019
 
-Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
+Сборник клипов - Philizz "Video Yearmix" (2019) WEB-DLRip [H.264/1080p-LQ] [PR]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348212.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Electro-PopПродолжительность: 00:04:48
+Сборник клипов "Video Yearmix 2019" - фирменный видеомикс от голландского ви-джея Philizz. Два часа музыкальных хитов, высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Мир лучшей танцевальной музыки 2019 года ждёт Вас! Приятного просмотра!
+- Разбивка по трекам отсутствует.Lil Nas X ft. Billy Ray Cyrus – Old Town Road
+Halsey – Without Me
+Why Don’t We – Big Plans
+Ellie Goulding ft. Juice WRLD – Hate Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixСубтитры: ОтсутствуютПродолжительность: 02:01:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
+magnet:?xt=urn:btih:C2F18FB8E31B7B5E76099D9689E74783FC9CBAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,25 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 256717   (347839) от 11.11.2010
+###  Публикация: 1088344   (137594) от 31.12.2016
 
-Ленинград - Сборник клипов (2005) [H.264] DVDRip
+Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347839.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Rock/ Ska/ PunkПеревод: Не требуетсяПродолжительность: 1ч. 10мин.
+Сборник хороших танцевальных клипов для поднятия настроения от Dj Gioma01. La Bouche - Sweet Dreams  [03:15]
+02. Afric Simone - Hafanana [03:35]
+03. Pink Floyd - The Wall  [03:25]
+04. Boney M - Daddy Cool [02:40](   Читать дальше...   )Жанр: Remix, ElectronicРежиссер: GiomaПродолжительность: 02:07:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61D87CCF653811394BC718AB17D4EBB27338E625
+magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,25 +424,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 578525   (345434) от 24.11.2012
+###  Публикация: 1196096   (137540) от 31.12.2017
 
-Rico Rossi - Take Em Down (2012) [H.264/720p] WEBRip
+Europa Plus TOP 40 декабрь (2017) WEB-DL
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345434.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Hip-hopПродолжительность: 00:03:39
+В последний день уходящего года представляю последний в этом году хит-парад от Europa Plus. Надеюсь, он позволит вам весело провести Новогоднюю ночь. Всех с наступающим 2018 годом!01. Post Malone - rockstar ft. 21 Savage  (4:02)
+02. ZAYN - Dusk Till Dawn ft. Sia  (5:37)
+03. Imagine Dragons - Whatever It Takes  (3:40)
+04. Merk & Kremont - Sad Story (Out Of Luck)Производство: Different countriesЖанр: Музыкальные клипыРежиссер: Europa PlusАктеры: См. треклистПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 02:24:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE82A60FF7A664BDFA49A6E07DF6926AAA88A61E
+magnet:?xt=urn:btih:9E92943ACBA55A6AF7F1E1CE043FDB8CA6F0A0E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,28 +453,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329470   (345255) от 08.10.2019
+###  Публикация: 1349297   (137461) от 31.12.2019
 
-Сборник клипов - Old School Hits от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+Сборник клипов 03 (2019) WEB-DLRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345255.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли самые хитовые клипы нулевых. Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Old School Hits 1 — Intro
-01. Sugababes — Push The Button
-02. Justin Timberlake & Clipse — Like I Love You
-03. Alesha Dixon — The Boy Does Nothing(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:58
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_Егор Крид - Love is
+02_Martin Garrix, Matisse & Sadko feat. Michel Zitron - Hold On
+03_Indigo, Jahn, Slavon - Новогодняя
+04_Tinashe - Stormy Weather(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:54:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92FB6FD20774D6C39DE25388537DABAAF8036BCF
+magnet:?xt=urn:btih:A473324C9F434B14503A5C434786EFA7CB20ABF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,28 +482,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 952950   (344068) от 06.11.2015
+###  Публикация: 337257   (137434) от 31.12.2016
 
-VA - Осенний марафон № 202 / Видеоклипы (Дискотека с размахом) (2015) WEBRip [H.264/1080p-LQ]
+Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344068.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (02.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Ailee - Insane (Official Video) (00:03:39)
-02. Alyosha - Маленький секрет (Премьера!) (00:04:24)
-03. Ariana Grande - Focus (Official Video) (00:03:44)
-04. Blinkie ft. Alahna - Don t Give Up (Official Video) (00:03:23)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep,  Rap, Hip-HopПродолжительность: 01:30:26
+Замечательный вступительный ролик некогда популярной игры
+"Legacy Of Kain - Soul Reaver". При этом разбавлен не менее
+замечательным хитом группы "RAMMSTEIN"Жанр: Ужасы, Фэнтези, КороткометражныйРежиссер: WitcherIv@nАктеры: Raziel, Kain, Malky, Duma...Перевод: ОригиналПродолжительность: 00:03:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:653208510F1607C1B3409096D5287EA79A993C89
+magnet:?xt=urn:btih:D2B6D4E637483C45DD10D80C6AF12948874B0B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,221 +510,213 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 288345   (342779) от 14.11.2011
+###  Публикация: 592232   (135403) от 23.12.2012
 
-ZAZ (2010-2011)
+Xenia - Understand (2012) [H.264/720p] WEBRip
 
->>След.
+>>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342779.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Французский шансон, джаз, блюз
+Жанр: Pop, DanceПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592231   (135370) от 23.12.2012
+
+Plies - Hunna (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592233   (135193) от 23.12.2012
+
+The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alt RockПродолжительность: 00:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCB3FE79AB4DEFACBAC276B2632C5C3E8818941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593490   (134361) от 24.12.2012
+
+Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8422D7329CB80B87C9821B253B92794561C503BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595074   (132550) от 28.12.2012
+
+Нюша - Это Новый Год (2012)[H.264] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Традиционно, под Новый год звезды исполняют новые песни и выпускают в эфир свежие клипы о новогоднем счастье. Так и Нюша не удержалась от массовых поздравлений и сняла клип к песне «Это Новый год».Жанр: POP МузыкаРежиссер: Павел ВладимирскийПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683DEDFDC852C72CBC0C35E234557138A8E749BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595878   (131902) от 29.12.2012
+
+Сборник клипов - VA - Various Music part. 38 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FC3FF135101B8EC5C79E84F7561AE6276C8BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595566   (131426) от 30.12.2012
+
+Шоу Элементы: Модель для сборки (2002) VHSRip - Повелительница тьмы
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу "Элементы: Модель для сборки" на национальном музыкальном канале Муз-ТВ.
 
-Несмотря на то, что ZAZ (Изабелла Жоффруа) праздновала свой дебютный альбом во Франции только несколько месяцев назад (а точнее в мае 2010), это уже та певица, которая обращает на себя внимание не только франзуской прессы, но и поклонников по всей Европе, и Россия не исключение.
+МДС представляет собой литературно-музыкальный симбиоз, состоящий из лучших произведений зарубежной и российской литературы, современной прозы, преимущественно фантастического жанра, в сопровождении музыкального ряда в стилях современной электроники: даун-темпо, эмбиента, трип-хопа, дип-техно, транса и подобных музыкальных направлений. Фирменное звучание "Модели" достигается благодаря актерскому таланту и "профессиональному" голосу автора программы и бессменного чтеца Влада Коппа в сочетании со вкусом музыкальных ведущих проекта — диск-жокеев Михаила Габовича и Андрея Эддисона, которые своими миксами погружают слушателя в глубину рассказа и создают соответствующую атмосферу восприятия.
+Как правило, в эфире звучат рассказы и небольшие повести, время прочтения которых ограничивается одним эфиром. Но, нередко используются и более продолжительные произведения и минисериалы, занимающие до 5-6 выпусков программы.Жанр: Музыка, Видеоарт, ЛитератураРежиссер: Влад Копп, Андрей Кильдеев (DJ Incognito), Михаил Габович, Наталья УрманПродолжительность: 1:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E094082CE2723DDCED30BC9853DCAACDA220B108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595559   (131364) от 30.12.2012
+
+Шоу Элементы: Модель для сборки (2002) VHSRip - Книга воина света
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный сотый, и к сожалению, последний выпуск программы "Элементы: Модель для сборки", вышедший на национальном музыкальном канале Муз-ТВ в конце июля 2002 года.
 
-В 2009 она абсолютно неожиданно победила в конкурсе «Generation Réservoir» – соревнование талантов, которое проходило в Парижской Олимпии. В противоположность всем другим участникам Zaz приехала без собственного клуба поклонников, и так воодушевила публику, что выирала. Особенно впечатлен от ее выступления был суперзвезда Франции РафаЙль Харохе, который сразу решил написать  для неё 3 песни.
-
-Для поклонников исполнительницы ZAZ представляется пробный релиз из семи клипов, подробная информация, о которых изложена ниже.
-
-1.
+МДС представляет собой литературно-музыкальный симбиоз, состоящий из лучших произведений зарубежной и российской литературы, современной прозы, преимущественно фантастического жанра, в сопровождении музыкального ряда в стилях современной электроники: даун-темпо, эмбиента, трип-хопа, дип-техно, транса и подобных музыкальных направлений. Фирменное звучание "Модели" достигается благодаря актерскому таланту и "профессиональному" голосу автора программы и бессменного чтеца Влада Коппа в сочетании со вкусом музыкальных ведущих проекта — диск-жокеев Михаила Габовича и Андрея Эддисона, которые своими миксами погружают слушателя в глубину рассказа и создают соответствующую атмосферу восприятия.
+Как правило, в эфире звучат рассказы и небольшие повести, время прочтения которых ограничивается одним эфиром. Но, нередко используются (   Читать дальше...   )Жанр: Музыка, Видеоарт, ЛитератураРежиссер: Влад Копп, Андрей Кильдеев (DJ Incognito), Михаил Габович, Наталья УрманПродолжительность: 01:30:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2FB9F636E9F3500C3D3C3237028ABEAF115220B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580472   (341230) от 26.11.2012
-
-Stereo Palma Feat. Craig David - Our Love (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605E328C2AC14F1ECA3D853B78E33D32FBB7FC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580966   (340940) от 26.11.2012
-
-Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3054A63E3502D4BA992A3BD3224C6F59CB22F524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580473   (340462) от 26.11.2012
-
-Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip hop, RnBПродолжительность: 00:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24F685A8DFA485310EB47834D31E74D6208877D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580695   (340453) от 26.11.2012
-
-Suzi Quatro (vol.1) (2012) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can The Can - Top Of The Pops '73
-02. 48 Crash - Disco '73
-03. Daytona Demon - Disco '74
-04. All Shook Up - Happy Days '77(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387BF82BB32027BA1A4BFC98EF2BA9C255FF55CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580696   (340347) от 26.11.2012
-
-Suzi Quatro (vol.2) (2012) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakdown - RockPop '79
-02. Don't Change My Luck - Kenny Everett Show '79
-03. Evie - RockPop '79
-04. He's A Sports PA - BBC TV Editors tape '79(   Читать дальше...   )Жанр: Музыка, Glam RockПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F751150B49AAD01429555010F9C98EA695308F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580474   (340212) от 26.11.2012
-
-Leanna Decker - Killer (2011) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D7882F68EB9AF6631E0F1AC7975F4C9886219E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581467   (338054) от 27.11.2012
-
-Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487F68EBF8F45263BBBB775ED2EBA6BE0C5E0988
+magnet:?xt=urn:btih:FAB8189F0FF5A481FC2C6217A3D2F3980E6DFD4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

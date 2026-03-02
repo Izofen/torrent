@@ -1,3 +1,206 @@
+###  Публикация: 711243   (158645) от 20.12.2015
+
+Eurosynth - Сборник Треков (2011 - 2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Blind (03:55)
+02. Queens' Attack (05:24)
+03. Stealth (04:53)
+04. Fire Play (03:45)(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Synth-Pop, SpacesynthПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC990EA2C26B81BA5A7E19C99E4985287CE19EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967131   (158638) от 20.12.2015
+
+VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey) (04:13)
+02. Sido - Astronaut (03:59)
+03. Felix Jaehn - Ain't Nobody (Loves Me Better) (Original Version) (03:07)
+04. Sarah Connor - Wie Schon Du Bist (03:39)(   Читать дальше...   )Производство: PolystarЖанр: Pop, DanceПродолжительность: 02:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D19CA770B229132457D4C4D321AB7ED375FA8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967217   (158612) от 20.12.2015
+
+VA - Pop Rock Hits! 100 Colours (2015) [MP3|320 кб/с] <Alternative, Indie, Metal, Shoegazing, Folk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush – Cold Fire 04:26
+ 02. Neil Young And Crazy Horse – Blue Eden 06:24
+ 03. R.E.M. – I Took Your Name 04:03
+ 04. Pearl Jam – Pry, To 01:03(   Читать дальше...   )Жанр: Alternative, Indie, Metal, Shoegazing, Folk RockПродолжительность: 07:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E336D97DF501DFF7E3CDAD00B0FA4A92DF102768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967290   (158600) от 20.12.2015
+
+VA - 100 Super Enigmatic (2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astropolis feat. Eirch von Däniken - World of Mysteries
+02. Cantara - Anima (Single Remix)
+03. David Thomas - Deep Blue Experience
+04. Indian '94 - Indian Groove (Convent-Mix)(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 08:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B877C794406D20C43F0CB862006FED557A3A18F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967864   (158505) от 21.12.2015
+
+VA - Groovedelicious 40 Deep and Tech House Sounds, Vol 1 (2015) [MP3|320 кб/с] <Deep House, Tech House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural System - Iris Glow - Mdon House Mix [05:46]
+02. Nightgroovers - My Parade - Paradise Mind Mix [05:48]
+03. Paris Lacroix - Place De La Concorde - Maxime Mix [05:46]
+04. Paul Wellsh - Burning Stable - Montenapoleone Deep Mix [05:42](   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 03:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66ACD73CCBC26221E8F028E95FCCE3155EA2C60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967681   (158495) от 21.12.2015
+
+VA - Majesty Trance: Psy Goa Party (2015) [MP3|320 кб/с] <Psychedelic, Psy Trance, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158495.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coming Soon - Bring The Action (Perplex & EffectivE remix) 06:14
+002. Eranga, Cari - Moon Rays (Original Mix) 04:53
+003. Dust - Fou 06:12
+004. Side Effects - Brain Signal (Original Mix) 07:02(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, Goa TranceПродолжительность: 11:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC7F79EED5F0DE955A3941D0AD2C0FDE9F10C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967559   (158490) от 21.12.2015
+
+VA - Уголовочка от радио Шансон. Часть 4 (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158490.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лесоповал - Прорвусь
+002. Владимир Воронов - Я Буду Помнить О Тебе
+003. Геннадий Вяземский - Исповедь Ходока
+004. Александр Деринг - Как Хорошо(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D768BA3F85FAA4AF21238E7770BE9364DC96B5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967676   (158471) от 21.12.2015
 
 VA - Rock Dawn: Selected Rockin' Hits (2015) [MP3|320 кб/с] <Hard Rock>
@@ -542,209 +745,6 @@ VA - Little Sea Lounge (2019) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0F01D0CCAF6EDA61858B83CB4F1C8A3471F6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270168   (157699) от 19.12.2018
-
-VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
-03. Chic - Le Freak (Oliver Heldens Remix)
-04. Calvin Harris, Sam Smith - Promises (David Guetta Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270505   (157696) от 19.12.2018
-
-VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aamir Et Mdjad - Demande Marabout
-002. Jahmiel - A Better Tomorrow
-003. Cali P - Nuh Business (Original Mix)
-004. Chaka Demus - Teach Them(   Читать дальше...   )Жанр: Dancehall, Dance, LatinПродолжительность: 08:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346605   (157673) от 20.12.2019
-
-VA - Love Languages: R&B Selections (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157673.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Melii - Here We Go Again
-002. Ego Ella May - Being Loved
-003. Sinead Harnett - All That You Are
-004. Gallant - Panasonic(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203AFE88C7B25B1FDFD09838009872D0BD52AD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194361   (157668) от 24.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 9) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Иосиф Кобзон  -  Мгновения  3:05
-02.  Валерий Ободзинский  -  Прощальный вальс  2:58
-03.  Нина Дорда  -  Синие сумерки  3:21
-04.  Мария Пахоменко  -  Опять плывут куда-то корабли  3:57(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573F5474CE6D1A089070421FC1D641D3A95DCD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194245   (157651) от 24.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 7) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Иосиф Кобзон  -  Летят перелетные птицы  3:10
-02.  Евгений Мартынов  -  Отчий дом  4:34
-03.  Михаил Ножкин  -  На рассвете  3:20
-04.  Анна Литвиненко  -  Огней так много золотых  2:45(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8122EA3454894C63F9EF97024DC199AD34EAA05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194284   (157614) от 24.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 8) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Лев Лещенко  -  Соловьиная роща  4:20
-02.  Иосиф Кобзон  -  Майский вальс  3:41
-03.  Людмила Зыкина  -  Засиделась одна  4:16
-04.  Анна Литвиненко и Тамара Мушта  -  И кто его знает  3:21(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AB340B2584BCD475B941C77348DDA10CE972E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194384   (157600) от 24.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 10) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Михаил Ножкин  -  Последний бой  3:30
-02.  Евгений Мартынов  -  Я тебе весь мир подарю  3:45
-03.  Нина Дорда  -  Улетают летчики  2:49
-04.  Валентина Толкунова  -  Поговори со мною мама  3:43(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99C105EA8D1ADF7727C56C602D037F1F422E74D
 ```
 
 https://mybot314.ru/tekegram_catalog/

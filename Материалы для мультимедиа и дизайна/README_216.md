@@ -1,3 +1,29 @@
+###  Публикация: 1407662   (462588) от 09.09.2020
+
+Растровый клипарт - Elements Collage 117 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 155x372-2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DA3F30109FECE439FAF118A859C65F28DDE6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407664   (462587) от 09.09.2020
 
 Растровый клипарт - Elements Collage 118 [PNG, JPG]
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5DCF59B3955C0A1652B7A09E4451B3053D5A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059365   (461462) от 04.10.2016
-
-Экшены - GraphicRiver - Storm Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Storm - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E680FF401E54B3347EB7B084BE5B6FA1DAAA779
 ```
 
 https://mybot314.ru/tekegram_catalog/

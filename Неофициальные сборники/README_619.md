@@ -1,3 +1,230 @@
+###  Публикация: 1679874   (134877) от 27.11.2023
+
+VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134877.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scott Sawyer - Passing By [07:45]
+002. Brass Energy - A Walk In The Park [02:55]
+003. Jonah Yano - Always [05:23]
+004. Carlos Camilo - Trust The Moment [04:11](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 08:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FEF2B1C1E7331CD7362A98E62C2E46C190041F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679826   (134867) от 27.11.2023
+
+VA - Музыка для машины Vol.45 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albin Lee Meldau Feat. & Jack Savoretti - Hold Your Head Up (03:08)
+02. Omer Balik - You Lost Me (04:05)
+03. Matvey Emerson Feat. & Able Faces - Speed of Light (03:00)
+04. Карина Догова - К Чёрту Love Story (03:56)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9119311E8978F47340D4833399E7D3E67D979802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593960   (134864) от 24.12.2012
+
+VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Control 98 - Super Sax
+02. Francesco Demegni - Don't Forget
+03. Continental Groove - Bawls of Prayer
+04. Montecarlo Dream - Del
+05. P Project - Modart
+06. Paul V - Cutdown
+07. Double T Project - Behind the Mirror
+08. Shin Elto - Deep Mundo
+09. Lounge Dam - Cap
+10. DJ Ambient P - Sweet and Sexy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F3A09A5DB8AB46FE73C23CF5CF05B2308B56AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592721   (134853) от 24.12.2012
+
+VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Since Yesterday
+02. Lazy Hammock - Was I Anyone to You
+03. Lemongrass - Ton Parfum
+04. Michiko - Fly Away With You
+05. Viv de la Rosa - Andalucia - Sunny Del Mar Mix
+06. Albert St.Barth - Cafe Au Lait - Gigolo Edition
+07. Claude Chagall - Balearic Waves - Christmas Attack
+08. Martinique le Souffleur - ST.Tropez - 100% Deluxe Edit
+09. Marga Sol - Tocca Me
+10. DJ MNX - Chill Out Rock N Rolla(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751AF8DD1369DAE8862E789367DAE10AFD05F16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593594   (134842) от 24.12.2012
+
+VA - Новогодняя феерия (2012) [MP3|320 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134842.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. La Cream - Say Goodbye
+002. Big Time Rush - Beautiful Christmas
+003. Shakira ft. Pitbull - Get It Started
+004. Shiller & D.Vandi - Sunday
+005. Michel Delpech - Pour Un Flirt
+006. Delerium – Fallen featuring Rani
+007. Kelly Clarkson - Stronger (What Doesn't Kill You)
+008. Armin Van Buuren And Paul Van Dyk Pres DJs United - Remember Love (Original Mix)
+009. Ian Carey & Rosette (Feat. Timbaland & Brasco) - Amnesia
+010. Chris Rea - Driving Home for Christmas (Keljet Merry Christmas Remix)(   Читать дальше...   )Жанр: РорПродолжительность: 07:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BC83B85C68B1189C59EA30E5E8CF6A728188DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593896   (134832) от 24.12.2012
+
+VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инфинити - Нежно [03:40]
+02. Medina feat. Svenstrup & Vendelboe - Junkie [03:49]
+03. Нюша - Это Новый Год [03:37]
+04. Kesha - All That Matters (The Beautiful Life) [03:36]
+05. Банд'Эрос - Караоке [03:43]
+06. Alex Ferrari - Danca Do DJ (Radio Edit) [03:24]
+07. Dan Balan - Lonely [03:11]
+08. Градусы - Я Всегда Помню О Главном [03:30]
+09. Sean Kingston feat. Cher Lloyd - Rum And Raybans (Vice Radio Edit) [03:43]
+10. Misty - Я Верю В Твою Любовь [03:40]Жанр: Pop, Club, DanceПродолжительность: 04:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679752   (134831) от 27.11.2023
+
+AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Night City
+02. Juliette
+03. Starfighter
+04. From Dusk Till Dawn(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BC18B1EA3031BC80AE7EC2F02A7E81742311B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679899   (134823) от 27.11.2023
 
 VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
@@ -623,221 +850,6 @@ VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680619   (133635) от 30.11.2023
-
-VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Электроников - Песня о снежинке (04:05)
-002. ABBA - Happy New Year [04:24]
-003. Bee Gees - Thank You For Christmas [01:54]
-004. Потап И Настя - Новый год [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 11:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593080   (133597) от 26.12.2012
-
-VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: popПродолжительность: 05:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593900   (133582) от 26.12.2012
-
-VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brennan Heart - We Can Escape (Intents 2012 Anthem) [04:20]
- 02. Dada Life - Feed The Dada [03:01]
- 03. Flo Rida - I Cry (Radio Edit) [03:36]
- 04. Stereo Palma ft. Craig David - Our Love (Radio Edit) [03:06]
- 05. Mia Martina - Burning (Radio Edit) [03:20]
- 06. Carlprit - Fiesta [03:52]
- 07. Keen'V - Elle t'a Mate (Fatoumata) [02:49]
- 08. Pitbull ft. Christina Aguilera - Feel This Moment [03:46]
- 09. Inna ft. Play & Win - INNdiA [03:31]
- 10. Akcent ft. Sandra N. - I'm Sorry (Radio Edit) [03:32](   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 04:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594068   (133576) от 26.12.2012
-
-VA - 100 золотых романтических хитов - 10 (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 06:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEBA97CD3483F7142A68E80D104E6C321322098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594559   (133492) от 26.12.2012
-
-VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raquel, Diddy, Dorrough & Yo Gotty - Touch (David May Edit Mix)
-02. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
-03. DJ Antoine vs. Mad Mark - Broadway (DJ Antoine vs Mad Mark 2k12 Radio Edit)
-04. Sasha Dith & Steve Modana feat. Nadya - Улечу
-05. G & G Feat. Gary Wright & Baby Brown - My My My (Coming Apart) 2K12 (Radio Edit)
-06. Настя Любимова - Любовь моя
-07. Empyre One - Moonlight Shadow 2K12 (Godlike Music Port Edit)
-08. Lalo Project feat. Wegmix - Живу тобой
-09. Xonia - Remember (Radio Edit)
-10. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594080   (133441) от 26.12.2012
-
-VA - Хозяйка Бара.Сборник Лучшего Шансона - (2008) [MP3|192кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133441.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Г. Тимофеев - Хозяйка бара
- 002.Лесоповал - Соловьи
- 003.М. Круг - Мой Бог
- 004.Тайга - Черная рябина
- 005.М. Шуфутинский - Марджанджа
- 006.А. Шапиро - Моя любовь
- 007.Е. Кемеровский - Еще не осень
- 008.И. Круг - Не бросай мою любовь
- 009.Г. Тимофеев - Осенняя женщина
- 010.С. Михайлов - Нежданая любовь(   Читать дальше...   )Жанр: ШансонПродолжительность: 09.57.25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBA70DD095BF82A46B839FD98B43766FC8E4786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680974   (133422) от 01.12.2023
-
-VA - Music News vol.320 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anya Nami - Wake Up (02:10)
- 002. 1380 - Repeat (02:13)
- 003. ALLERGIA - Перемирие (02:14)
- 004. Ame - Листопад (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B587BC27EAC041947B1A2978C83C0F73AE4AA2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

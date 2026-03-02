@@ -1,3 +1,209 @@
+###  Публикация: 965578   (224591) от 15.12.2015
+
+VA - Chillout Session Erotic Edition (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cj RcM - Menorca (04:10)
+02. Suntise - Erotic (02:44)
+03. Alexander Volosnikov - The Power of Humanity (07:01)
+04. Dmitry Lee'O - Like a Sky feat. Svetlana Silverfoxx (05:15)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A328197B8840EC4775F18781D41A8DA1DD7AE769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965765   (224527) от 15.12.2015
+
+VA - Music for Relax Lounge Arena Vol 2 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SENSITIVE - Gully [05:44]
+02. Griphen - Light Step [06:07]
+03. Igor Pumphonia - Attractive [06:31]
+04. Scruche - Anjuna [06:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2DF4E6444006489BDAABFCC3E30BBC2F1BC7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587628   (224432) от 10.12.2012
+
+VA - In Da Club 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Talla 2xlc - Two Worlds (Original Mix)
+02. Ashley Wallbridge feat. Audrey Gallagher - Bang The Drum (Omnia Remix)
+03. Protoculture - Cobalt (Original Mix)
+04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
+05. Andrew Bayer feat. Molly Bancroft - Keep Your Secrets (Original Mix)
+06. Miikka Leinonen pres. Cinereal - Another Day (Original Mix)
+07. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Erick Strong Remix)
+08. John '00' Fleming - The 10th Life
+09. Gabriel & Dresden Vs. Secret Panda Society - No Reservations (Khomha Remix)
+10. Greg Downey - Crazy For You (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 06:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3CC0A2434A98D22783CE3AA73F3E3D9A493F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965393   (224405) от 15.12.2015
+
+Ансамбль песни и пляски РВСН "Красная Звезда" - Прощание славянки (1970) [MP3|192 кб/с] <March>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ансамбль песни и пляски РВСН "Красная Звезда" - Прощание славянкиЖанр: MarchПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5806794CA6AEE955BD5B6E53B1E8C0A64BE313D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342238   (224385) от 01.12.2019
+
+VA - Tried Everything: Dance Mixtape (2019) [MP3|320 Kbps] <House, Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224385.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Markus Schulz & Nifra - Ave Maria (Extended Festival Mix)
+002. Deks - Retro
+003. Lucas Zamora - Believe In Me
+004. Timmy Trumpet - World At Our Feet(   Читать дальше...   )Жанр: House, Trance, ElectroПродолжительность: 10:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A82DBC5FB7E18689EDF32FDC6D7D4D79E388BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965619   (224269) от 15.12.2015
+
+VA - Romantic Piano Classics: Classical and Modern Masterpieces (2015) [MP3|320 кб/с] <Instrumental, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giovanni Tornambene - A New Room
+02. Corrado Rossi - Distant Memories
+03. Raffaele Rinciari - Acqua
+04. Alessandro Martire - Sorgenti(   Читать дальше...   )Жанр: Instrumental, Downtempo, ChilloutПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD882749BA1D6DEA61645FD1F0907801FE0CC9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965648   (224245) от 15.12.2015
+
+VA - Взрослое радио. Блатной хит (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_224245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Геннадий Лист - Израненный Вечер
+002. Александр Вестов - Впусти Меня В Свою Душу
+003. Лешиморы - Чурбан-Оглы
+004. Сергей Думцев - Приходила Ко Мне Ночь Горевать(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C639802221C64C560FF6E5349F45CBF3F3632F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965748   (224222) от 15.12.2015
 
 VA - Modern House Audio Samples (2015) [MP3|242-320 кб/с] <Funky, Club House>
@@ -542,209 +748,6 @@ VA - Super Disco 90s. 100 Hits Platinum Collection. Зарубежка (2015) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6848B218E9414701D362EE9F242A6806CF9002BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268883   (223626) от 12.12.2018
-
-VA - Deep House Collection Vol.192 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223626.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crystal Waters - Merry Christmas All (John J-C Carr Radio Mix) 3:01
-002. DJ Artak feat. Sone Silver - Searching (VetLove & Mike Drozdov Remix) 6:32
-003. 21 Room - Hey Hey (Techno Red Remix) 7:02
-004. TC Fresh - Guitar Feelings (Original Mix) 4:56(   Читать дальше...   )Жанр: House, Deep House, Progressive, Vocal House, Club House, Tech HouseПродолжительность: 14:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F2668E0237834C7F5B106CA0410DDBDC5BA0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494303   (223595) от 12.12.2018
-
-Ария - Лучшая Коллекция (2012) [MP3|320 кб/с]<Heavy Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колизей
- 02. Волонтёр
- 03. Тореро
- 04. Воля И Разум(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 03:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269098   (223471) от 13.12.2018
-
-VA - Selfish Desire: Assembly Of Electro House (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cally Dj - What You Thinking
-002. Miki Farra - Get Low Now
-003. The Deepshackerz - Sourn
-004. Alfredo Arruti - Macahuitl (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 08:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765FC0F27364328E43E42F5733AC6DBE521293C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565592   (223468) от 02.12.2019
-
-VA - Песни о ФК "Динамо" (Киев) (1986-2017) [MP3|112-320 kbps] <Rock, Pop, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Гимн ФК ДИНАМО (Киев) (04:06)
-02. 5 угол - Динамо Киев (03:37)
-03. DJ Y.TeR feat Tarada - Динамо Киев 2010 (03:56)
-04. EsKeL Mc - Наше Динамо (02:34)(   Читать дальше...   )Жанр: Rock, Pop, RapПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9825BD57672D68222DDD300BE4808215BE5B3929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269133   (223454) от 13.12.2018
-
-VA - Dance Empire Vol.13 (2018) [MP3|320 Kbps] <Dance, Club, Progressive, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Hills - Break (Radio Mix)
-02. Nick Le Funk - Potato (Radio Edit)
-03. Max Roven - Gate (Radio Edit)
-04. Alpha - X - Set This Place On Fire (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Progressive, HouseПродолжительность: 02:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32101C707874FDE73922C2C301DD87C03FCCFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269093   (223310) от 13.12.2018
-
-VA - Dissolution: Deep Space Electronic (2018) [MP3|320 Kbps] <Synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trans Atlantic Crush - In the Name of Love
-02. Cajama - Exemption
-03. Claude Monnet - Iguana
-04. Common Information Model - Phop(   Читать дальше...   )Жанр: SyntheticПродолжительность: 04:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE98B9BE9C1617958534EF58BE1D398468172248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269162   (223304) от 13.12.2018
-
-VA - Interlude Music For Comfort (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223304.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ganga - Carry You Home
-002. David Arkenstone - Garden Of Eve
-003. AeTopus - This Is Our Home
-004. Kymaera - Ain't No Sunshine(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D573F678B9A20B7547636D8F1F61C0C04259BB23
 ```
 
 https://mybot314.ru/tekegram_catalog/

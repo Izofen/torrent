@@ -1,3 +1,29 @@
+###  Публикация: 1240757   (523586) от 13.08.2018
+
+3D модели - 3DExport - Volvo XC90 2017 - 197760 [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Точная и подробная 3d модель (экстерьер и интерьер).Формат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90774C8A3BE623458366743D4B537CEFF8F970AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240652   (523581) от 13.08.2018
 
 3D модели - 3DExport - Ferrari F12 TRS 2014 - 119287 [Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ]
@@ -660,34 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF7263F1463B42693876CF37ADDB4922019D3984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241647   (519067) от 18.08.2018
-
-Векторный клипарт - Realistic Modern Devices 4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Реалистичные современные устройства
-5 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1156E959AC1E9D34DC6333434D0E7353AB17A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

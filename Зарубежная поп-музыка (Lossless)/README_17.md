@@ -1,3 +1,119 @@
+###  Публикация: 996044   (881080) от 13.03.2016
+
+Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me
+02. Sarah
+03. Dedicated To The Moon
+04. So Easy(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373021   (880344) от 06.04.2020
+
+Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love
+02. From This Moment On
+03. There You'll Be
+04. And I Am Telling You ( Duet With Nicole Scherzinger )(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8254B5C1C3892FE12159259E8862AEEBD752A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373216   (880102) от 06.04.2020
+
+Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. !!!!!!! (0:14)
+ 02. Bad Guy (3:14)
+ 03. Xanny (4:04)
+ 04. You Should See Me in a Crown (3:01)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D292ED3FA67FF48207BF0D297DB8434D7B045C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373229   (880050) от 06.04.2020
+
+Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. COPYCAT (3:15)
+ 02. idontwannabeyouanymore (3:24)
+ 03. my boy (2:51)
+ 04. watch (2:58)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3061AD4B5EEF99ED9AE753BD91EDEB71F8D93FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764183   (879623) от 09.03.2014
 
 VA - BBC Radio 1's Live Lounge (2013) Deluxe Version [FLAC|Lossless]<Pop Rock>
@@ -631,122 +747,6 @@ VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B0AC665CC8148300FBAD9486FA3E04D17A41CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106754   (871065) от 20.02.2017
-
-Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganz Wien (1981) - 5:10
-02. Der Kommissar (1981) - 3:49
-03. Helden von heute (1982) - 4:04
-04. Maschine brennt (1982) - 3:36(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Pop Rock, New Wave, Dancepop, Pop RapПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D861DA4C60D3E86AC1EB9B02F0EA3A019BDB6013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374808   (870597) от 11.04.2020
-
-The Weeknd ‎ - After Hours (2020) [FLAC|Lossless|tracks + .cue] <R'n'B, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Again (04:12)
-02. Too Late (03:59)
-03. Hardest To Love (03:31)
-04. Scared To Live (03:11)(   Читать дальше...   )Жанр: R'n'B, PopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99698FC10052AF26513C96EEC7A71C5D3F6A6900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998399   (870319) от 19.03.2016
-
-She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boomerang 03:52
-02. Monster 03:51
-03. Better Now 04:14
-04. Crazy Heart 02:58(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DAA8BF13161F520A1C52E84472FB872CDADFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998237   (870279) от 19.03.2016
-
-Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG Victor [FLAC|Lossless|image + .cue] <Pop, Adult contemporary>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold [04:25]
-02. Why (MTV Unplugged) [05:07]
-03. The Gift (MTV Unplugged) [04:41]
-04. Walking On Broken Glass (MTV Unplugged) [04:01]Жанр: Pop, Adult contemporaryПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71C6843F58CD3462384C95A9C23368624578907
 ```
 
 https://mybot314.ru/tekegram_catalog/

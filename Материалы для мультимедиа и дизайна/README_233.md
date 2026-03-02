@@ -1,3 +1,29 @@
+###  Публикация: 559452   (409583) от 12.10.2012
+
+Digital Juice - Presenter's Toolkit (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык интерфейса: Только английскийФормат: PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CAAFFEB6F24132DF565CB50AB361CD9910E7F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252525   (408990) от 05.10.2018
 
 Экшены - GraphicRiver - Soft Pencil Art Action - 22581121 [ATN, ABR, PAT]
@@ -658,32 +684,6 @@ Digital Juice - Jump Backs SD 13: All Church (Full ISO)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15C95102C76D1AA344E8538654AED9770F8BB069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561170   (406304) от 16.10.2012
-
-Digital Juice - Jump Backs SD 25: All Music (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E3A77FD80B4FB9F422E684844A7041CC549BF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

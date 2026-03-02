@@ -1,3 +1,29 @@
+###  Публикация: 1039048   (597389) от 31.07.2016
+
+Экшены - CreativeMarket - Path & Shape Maker for Photoshop [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path & Shape Maker - Простой, но очень полезный инструмент для пользователей Photoshop, он значительно облегчает работу, позволяет одним щелчком мыши преобразовать любой слой (текст, графика, смарт-слой) в форму и в путь.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCB88C253009099221840365D8F1E4F41C7A613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039037   (597379) от 31.07.2016
 
 Экшены - GraphicRiver - Polaroid Dispersion Photoshop Action [ATN, ABR]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01F30816EC0181592E17D1724FFBBE34E9EA7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039884   (594361) от 02.08.2016
-
-Экшены - GraphicRiver - Myth Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Myth - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6A6E70A396B51B597B201910E403845EA54D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

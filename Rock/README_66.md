@@ -1,3 +1,61 @@
+###  Публикация: 955109   (337357) от 09.11.2015
+
+VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, Blues Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaws - What Child Is This
+02. Artimus Pyle Band - God Rest Ye Merry Gentlemen
+03. Steve Morse - We Three Kings of Orient Are
+04. Point Blank - Merry Christmas Baby(   Читать дальше...   )Жанр: Christmas, Southern Rock, Blues Rock, Country RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEAE6E6CFC35411E36C7423E94EC9FE3C781E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954993   (337349) от 09.11.2015
+
+VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tie Your Mother Down - Lemmy Kilmister & Ted Nugent
+02. We Will Rock You - L.A. Guns
+03. Bohemian Rhapsody - John Wetton
+04. Killer Queen - Glenn Hughes & Carmine Appice(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal, PopПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A031BAD2C707DC1D17A81A87AD61D1A5600C2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579431   (336497) от 27.09.2022
 
 Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
@@ -687,65 +745,6 @@ Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580559   (329924) от 02.10.2022
-
-B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dump of Twisted Destinies (04:56)
-02. We Were Fools (05:49)
-03. Golden Ball (04:30)
-04. Bosss Girl (04:31)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06810596176D74BE367D81243F11EB25BF3F66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579743   (329836) от 02.10.2022
-
-Arena - 12 Albums LP (2022) [MP3|320 Kbps] <Arena Rock, Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Capsule [00:05:30]
-02. The Equation (The Science of Magic) [00:06:28]
-03. Twenty-One Grams [00:06:34]
-04. Confession [00:02:20](   Читать дальше...   )Жанр: Arena Rock, Progressive Rock, Neo-Prog
-Country: United Kingdom, SolikamskПродолжительность: 13 CD, 11:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC3D3CF507DEDECA73D6ECB151F93C9C3C4C714
 ```
 
 https://mybot314.ru/tekegram_catalog/

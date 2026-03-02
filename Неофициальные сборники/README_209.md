@@ -1,3 +1,206 @@
+###  Публикация: 1214739   (763071) от 23.03.2018
+
+VA - Vocal Jazz Gold Compilation (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carmen McRae - I Only Have Eyes For You
+002. Laura Fygi - Good Morning Heartache
+003. Rosa Passos & Ron Carter - Insensatez
+004. Saravah Soul - Funk De Umbigada(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 11:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D212F84C7CF3DB44106EDF0CAAE67B4C3B0E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214765   (763068) от 23.03.2018
+
+VA - Hit Retromania: Mood Disco 80s (2018) [MP3|320 Kbps] <Pop, Euro Pop, Eurodisco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Kano  -  Another Life (Maxi Version)  7:14
+002.  Pet Shop Boys  -  West End Girls (Remix '86)  5:00
+003.  Ryan Paris  -  Fall In Love  7:23
+004.  L'affair  -  Secret Eyes (12' Version)  5:54(   Читать дальше...   )Жанр: Pop, Euro Pop, EurodiscoПродолжительность: 09:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FBF57D184BE6C8B83282EC7E6E39662319D621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214775   (763067) от 23.03.2018
+
+VA - Динамик MP3 Весенний Популярный Микс (2018) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763067.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Нюша - Ночь
+002. Анжелика Агурбаш - Лучше Тебя Нет
+003. Babek Mamedrzaev - Береги Её, Боже
+004. Елена Темникова - Фиолетовый(   Читать дальше...   )Жанр: PopПродолжительность: 12:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9257D0B18EBFB87D341062AD72D2741079393FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017114   (763038) от 16.05.2016
+
+VA - Tallinna Terrace Club Collection 3CD (2016) [MP3|320 кб/с] <Downtempo, Nu Disco, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763038.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+01. The Project & Artenvielfalt feat. Miss Natnat - I'm Done (House Mix) (04:40)
+02. AN.DU & Fomin feat. Osha - Allright (Extended Mix) (05:08)(   Читать дальше...   )Жанр: Downtempo, Nu Disco, Vocal HouseПродолжительность: 04:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC48AE441BC25CBFC8D884936538834F1B0B923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017231   (763032) от 16.05.2016
+
+VA - Горячая 100ка русского шансона (2016) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Фёдор Освальд - Бутылочка Вина
+002. Андрей Забродин - Еду Домой
+003. Folk Катрин Band - Зеленоглазка
+004. Майя Подольская - Грешная Любовь(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D89C36342F2667DD3D33E703F2D62F6DFDD804D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214761   (762990) от 23.03.2018
+
+VA - Magic Piano Sounds (2018) [MP3|320 Kbps] <Piano, Classic, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Helene Grimaud  -  Johann Sebastian Bach (Partita or Violin Solo No.3 in E Major, BWV 1006 - 1. Preludio)  3:42
+02.  Martha Argerich  -  Peter Ilyich Tchaikovsky (Piano Concerto No.1 in B Flat Minor, Op.23, Th.55 - 1. Allegro Non Troppo E Molto Maestoso)  3:38
+03.  Rick Wakeman  -  Morning Has Broken  3:42
+04.  Friedrich Gulda  -  Wolfgang Amadeus Mozart (Piano Concerto No.27 (   Читать дальше...   )Жанр: Piano, Classic, InstrumentalПродолжительность: 04:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46C10CED821EB1CE0F9DC71AA33A28B186A929F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214845   (762987) от 23.03.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762987.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK061 Europe - All Or Nothing
+062 Suicidal Tendencies - Send Me Your Money
+063 Skid Row - Get The Fuck Out
+064 Nickelback - Lullaby(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB256B84FA438DF616AC971B3CE90177F2358C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214727   (762984) от 23.03.2018
 
 VA - Блатная Песня Года (2018) [MP3|256-320 Kbps] <Шансон>
@@ -539,209 +742,6 @@ Moving Heroes - Compilation (2021) [MP3|320 Kbps] <Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4625CFF162B5EA3111FA79422D66698C62EBE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214955   (761696) от 24.03.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 23.03.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-02. Jax Jones - Breathe (Ina Wroldsen)
-03. Zayn Malik feat. Sia - Dusk Till Dawn
-04. G-Eazy & Halsey - Him & I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A967F53DCA6EE3727E6B7C2BA71631637B5833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214920   (761683) от 24.03.2018
-
-VA - 100 Moombahton Real Steps Peace (2018) [MP3|320 Kbps] <Future Bass, Trap, Reggae Fusion, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Rose - Infiel (Dirty) 4:05
-02. El Chevo - Flow De Africa (Djdx) (Intro Dirty) 2:05
-03. El Boy C, Kelmitt Y Menor Menor Ft Lary Over - Por Ahi (Dirty) 4:07
-04. Anitta Y J Balvin - Downtown (Quick Hit Clean) 2:07(   Читать дальше...   )Жанр: Future Bass, Trap, Reggae Fusion, OtherПродолжительность: 05:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F61A6203C98B227AA45E029E0B31445B4F83C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214944   (761663) от 24.03.2018
-
-VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761663.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne Macklemore Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625CCA83D077BBAD8A838262D6E70422257856BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215091   (761550) от 24.03.2018
-
-VA - Sky Радио: SKY Парад Top 20/Март (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kendrick Lamar feat. SZA  -  All The Stars  3:55
-02.  MARUV & BOOSIN  -  Drunk Groove  3:47
-03.  Marshmello & Anne-Marie  -  Friends  3:23
-04.  Sean Paul & David Guetta  -  Mad Love  3:20(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B049205458398665C1F694886FAD56BF50D9C150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214971   (761531) от 24.03.2018
-
-VA - Europa Plus: ЕвроХит Топ 40 / 23.03 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat & Elderbrook  -  Cola (Robin Schulz Remix)  5:15
-02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
-03.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
-04.  G-Eazy & Halsey  -  Him & I  4:29(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231B40C47E68875F4422EDD17FE9EA2416160890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214984   (761456) от 24.03.2018
-
-VA - DFM Top 30: D-Chart / Март (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Steve Aoki feat. Daddy Yankee, Play-N-Skillz & Elvis Crespo  -  Azukita  3:46
-02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
-03.  Sherrie Sherrie & The Ware feat. Nina  -  Nana Song  3:14
-04.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer  5:05(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3086E972DD33EBD2E39DCF2DAD59898BB33D01F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214926   (761452) от 24.03.2018
-
-VA - De Top 100 Aller Tijden 1985 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761452.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Usa For Africa - We Are The World (6:23)
-002. Bruce Springsteen - Dancing In The Dark (4:05)
-003. Commodores - Nightshift (4:19)
-004. Madonna - Into The Groove (4:45)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6A365A47972B5B3462FE4A033A9FCBDDDA23A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

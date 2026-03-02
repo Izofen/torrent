@@ -1,3 +1,206 @@
+###  Публикация: 1710366   (61516) от 28.03.2024
+
+DJ Aurm - Compilation Version 2 (2024) [MP3|320 Kbps] <Instrumental, Piano, Electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Love
+ 02.  Your Breath
+ 03.  I Feel You
+ 04.  You Give Me Hope(   Читать дальше...   )Жанр: Instrumental, Piano, ElectronicПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCE7AA6DB4A5B428982E351249CCC4331AD0967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711001   (61497) от 28.03.2024
+
+VA - Electronic compilation part 66 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - For You
+02. Adik - Margarita
+03. Hamidshax - Before
+04. George Kopaliani - Beyond the Horizon(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E72600646F55CABEAFB82E2372C5A33DAE29A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711280   (61377) от 29.03.2024
+
+VA - Music News vol.358 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. TUMANOVA - Влюбись, Если Осмелишься (02:36)
+ 002. After Forever, Doro - Who I Am (04:38)
+ 003. Akord - Rapirea Din Seray (03:51)
+ 004. Alex Rasov - There's Nothing That We Couldn't Be (03:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A20AAE91A7BC3CD88C62DA3F9DDEDF0D8EFAB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940643   (61334) от 30.03.2024
+
+Владимир Захаров (Рок-Острова) (24 альбома) (1997-2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attraction Force 01
+02. Attraction Force 02
+03. Attraction Force 03
+04. Attraction Force 04(   Читать дальше...   )Жанр: ElectronicПродолжительность: 1:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FCB9072267719AF456567B7A26619797131C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711039   (61301) от 30.03.2024
+
+Линда - Лучшее (1994-2020) [MP3|320 Kbps] <Alternative Rock, Downtempo, Pop Rock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Κανένας Ποτέ (Никто никогда) (bonus track)
+02. The Mark (Меченая) (bonus track)
+03. To Σημάδι (Меченая) (bonus track)
+04. Антахкарана(   Читать дальше...   )Жанр: Alternative Rock, Downtempo, Pop RockПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF858AE7486D02B95D1330ED378E097FD0E0729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711250   (61293) от 30.03.2024
+
+VA - Kontor Top of the Clubs Vol. 99 (2024) [MP3|320 Kbps] <Electronic, Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61293.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - Mixed by Jerome
+01. VA - CD 1 Mixed by Jerome (61:21)
+
+CD 2 - Mixed by Markus Gardeweg(   Читать дальше...   )Жанр: Electronic, Dance, Club, HouseПродолжительность: 04:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D0020264967B352A62CAAC41166371CAA8A99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711299   (61269) от 30.03.2024
+
+VA - CLUB HITS | Dance Music 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto, BIA, 21 Savage - BOTH (03:08)
+02. Joel Corry, MK, Rita Ora - Drinkin' (02:29)
+03. John Summit, MKLA - Fade Out (03:50)
+04. Fred again.., Jozzy, Jim Legxacy - ten (03:01)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37047C1D3CD028FE67EB183B0C493DC86C7866C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711670   (61188) от 31.03.2024
 
 VA - Record Super Chart 30.03.2024 [MP3|320 Kbps] <Pop, Dance>
@@ -541,209 +744,6 @@ VA - Compilation part 70 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AB6A16DD04FC79997EAB9386813B764D2E416E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716555   (59491) от 16.04.2024
-
-VA - Music News vol.365 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deva - Кайф (02:32)
- 002. 1MINUT - Красные Глаза (03:34)
- 003. Alena Sky - Ракета (02:39)
- 004. Alicia Keys feat. Maleah Joi Moon - Kaleidoscope (04:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF274270C02DD467911E4F3CFEC03872A630F383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716798   (59301) от 18.04.2024
-
-Whitesnake - Collection (2024) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творчество вокалиста David Coverdale и группы Whitesnake — это мощнейший пласт в мировой рок музыке. Одна из любимых команд. С ней я познакомился в 97 году. В киоске звукозаписи купил кассету Maxell, с альбомами 87 и 89 года. И считаю их лучшими за всю историю группы. Более ранние услышал уже с появлением инета и мне они особо не интересны. Но знаю, что старшему (   Читать дальше...   )001. Whitesnake - Take Me With You
-002. Whitesnake - Love to Keep You Warm
-003. Whitesnake - Lie Down (A Modern Love Song)
-004. Whitesnake - Day Tripper(   Читать дальше...   )Жанр: RockПродолжительность: 14:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4412E9A80B6F162F509E7982A1638A7F5DF8AF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717302   (59188) от 19.04.2024
-
-VA - Music News vol.366 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cleopatra Stratan feat. Cristian Porcari - Inchide Usa (02:49)
- 002. Alessiah feat. The Code - Call You Back (Just Eddie Remix) (02:25)
- 003. Alex Say - Не Отпускай (DJ Karimov & DJ Oskar Remix) (02:38)
- 004. Anthony El Mejor - Lady (Radio Edit) (03:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA98234E5259ABEF0AFD5392B146737B289F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717373   (59187) от 19.04.2024
-
-VA - Music News vol.367 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59187.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mira feat. Rares - Sa Fii Tu (03:21)
- 002. 7afa feat. Izzamuzzic - Без Чувств (04:06)
- 003. 84 - Биополе (02:19)
- 004. 84 - Дома Один (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B9DE7B615D2B496FEB00B2335C921E5EF5E51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717564   (59148) от 20.04.2024
-
-VA - Car Music Mix 5 (2024) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joezi feat. Lizwi - Amathole (Narkoteq Mix) (8:07)
-02. Z-noise & Arsen - Bitch (Original mix) (5:56)
-03. Сёма Мишин - М5 (2:28)
-04. Milodix - Take Me (4:38)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 04:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAB7A114E82440CF5AAA767249BDB5DF1B3D848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717444   (59100) от 20.04.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 19.04.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mackenzie Arromba - Underwater (3:17)
-02. Alan Walker feat. Daya - Heart Over Mind (3:09)
-03. Adam - Zhurek (3:16)
-04. Dua Lipa - Training Season (3:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEB820D7D1E77D6295257D6D1B096F7B1795394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717605   (59060) от 21.04.2024
-
-Modern Talking - Collection (2024) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни Modern Talking похожи на холст, на котором композитор и вокалист пишут музыкальную картину, постепенно рисуя элементы.  Пример того, когда встречаются и обьединяются гениальные музыканты, получаются бессмертные шедевры на все времена. Очень тёплая музыка и приятный голос, как бы обнимают вас и уносят в свой мир ностальгии. Знаю и люблю творчество этого дуэта, (   Читать дальше...   )001. You're My Heart, You're My Soul
-002. You Can Win If You Want
-003. There's Too Much Blue In Missing You
-004. Diamonds Never Made A Lady(   Читать дальше...   )Жанр: DiscoПродолжительность: 09:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E542DC57151BF372887CCE54ECFBBAC95DE60232
 ```
 
 https://mybot314.ru/tekegram_catalog/

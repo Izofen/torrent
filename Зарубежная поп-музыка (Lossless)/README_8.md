@@ -1,3 +1,119 @@
+###  Публикация: 1352547   (1000866) от 15.01.2020
+
+VA - Acoustic 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Cheap Thrills 3:29
+02. Shannon & Keast - Lush Life 3:10
+03. Meg Birch - I Feel It Coming 3:47
+04. Thom Cooper - Rolling In The Deep 4:00(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB51F1E5FA8DE8157362DDBBBF167E1AFD6398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352871   (1000852) от 15.01.2020
+
+VA - 100 Greatest Singalong Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Can't Get You out of My Head (03:51)
+02. Prince - Kiss (03:46)
+03. a-ha - Take on Me (03:45)
+04. Aretha Franklin - Respect (02:27)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 06:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D4B813A1D01EFC3A750F43A63570CCB04D191B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352480   (1000721) от 15.01.2020
+
+VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Someone You Loved 3:19
+02. Nora & Will - Late Night Feelings 3:57
+03. Shannon & Keast - We Found Love 3:05
+04. Custom 7 - What We Need (Acoustic Version) 2:41(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353075   (993320) от 16.01.2020
+
+Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image + .cue] <Synth-pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Désir, Désir (Part 1) 4:55
+2 L'Atlantique 3:30
+3 Aviateur 4:27
+4 Si T'as Pas Compris 3:57(   Читать дальше...   )Жанр: Synth-pop, ChansonПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3EAC496B1E5A0FFEE4EB24DCEB4673A957414E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353204   (992687) от 17.01.2020
 
 Morgan Myles - Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -626,134 +742,6 @@ Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974453   (975683) от 12.01.2016
-
-Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever We Started
-02. Suddenly
-03. Inside
-04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616734   (974916) от 10.02.2013
-
-Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Loop (Mm-Ma-Ma) (3:35)
-02. Johanna (Shut Up!) (3:40)
-03. Love Is A Simple Thing (3:09)
-04. Uh-Ahh-Yeah (3:26)
-05. Famikon (2:34)
-06. Tango (3:28)
-07. Take Me Higher (3:38)
-08. Despre Tine Cant (Partea 2) (4:05)
-09. The 24th Letter (4:43)
-10. Crazy Loop (Mm-Ma-Ma) (DJ Ross Radio Club Edit) (3:54)(   Читать дальше...   )Жанр: Pop, Dance, BalladПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616583   (974738) от 10.02.2013
-
-Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (3:52)
-02. À l'ombre (4:51)
-03. Monkey Me (4:14)
-04. Tu ne le dis pas (4:22)
-05. Love Dance (4:06)
-06. Quand (4:08)
-07. J'Ai Essayé De Vivre... (4:40)
-08. Ici-bas (4:33)
-09. A-t-on jamais (3:47)
-10. Nuit d'hiver (5:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974852   (973357) от 14.01.2016
-
-Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detonator
-02. I Spy
-03. The Devil's Radio
-04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
 ```
 
 https://mybot314.ru/tekegram_catalog/

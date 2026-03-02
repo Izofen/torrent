@@ -1,3 +1,32 @@
+###  Публикация: 1516086   (166572) от 10.12.2021
+
+VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part I:
+01. Pepe Ahlqvist And The Sunset Boulevard - Don't Leave Me Again (04:25)
+ 02. Dr.Feelgood - Second Opinion (03:23)
+ 03. Bobby Blue Bland - Sad Street (06:40)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346109   (164482) от 18.12.2019
 
 VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternative>
@@ -716,35 +745,6 @@ VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A7C5999061B031079F1613EBC653D4C9171C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086794   (147936) от 26.12.2016
-
-VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Karma Police 04:22
-02 Burn The Witch 03:41
-03 Creep 03:56
-04 Reckoner 04:51(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 02:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

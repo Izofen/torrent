@@ -1,3 +1,32 @@
+###  Публикация: 1763939   (35219) от 04.12.2024
+
+Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, Pop rock, Post grunge>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anything But Ordinary (Let Go 2002)
+02. Bad Girl (& Marilyn Manson) (Avril Lavigne 2013)
+03. Bad Reputation (Avril Lavigne 2013)
+04. Bite Me (Love Sux 2022)(   Читать дальше...   )Жанр: Pop punk, Alternative, Pop rock, Post grungeПродолжительность: 02:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764913   (34724) от 09.12.2024
 
 Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock, Soft Rock, Post punk>
@@ -716,35 +745,6 @@ VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07162D7BE0C1F068EEE364AA1D6139AB76BFB5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780731   (27015) от 20.02.2025
-
-Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Alternative, Covers>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Like An Egyptian (& The Bangles) (Leo Metal Covers Volume 31 2020)
-02. Skyfall (& Adele) (Leo Metal Covers Volume 44 2023)
-03. (You Gotta) Fight For Your Right (To Party !) (& Beastie Boys) (Leo Metal Covers Volume 38 2022)
-04. Agatha All Along (& Kristen Anderson-Lopez) (Leo Metal Covers Volume 33 2021)(   Читать дальше...   )Жанр: Metal, Alternative, CoversПродолжительность: 15:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59D77A443BF60C31F4559C16C463AB2FE4EF05F
 ```
 
 https://mybot314.ru/tekegram_catalog/

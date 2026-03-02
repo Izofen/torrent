@@ -1,3 +1,61 @@
+###  Публикация: 953235   (351787) от 03.11.2015
+
+Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psychedelic, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawlin' Kingsnake
+02. Underground River
+03. Bow'd Up
+04. For Suki(   Читать дальше...   )Жанр: Psychedelic, Blues RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953004   (351693) от 03.11.2015
+
+Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night’s Makeup
+02. Broken Heart
+03. Highway
+04. Whiskey & Whitley(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578051   (350402) от 21.09.2022
 
 High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
@@ -691,64 +749,6 @@ Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E22CA09B5A1025FECC6DD00D9181D59D6DAB8CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578520   (345938) от 23.09.2022
-
-Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon
-02. Unbreakable
-03. Stand My Ground
-04. Halcyon Days(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D70AC6FA8078E7B11864E6BD9C5F10EC5541B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725469   (343677) от 23.11.2013
-
-Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fr-Fr-Fr-Frustrated
-02. Insane
-03. That Will Be
-04. What You See Is What You Get(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36698DAE82FFBF26F249DC7295D6123C98C439C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

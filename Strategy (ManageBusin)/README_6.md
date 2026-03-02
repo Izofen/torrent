@@ -1,3 +1,29 @@
+###  Публикация: 1179995   (344222) от 02.11.2017
+
+Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_344222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите проверить себя в роли менеджера высокоэффективной команды автогонщиков? Motorsport Manager - это лучший в своем классе спортивный менеджер для любителей автогонок. Управление командой, создание автомобилей и полное погружение в увлекательный спортивный мир.Тип издания: LicenseРазработчик: Playsport GamesЖанр: Strategy (Manage, Busin), Racing, Simulation (Sport)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DBD90152B25D5B1BC496588A9EC268FE364B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330595   (338341) от 11.10.2019
 
 Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edition]
@@ -653,32 +679,6 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835099   (250597) от 05.11.2025
-
-Dwarf Fortress (2022) [En] (53.02) Repack Necros
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к самой глубокой, самой сложной симуляции мира, которая когда-либо была создана. Не просто сгенерированная геометрия - целый смоделированный мир. Сгенерированные взлеты и падения цивилизаций, личностей, существ, культур и т.д. Бесконечные часы игры.Тип издания: RepackРазработчик: Bay 12 GamesЖанр: Стратегия, Симулятор, ИндиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

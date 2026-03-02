@@ -1,24 +1,25 @@
-###  Публикация: 1784976   (69439) от 14.03.2025
+###  Публикация: 1783676   (69744) от 07.03.2025
 
-Дети шпионов 3: Игра окончена (2003) / Spy Kids 3-D: Game Over (2003) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+VA - Ori Uplift - Uplifting Only Episode 630 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69439.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несовершеннолетние агенты Джуни и Кармен Кортез отправляются на выполнение нового задания. На этот раз их ждёт путешествие по виртуальному миру 3-D видеоигры, разработанной для того, чтобы существа, населяющие её, явились в реальный мир.
-
-Дочь шпионов Кармен попалась в сети компьютерной игры, созданной зловещим Мастером Игрушек. Теперь её брат должен спасти сестру, (   Читать дальше...   )Производство: США / Dimension Films, Troublemaker Studios, Los Hooligans ProductionsЖанр: фантастика, боевик, комедия, приключения, семейныйРежиссер: Роберт РодригесАктеры: Дэрил Сабара, Алекса ПенаВега, Рикардо Монтальбан, Сильвестр Сталлоне, Райан Пинкстон, Роберт Вито, Бобби Эднер, Кортни Джайнс, Сальма Хайек, Майк ДжаджПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:22:37
+01. Darren Bax & Alaera - In My Memory
+02. Night Sky feat. Juliet Lyons - When You Are Near
+03. Mark Versluis & Ana Roze - Let Me Know (Last Soldier Remix)
+04. CO1N & Darkingz - Mermaid's Tears (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12AF4CD62B6C3BC772F953D1998BEBB614939F7B
+magnet:?xt=urn:btih:44051ACA748A8AA6DE5F5C95DE512F09E167C4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,28 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785040   (69438) от 14.03.2025
+###  Публикация: 1783742   (69743) от 07.03.2025
 
-Александр Маршал - Коротко о разном (2025) [MP3|320 Kbps] <Pop>
+Александр Островский | Последняя жертва (Радиоспектакль) (2024) [MP3, Ирина Соколова, Антон Багров и др.]
 
->>Pop
->>Отечественная поп-музыка
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69438.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Целители покинутых сердец
-2. Андрейка
-3. Афганская история
-4. Встреча(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:57
+Серия/Цикл: Театр у вас дома.
+Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, волнующие (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:13:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E946346F5F1F01BABE9CCE35EFFAF9F5EAB8A68
+magnet:?xt=urn:btih:12D6080AC9FD4C52987A276BDB84C0516BB5C463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,25 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785170   (69437) от 14.03.2025
+###  Публикация: 1783701   (69742) от 07.03.2025
 
-Атомные часы - время ntp v2.1.7 Mod by Alex.Strannik [Ru/Multi]
+Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69437.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сверхточные часы для вашего устройства. Берёт данные с интернет-сервиса. В наличии виджет и немалое количество настроек. Вы когда-нибудь хотели узнать точное время, чтобы отпраздновать чей-то день рождения или Новый год? Или просто синхронизировать часы? AtomicClock обеспечивает точное время с серверов NTP, которые получают время непосредственно с атомных часов!Тип издания: PremiumРелиз состоялся: 11.03.2025Разработчик: Timo PartlПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+01. Denied (5:31)
+02. The Oath (4:50)
+03. Divine Smite (5:03)
+04. The First Loss (1:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
+magnet:?xt=urn:btih:5D6884AEA98A3A1D9A9A1B068FDB184931ADE4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785197   (69436) от 14.03.2025
+###  Публикация: 1783772   (69741) от 07.03.2025
 
-Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Антон Чехов | Дом с мезонином (Радиоспектакль) (2024) [MP3, Марианна Мокшина, Антон Багров и др.]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69436.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La marche des machos (04:17)
- 02. Chante pour nous Mama (03:17)
- 03. Les nouveaux romantiques (03:23)
- 04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:55
+Серия/Цикл: Театр у вас дома.
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+Рассказ «Дом с мезонином» впервые был опубликован в журнале «Русская мысль» (1896, №4).
+Повествование ведётся от лица художника-пейзажиста, поселившегося в имении помещика Белокурова в Т-ой губернии. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F12DA0D204D0FAB0E1E3340AD33033CDB9B7409
+magnet:?xt=urn:btih:4FB63CDA1814B9208728516495AA4B6A0EBE0AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785102   (69435) от 14.03.2025
+###  Публикация: 1783800   (69740) от 07.03.2025
 
-Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
+Destruction - Birth of Malice (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Win Игры
->>Strategy Tactical (RTS/TBS)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69435.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Old World - это историческая стратегия, в которой вы управляете империей на протяжении нескольких поколений. Удастся ли вам оставить после себя великое наследие в эпоху великих царей и цариц? Заключайте браки ради политической выгоды, растите наследников и выстраивайте отношения со знатными семьями вашего царства. Ибо в жестоком, неумолимом мире монархов нет ничего (   Читать дальше...   )Тип издания: RepackРазработчик: Mohawk GamesЖанр: Стратегия, ИсторическаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+01. Birth of Malice 01:00
+02. Destruction 05:23
+03. Cyber Warfare 04:24
+04. No Kings - No Masters 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F819F47CFAE810C0A9087DA7DFDE9315080F9020
+magnet:?xt=urn:btih:748EDD865B86C655025B1AD390ED6AE2B52D48D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,25 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785184   (69434) от 14.03.2025
+###  Публикация: 1783627   (69739) от 07.03.2025
 
-3D сцены - Fab - Dwarven Dungeons Environment ( Throne Room Dungeon Dwarf Dungeon Dungeon 3D ) [UASSET, UMAPG]
+Markus Schulz - Global DJ Broadcast World Tour (Soundcheck Nightclub Washington DC) (2025-03-06) [MP3|320 Kbps] <Trance, Melodic House, Techno>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69434.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dwarven Dungeon Environment с 102 уникальными сетками. Включает все представленные ассеты и ассеты высокого качества. Имеет хороший уровень детализации и оптимизирован для игровых проектов.Формат: UASSET, UMAP
+01. Miss Monique, GENESI & Carl Bee - Nomacita
+02. Markus Schulz & Emma Hewitt - Till We Fade (Club Mix)
+03. Orjan Nilsen - Between the Rays (ALAT Remix)
+04. Kos:mo - The Tribe(   Читать дальше...   )Жанр: Trance, Melodic House, TechnoПродолжительность: 02:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52CB31689A25B69886E5AD63915D043444364C55
+magnet:?xt=urn:btih:824908A44A0C63A1FB3E8DE7CAC87BD531B0F9D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,27 +170,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785187   (69433) от 14.03.2025
+###  Публикация: 1783810   (69738) от 07.03.2025
 
-Шрифты - MyFonts - Palo [TTF]
+Галина Шалаева | Моя первая книга о Рождестве (2009) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69433.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Palo — это система служебных шрифтов из 72 стилей, построенная вокруг 4 ширин и 9 толщин, а также соответствующих курсивов.
-
-Кириллица не поддерживается.Формат: TTF
+Книга адресована в первую очередь самим малышам, ну и, конечно, всем мамам, папам, бабушкам и дедушкам. В ней собрано множество весёлых рассказов, игр, стихов и загадок. На страницах этого прекрасно иллюстрированного издания ребёнка ждут занимательные истории о празднике Рождества Христова, о Боге, Богородице и ангелах. Учитывая особенности детского восприятия, автор (   Читать дальше...   )Жанр: Детская прозаИздательство: АстрельФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38EDB7433FC15BCCF6ECBA5982178B0FB38897DA
+magnet:?xt=urn:btih:F86B484E8EA9550E59240A49680F0915EFC68F51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,79 +196,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785014   (69432) от 14.03.2025
+###  Публикация: 1783822   (69737) от 07.03.2025
 
-Журнал | Дачный клуб №1 (166) (январь 2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D945E3BFCAD7D97A40A586BB3773377C6CBBB4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785178   (69430) от 14.03.2025
-
-Когда народы сражаются / Wenn Volker streiten (1915) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр фильма определен как военный. Формально это так, но по сути фильм пацифистский. История проста. Анри Туссен из Франции и Фредерик Фабер из Германии - хорошие друзья. Тем более Анри влюблен в сестру Фредерика, Лизу. Но вот начинается война. Анри присоединяется к французской армии, а Фредерик добровольно вступает в немецкую армию. И теперь старые друзья - враги. (   Читать дальше...   )Производство: Германия / ApolloЖанр: короткометражный, военный, драма, немое киноРежиссер: Рино ЛюпоАктеры: нет сведенийПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C776E8BC91DB7F39C99F45C2D06ABE324399C730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784978   (69429) от 14.03.2025
-
-Шрифты - Creative Market - Atega - Stylish Luxury Logo Font - 290828702 [OTF, TTF, WOFF, WOFF2]
+Шрифты - Creative Market - The Tragic Romantic - 290869057 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69429.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Atega, шрифт, воплощающий суть современной роскоши и вневременной элегантности.
+Tragic Romantic — это шрифт, выполненный вручную кистью и чернилами, который оснащен 3 моделями Regular, Italic, Outline. Этот шрифт идеально подходит для использования в смелых акварельных дизайнах или рукописных стилях.
 
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCFBB66C19711950CB19E2426AF13C727F1FDA34
+magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,25 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785017   (69428) от 14.03.2025
+###  Публикация: 1783600   (69736) от 07.03.2025
 
-Журнал | Дачный клуб №2 (167) (февраль 2025) [PDF]
+VA - 3 Years Anniversary House Furia - Music Collection (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Журналы
->>Домоводство (журналы)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69428.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
+01. FaraoN & Nowakowski - No Matter What (04:51)
+02. FaraoN - Remind You (04:36)
+03. FaraoN & Iriser - Love To Hold (03:50)
+04. Ijan Zagorsky - Stay (04:17)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:33:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:181383798F5E1681B35DFCF914DA5AC697ECA6BF
+magnet:?xt=urn:btih:AD2C6D2AECFE78400092F005254E4BC71BB3B3A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,214 +253,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785071   (69426) от 14.03.2025
+###  Публикация: 1783751   (69735) от 07.03.2025
 
-Mancol - First Look (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space And Time (Extended Edit) (5:32)
-02. Oh My Lady (Long Edit) (7:26)
-03. Angel Of Love (Extended Edit) (5:46)
-04. Open Eyes (Extended Edit) (5:08)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E84D1C7977744D973ED1C6A71086C8657F80B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785087   (69425) от 14.03.2025
-
-Девочка и слон (1969) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм по мотивам рассказа Александра Ивановича Куприна о больной девочке, к которой по назначению врача привели настоящего живого слона из зверинца. После встречи и чаепития со слоном девочка выздоровела.Производство: СССР / СоюзмультфильмЖанр: Мультфильм, рисованный, короткометражный, детский, экранизацияРежиссер: Леонид АмальрикСубтитры: отсутствуютПродолжительность: 00:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BFFBCA2BD1CDC127F253699FCF735EB1C1A7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785049   (69424) от 14.03.2025
-
-Zventa Sventana - коллекция (4 издания) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Folk, World & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zventa Sventana — российский музыкальный проект Тины Кузнецовой и Юрия Усачёва.
-Команда переосмысляет фольклор и адаптирует его для современного слушателя. Треки Zventa Sventana основаны на архивных народных песнях, собранных российскими фольклористами в период с конца XIX века по конец 1970-х. Группа работает со множеством жанров и смешивает фольклор с электронной (   Читать дальше...   )2006 - Страдания
-2019 - Мужа дома нету (EP)
-2021 - На горе мак
-2023 - Звента СвентанаЖанр: Electronic, Folk, World & CountryПродолжительность: 02:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785160   (69423) от 14.03.2025
-
-TuneIn Radio Pro v37.6 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69423.jpg" />
-</div>
-
-
-###  Подробнее
-
-TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении. Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на вас впечатление.Тип издания: Paid / Mod ExtraРелиз состоялся: 13.03.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3AD934638ABC2626E0F5DAE01ADF387E5C8128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785028   (69422) от 14.03.2025
-
-Журнал | Просто, вкусно и полезно! №3 (март 2025) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных рецептов. Все рецепты в этом журнале от читателей, они проверены ими не раз, из доступных продуктов и с простым способом приготовления. А чтобы довести их до совершенства - сделать еще вкуснее и полезнее, то тут вам помогут комментарии специалистов: шеф-повара и врача-диетолога.Жанр: КулинарияИздательство: Александр ИоффеФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C743580684C9529CB7FFC8D9C2A990EEE3A6AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785159   (69421) от 14.03.2025
-
-DailyArt - Daily Dose of Art v3.4.3 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69421.jpg" />
-</div>
-
-
-###  Подробнее
-
-DailyArt — приложение №1 для изучения истории искусства. Каждый день черпайте вдохновение в прекрасных шедеврах классического и современного искусства и читайте короткие рассказы о них. Присоединяйтесь к сообществу любителей искусства, для которых DailyArt — это то, что освещает их день, каждый день.Тип издания: PremiumРелиз состоялся: 13.03.2025Разработчик: MoiseumПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EBD9D108F8C50D9C6E267026A334D56802289EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785038   (69420) от 14.03.2025
-
-Whispered Secrets 16: In the Cards (2025) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение захватывающей мистической серии игр Whispered Secrets. Вас предстоит расследовать исчезновение любимой всеми сестры-близнеца. Но вы быстро понимаете, что все здесь не так, как кажется на первый взгляд. Это лишь последнее из нескольких подобных исчезновений, и у вас мало зацепок. Несчастные жертвы бесследно пропали. Проблема в том, что если вы ищете неприятности, (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A633B1C4E97057BC5799B5CD91FA6DC81F79622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785083   (69419) от 14.03.2025
-
-Звуковые библиотеки - Gobuz - Wild Jungle Sound Effects [FLAC]
+Шрифты - MyFonts - Prayuth [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69419.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джунгли являются естественной средой обитания многих диких животных и растений на планете. Прослушайте естественную атмосферу джунглей: Шёпот летнего зеленого леса, ветер в горах, тропический огонь, под звездами в джунглях, сверчки в ночи и т.п.Формат: FLAC
+Prayuth — это современный шрифт без засечек, состоящий из 32 шрифтов в 8 весах с опциями normal и slim. Это уникальный и современный шрифт без засечек, который хорошо подходит для различных типографических приложений, таких как заголовки и небольшие тексты.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:213B0D344DAAB7AFD09CF56B1B0E71DEE9E54AF7
+magnet:?xt=urn:btih:6FBCC1268AFB3FACE1F8163169FDE618EE060AE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +281,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785080   (69418) от 14.03.2025
+###  Публикация: 1783811   (69734) от 07.03.2025
 
-Coolio - Greatest Hits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Dance>
+VA - TRIPPY CODE Best of Vol.01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abel Blanes - Just A Dream (Sabeel Chohan Radio Remix) [3:10]
+02. Abel Blanes - Just A Dream (Radio Edit) [5:09]
+03. Abel Blanes - Deep Red (Radio Edit) [3:26]
+04. Abel Blanes - Empty Streets (Radio Edit) [4:11](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC73C3787580F1B5CFA715B86EBC6913D935F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783773   (69733) от 07.03.2025
+
+VA - Best of Trippy Code Chill House Vol.1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Sono - Insomnia (Extended Mix) [4:25]
+02. ELI DAVID - Your Time (Original Mix) [8:01]
+03. Fehrmon & Overmute - Loneliness (Original Mix) [9:06]
+04. Shlomi Shanti - Dajame Marte (Original Mix) [5:14](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5CAE5210122DD5F4433C112194C14FC8D00DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783710   (69732) от 07.03.2025
+
+Zombie Zombie - Funk Kraut (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69418.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Gangsta's Paradise (feat. L.V.) [4:02]
-02 - Ooh La La [4:06]
-03 - County Line [2:58]
-04 - Rollin' with My Homies [4:07](   Читать дальше...   )Жанр: Hip-Hop, Rap, DanceПродолжительность: 00:40:28
+01 – No Cruise Control
+02 – Densite
+03 – Jungle the Jungle
+04 – Helix(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7069C1E5F3FD335F29E109E70D0BFD95E7B09F6A
+magnet:?xt=urn:btih:BC33762E63930E343D8F05425CA4D26B9F8FB0A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785044   (69417) от 14.03.2025
+###  Публикация: 1783669   (69731) от 07.03.2025
 
-djdtime - Minimal Tech House Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+VA - Armin van Buuren - A State Of Trance 1215 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69417.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take the Dive (4:46)
-02. Locked Groove (4:11)
-03. Bassline Addiction (6:57)
-04. Circuit Flow (4:42)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:17:51
+01. Cosmic Gate & James French - I'm On Fire (Progressive Pick)
+02. Armin van Buuren & Bon Jovi - Keep The Faith (Future Favorite)
+03. LightControl - Like A Ghost
+04. Hel:sløwed & 88Birds - Come Undone(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D23EA204E26A8E4CEBF387492BBFC94498F6B333
+magnet:?xt=urn:btih:5C736AC30451A00692C648CADFE54EDD94CC2F05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +397,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785070   (69414) от 14.03.2025
+###  Публикация: 1783935   (69730) от 08.03.2025
 
-VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
+Журнал | Linux Magazine №4 (293) (апрель 2025) [PDF][EN]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69414.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scotch - Disco Band (4:07)
-02. Righeira - Vamos A La Playa (5:09)
-03. Valerie Dore - The Night (6:17)
-04. Ryan Paris - Dolce Vita (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:29:22
+Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Linux New Media USA, LLC.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C7DA615F00DFCD0D2C58CE47C7A91565A3C3497
+magnet:?xt=urn:btih:2E8DA51DB88F47F56710803BFFC180E103801189
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +423,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785105   (69413) от 14.03.2025
+###  Публикация: 1783969   (69729) от 08.03.2025
 
-Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+Инухико Ёмота | Теория каваии (2018) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69413.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Way You Look Tonight [3:47]
-02. Nutmeg [3:13]
-03. What's New [3:29]
-04. Surf Ride [2:52](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:44:46
+Современная японская культура обогатила языки мира понятиями «каваии» и «кавайный» («милый», прелестный», «хорошенький», «славный», «маленький»). Как убедятся читатели этой книги, Япония просто помешана на всем милом, маленьком, трогательном, беззащитном. Инухико Ёмота рассматривает феномен каваии и эволюцию этого слова начиная со средневековых текстов и заканчивая (   Читать дальше...   )Жанр: японистикаИздательство: Новое литературное обозрениеФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1AD28F0C4A7DF4560928EEAA218A1410A39E4A2
+magnet:?xt=urn:btih:CDE385B6444D2C2F31A16A482052D39A00619DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784951   (69412) от 14.03.2025
+###  Публикация: 1783918   (69728) от 08.03.2025
 
-Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
+Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave, Modern Classical>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Saints In Torment
-A2 - Contamination
-A3 - Progressive Destructor
-A4 - Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:00
+01 - Lament [9:33]
+02 - Ein Sturm zieht auf [7:31]
+03 - Ein langer Weg [7:35]
+04 - Du bist alles was ich will [5:43](   Читать дальше...   )Жанр: Gothic Metal, Dark Wave, Modern ClassicalПродолжительность: 01:07:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FA06595D62FEB50298EBC18DE98F4753D2661B8
+magnet:?xt=urn:btih:FF9C0D64C98BE107B7A89178A96EFBDEDF44344C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +478,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785110   (69411) от 14.03.2025
+###  Публикация: 1783934   (69727) от 08.03.2025
 
-Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
+Экшены - GraphicRiver - Valentines Day Photoshop Action - 21277793 [ATN, ABR]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69411.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bud's Bubble [2:35]
-02. Tempus Fugit [2:28]
-03. Celia [3:00]
-04. Cherokee [3:38](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:33
+От автора "Мои экшены для Photoshop разработаны, чтобы сэкономить вам дни, недели или месяцы работы. Они идеально подходят для новичков и экспертов, экономя вам массу времени при работе над личными или коммерческими проектами.".Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:972FF89CAF3E393560524C89C8711221117C6ED6
+magnet:?xt=urn:btih:0BD2A4EFD7CF1A8C2F672107B550AD815F0DC302
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +504,214 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785098   (69410) от 14.03.2025
+###  Публикация: 1783894   (69726) от 08.03.2025
 
-Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
+VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69410.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 When The Moment Of Death Arrives
-A2 Rot To Dead
-A3 Disengagement
-A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:50:29
+01.  Аркадиас - Я подарю тебе солнце (3:43)
+02.  Татьяна Буланова - Эра Водолея (3:19)
+03.  Михаил Бублик - Верю в любовь (3:37)
+04.  Артур Руденко - Беги не беги (3:15)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 02:33:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
+magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783922   (69725) от 08.03.2025
+
+Rock Identifier - Stone ID v2.3.51 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 07.03.2025Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99BE56431E0CBD6AA39162E63B71848524A6D590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783895   (69724) от 08.03.2025
+
+Домино v1.70.1 Mod by vadj [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домино, безусловно, одна из самых известных настольных игр в мире. Существуют десятки правил, но три варианта правил привлекают наибольшее внимание:
+- Взять костяшку: простая, расслабляющая игра, играйте своими костяшками на оба конца. Вам нужно только сопоставить масть костяшки, из имеющихся у вас, с мастью костяшки на одном из двух концов.
+- Блокировать костяшку: (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.03.2025Разработчик: Loop GamesПоддерживаемая ОС: Android 6.0+Жанр: Настольные игрыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BF08289F7F59959ED4336B0586EDD29F84A1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783929   (69723) от 08.03.2025
+
+Звуковые библиотеки - Amazon - Best Ever Sound Effects - 268 FX [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69723.jpg" />
+</div>
+
+
+###  Подробнее
+
+От фейерверков до реакции толпы – эта коллекция охватывает все. Работаете ли вы над фильмом, игрой, подкастом или любым другим мультимедийным проектом, вы найдете идеальный звуковой эффект, чтобы воплотить свое видение в жизнь. С профессионально записанными и обработанными аудио-файлами вы можете создавать захватывающие эмоции, которые увлекают вашу аудиторию и оставляют (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D51BA2C64CF3A03FC8860102AEFA36F95AF1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783903   (69722) от 08.03.2025
+
+Emurasoft EmEditor Professional 25.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69722.jpg" />
+</div>
+
+
+###  Подробнее
+
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B3330F0B3D5D5B06DAA8C8E18020C9EEF62975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783979   (69721) от 08.03.2025
+
+Святое место / Sveto mesto (1990) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на повести Н. В. Гоголя «Вий»... После таинственной смерти девушки Катарины поповичу Тому предлагается три ночи читать молитвы у её гроба в деревенской церкви. Страшные рассказы о ней, что она при жизни вступила в отношения с нечистыми силами, о её греховных отношениях с отцом, а также о её жутких оргиях, не могут погасить любовь юного поповича. В то (   Читать дальше...   )Производство: Югославия / Magna Plus, Radiotelevizija BeogradЖанр: ужасы, драмаРежиссер: Джордже КадиевичАктеры: Драган Йованович, Бранка Пуич, Александар Берчек, Мира Баняц, Данило Лазович, Майя Саблич, Предраг Милетич, Радош Байич, Драган Петрович, Душан ЯничиевичПеревод: любительский одноголосый (Александр Казаков)Язык озвучки: русский, сербскийСубтитры: русские (Toby & lebur), английскиеПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E28A7AF7409E185ED04753AD04880A082E119D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783924   (69720) от 08.03.2025
+
+PictureThis - Plant Identification v5.1.4 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 08.03.2025Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B37CCBA3BAD606428A4EAA62777C5ABC24F6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783865   (69719) от 08.03.2025
+
+Американский ниндзя 2: Схватка / American Ninja 2: The Confrontation (1987) BDRip [AV1/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит на острове Святого Томаса в Карибском море, куда американский наемник Джо Армстронг и сержант Кертис Джексон прибывают для расследования таинственного исчезновения группы морских пехотинцев.
+Очень скоро они натыкаются на следы чудовищной операции с наркотиками, руководимой могущественным наркодилером по прозвищу Лев. Он похитил пехотинцев, чтобы (   Читать дальше...   )Производство: США / Cannon Group, Golan-Globus Productions Ltd.Жанр: боевик, драма, комедияРежиссер: Сэм ФёрстенбергАктеры: Майкл Дудикофф, Стив Джеймс, Ларри Поиндекстер, Гэри Конуэй, Джефф Челентано, Мишель Боутс, Майк Стоун, Лен Спэрроухок, Джонатан Пиенаар, Билл КерриПеревод: Двуголосый профессиональный, Авторский, Любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B3C7D7F46E6D81BF80B7D2E24EED3BC58160B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

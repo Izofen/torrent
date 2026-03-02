@@ -1,173 +1,3 @@
-###  Публикация: 594868   (133043) от 27.12.2012
-
-VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC|Lossless]<Classical, Chamber, Waltz, Polka, Galop, Landler>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, Chamber Music/Recitals, Renaissance Period, Waltz, Operetta, Polka, Galop, Landler, MedleyПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690244   (123798) от 08.01.2024
-
-VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-03. Dina Bolshakova - Cello Suite No.1 in G major, BWV 1007 I. Prélude (2:37)
-04. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Var. 1 (2:05)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA4787668C5BB2CCE1CDA15EB585CF0CB06A8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691906   (122619) от 16.01.2024
-
-Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Soundtrack>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The City Of Prague Philharmonic Orchestra - Epilogue - The Falls (From The Mission) (1:39)
-02. The City Of Prague Philharmonic Orchestra - Main Theme (From Once Upon a Time in America) (2:10)
-03. The City Of Prague Philharmonic Orchestra - Main Theme (From Hamlet) (2:38)
-04. Royal Stockholm Philharmonic Orchestra, Alexander Shelley & Daniel Hope - Love Theme (   Читать дальше...   )Жанр: Classical, Instrumental, SoundtrackПродолжительность: 04:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE5C1E2E7A04DC550AE005A85287884C689131E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693579   (121176) от 24.01.2024
-
-VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-02. Denis Shapovalov, Alexander Vershinin - 14 Romances, Op. 34 No. 14, Vocalise (Arr. for Cello and Piano) (5:26)
-03. Sergey Bryukhno - Sonnet in C Major (1:25)
-04. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB33BF7266D84E59C71022F47965061171D3DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694921   (120134) от 30.01.2024
-
-VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
-02. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (2:38)
-03. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique I. Grave - Allegro di molto e con brio (9:07)
-04. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072611F24BF56D68BF07D5480E931BC00E1CC560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702300   (115560) от 26.02.2024
-
-VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonard Slatkin - Satie - 3 Gymnopédies - No. 1 in D Major (3:19)
-02. John O'Conor - Debussy - Préludes, Book 1, L. 117 - No. 8, La fille aux cheveux de lin (2:35)
-03. John O'Conor - Debussy - Suite bergamasque, L. 75 - III. Clair de luneЖанр: ClassicalПродолжительность: 03:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A4DC888BA0BEF1C3D3BE06F59C6BE13987267B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712786   (112131) от 03.04.2024
 
 VA - The Most Famous Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -747,6 +577,179 @@ VA - Classical Instrumental Masterworks (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC51652C4ED4081791ED17312C735275B7F2C684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719009   (58342) от 27.04.2024
+
+VA - Top 50 Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frédéric Chopin & Elisabeth Leonskaja - Nocturnes, Op. 9 No. 2 in E-Flat Major. Andante (5:04)
+02. Johann Strauss II, Willy Boskovsky & Vienna Strauss Orchestra - An der schönen blauen Donau, Op. 314 (3:11)
+03. Ludwig van Beethoven & Mikhail Pletnev - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (7:14) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8739821C3CED688C02D3BFB3FD90601B969F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719374   (58132) от 29.04.2024
+
+VA - The Best Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+02. Sergey Bryukhno - Romance in E-Flat Major for Piano and Viola (2:52)
+03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+04. Katya Kramer-Lapin - 24 Préludes, Op. 28 No. 4 in E-Minor (2:53)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FDDFFB92391A1862E8B24CCFC06280E019BB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722437   (56868) от 11.05.2024
+
+VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Mikhail Mordvinov - Fantasia in D Minor, KV 397 (5:34)
+03. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF2326726B6851A68C764EE22335A44BDF07760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724574   (55929) от 20.05.2024
+
+VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_55929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)
+02. Sergey Bryukhno - Cinematic (2:47)
+03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728332   (54154) от 06.06.2024
+
+VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:37)
+02. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+03. Sergey Bryukhno - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air Air on the G String (Arr. for Viola, Strings and Harpsichord by Sergey Bryu (4:38)
+04. Sergey Bryukhno - Sonnet in C Major (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732524   (52002) от 25.06.2024
+
+VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1617024   (1035554) от 05.03.2023
+
+VA - The Official UK Top 100 Singles Chart 09.03.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miley Cyrus - Flowers
+02. PinkPantheress, Ice Spice - Boy's a liar Pt. 2
+03. SZA - Kill Bill
+04. The Weeknd, Ariana Grande - Die For You (Remix)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBD3E9DA71D5A2D8E790D6C628C44BED1F3C7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616647   (1035534) от 05.03.2023
+
+VA - The Amazing Dancehall Music (2023) [MP3|320 Kbps] <Reggae, Dub, Dancehall>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Synthdicate Music - So We Tan [02:17]
+002. Lady Lykez & Scratcha Dva - Woza [02:31]
+003. Sponge Music, Knaxx - Born Ruff [03:04]
+004. Sponge Music - Days Like These [03:02](   Читать дальше...   )Жанр: Reggae, Dub, DancehallПродолжительность: 07:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582A9A64B0BF7FE1C9D1CBC5A4182D343505AD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617074   (1035525) от 05.03.2023
+
+VA - Record Super Chart 04.03.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+02. Lost Frequencies feat. Elley Duhe & X Ambassadors - Back To You (2:37)
+03. Miley Cyrus - Flowers (3:20)
+04. Lady GaGa - Bloody Mary (Clinton Sparks Remix) (4:02)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07DB34AE015446A4E87A198DFAE914DE173A95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443622   (1035463) от 29.01.2021
+
+VA - MusicSex & You (2021) [MP3|320 Kbps] <Pop, RnB, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Foundation - Eyes on Fire (5:02)
+02. Royksopp - Here She Comes Again (5:02)
+03. Lloyd, Teddy Riley - Slow Wine Bass Line (4:33)
+04. The Coriolis Project - Shadows (4:32)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 03:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FCF500447B03EC7CB67E8C10042DCB2E0B0E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443656   (1035225) от 30.01.2021
+
+VA - Beatport Tech House: Electro Sound Pack # 233 (2021) [MP3|320 Kbps] <Tech House, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс-сборник 233-го релиза с площадки Beatport сумеет заинтересовать своих слушателей своей "танцевальностью" и в полной мере качественным музыкальным материалом. Релиз можно слушать буквально с любого трека, интерес к лонгплею от этого не уменьшиться. Он отлично прийдётся и для угарной праздничной вечеринки, и для наполнения тишины в собственном авто.001. Traudel At Work - Was Weiss Ich
+002. Traudel At Work - Perfektlos Song
+003. Flash - What You Think
+004. Techno House - Try Disco (Original Mix)(   Читать дальше...   )Жанр: Tech House, Club, ElectroПродолжительность: 08:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DF2219CB58675FCD113509FC4C547249DE5F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443662   (1035186) от 30.01.2021
+
+VA - HGM Vocal Trance Mix Vol.03 (2021) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем поклонникам музыки в стиле транса представляем очередной 3-й релиз от House Garden Music. В суматохе нашего времени это музыкальное вдохновение в царстве света и надежды. 55 треков, полных призывного тепла, позволяют обратиться к тому, что необходимо и объединяет нас в жизни.01. Adip Kiyoi & Anhydrite - Love Will Heal You
+02. Seven Lions - Higher Love
+03. Kate Miles & Norni - Silver Lining
+04. Erik Hakansson - Weightless(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 04:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA5A91EE57FD1D1103A771E7D1B1F66A4A5BABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444154   (1034961) от 31.01.2021
+
+VA - Beatport Trance: Electro Sound Pack #235 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034961.jpg" />
+</div>
+
+
+###  Подробнее
+
+С большим удовольствием рекомендуем этот 235-й релиз от Beatport почитателям прогрессивного транса. Многие современные исполнители не могут пройти мимо этого замечательного стиля, они вдохновляются старыми хитами, создают новые хиты, двигая в народ и распространяя по планете эту популярную музыку.001. Metta & Glyde - Renaissance
+002. Alexander Komarov - The Moment
+003. Bryan Kearney - From The Inside
+004. James Dust - Daylight(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 14:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF903BC3F2DC5E1DE80548C1131CD7563A8DB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444157   (1034958) от 31.01.2021
 
 VA - Beatport Deep House: Electro Sound Pack #234 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -542,209 +745,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9DF365622008048AA023AAE0DC20D0B25B15B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444782   (1034201) от 03.02.2021
-
-VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на праздник настоящей Рок музыки! Ценители качественного звука и мастерского исполнения, радуйтесь! Здесь все по-настоящему! «Thе Jаdеd Hеаrts», «Nеurоtiс Fiсtiоn», «Stаnd Atlаntiс», «Hаllоwееn In Hеll», «Sodom» и многие другие мастера современной рок-сцены громоздят сумасшедшие аккорды и рифы, а также виртуозно исполняют свои партии!001. Maggie Cassidy - S.A.D
-002. Billy Nomates - Modern Hart
-003. Outloved - Hurt Me
-004. Division Of Laura Lee - Sit Up Straight(   Читать дальше...   )Жанр: RockПродолжительность: 11:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757CA35AA69DEBBEF62EE4A19229D4874A81C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444786   (1034190) от 03.02.2021
-
-VA - Big Rap Review (2021) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем, без исключения, любителям правильной музыки предлагаем сборник современных лучших исполнителей в стиле репа и хип хопа. Слушайте музыку сборника в машине или дома и поднимайте настроение на весь трудовой день себе и друзьям.001. Capolow - Next Episode
-002. MC Eiht - You The One
-003. Kota The Friend - B.Q.E
-004. Bsuavee - World To Me World To You(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C66A9E521B3F7F4DB7583FFC5AF3AD2B3F65F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444827   (1034180) от 03.02.2021
-
-Tom Rigney - Best Of The Master's Work (2008-2012) [MP3|320 Kbps] <Blues, Country, Folk>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том Ригни - американский музыкант из Сан-Франциско. Вокал и Блюз - его специализация, а ещё он виртуозно играет на скрипке. Так же является лидером американской музыкальной группы Roots, Tom Rigney and Flambeau.01. Back Porch Blues
-02. Hey Little Dancer
-03. Just Your Fool
-04. Lunch With Satans Grandma (Feat  Anthony Paule Norton Buffalo And Caroline Dahl)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 04:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F57E89E25ED93593C9A0B184EAF7C1880AE4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444832   (1034179) от 03.02.2021
-
-Gruро Bryndis - Simplemente Gracias (2021) [MP3|320 Kbps] <Rock Blues, Rock Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё одна мексиканская группа из города Масатлан музыкальное творчество которой включает в себя органичный симбиоз электро музыки и традиционной фолк акустики.01. Contigo
-02. La Caja De Pan
-03. Gente Batallosa (Feat. Banda Carnaval)
-04. Un Imposible A Tu Medida(   Читать дальше...   )Жанр: Rock Blues, Rock CountryПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE1DA5101CBD7AC708E816BB3D9AF17324E4500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444704   (1034154) от 03.02.2021
-
-VA - Hard Dance 2021 [MP3|320 Kbps] <Dance, Club, Hard Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kandiz - Jabberwocky (3:20)
-02. Critical Strikez, Konstruktor, JacQ - Give & Take - Konstruktor & Jacq Remix Edit (3:43)
-03. Ganar - Ready For Ya - Extended Mix (4:30)
-04. Ultravibes - Nothing Stopping Us (4:30)(   Читать дальше...   )Жанр: Dance, Club, Hard DanceПродолжительность: 03:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F00A1BA764A6779E4FA6B1FF3D7877EBF41BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618474   (1034140) от 11.03.2023
-
-VA - E-Dance Basslife (2023) [MP3|320 Kbps] <DnB, Bassline, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034140.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seba - Couchsurfing
-002. Fracture - Maximum Respect
-003. Exile & Xidus Pain - Kill Dem Wid Di Vibe
-004. Red Manta - All I Ever Needed(   Читать дальше...   )Жанр: DnB, Bassline, Jungle, DubstepПродолжительность: 12:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C8ACF8065E0669B5969E6661E1809706122B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333116   (1034034) от 11.03.2023
-
-VA - Понемногу отовсюду by Yuridar #R (1962-2023) Compilation Album [MP3|256-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.L. Burnside - Everything Is Broken
-02. R.L. Burnside - It's Bad You Know
-03. R.L. Burnside - The Criminal Inside Me
-04. Rachel Sermanni - Run(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697BB58DA2E1152FC8F458B82397E62FB3D02F95
 ```
 
 https://mybot314.ru/tekegram_catalog/

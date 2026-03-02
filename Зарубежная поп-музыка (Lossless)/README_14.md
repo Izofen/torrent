@@ -1,3 +1,119 @@
+###  Публикация: 1366932   (917239) от 15.03.2020
+
+VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Jones-Twist And Shout (1:31)
+02. Chuck Berry-Roll Over Beethoven (2:18)
+03. Bill Haley & His Comets-See You Later Alligator (2:41)
+04. Eric Lee-High School Confidential (2:25)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516CC9504BEC566C4971CF0623B50D831F7F042A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367085   (917237) от 15.03.2020
+
+VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Light Orchestra - Rock And Roll King (3:48)
+02. Katrina & The Waves - Walking On Sunshine (3:58)
+03. Shakin' Stevens - Marie Marie (2:48)
+04. Kenny Loggins - Footloose (3:42)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DCD29EF1DFA7BAFDBADA9736FD8500A26566D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989168   (916637) от 22.02.2016
+
+Shania Twain - 6 студийных альбомов и 2 сборника (1993-2007) [FLAC|Losless|image+.cue] <Country, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальная дискография Шанайи Твэйн по версии Википедии и Wikipedia:
+1. Shania Twain (20 апреля 1993)
+2. The Woman in Me (7 февраля 1995)
+3. Come on Over (4 ноября 1997)(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 09:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989875   (915693) от 23.02.2016
+
+VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana International - Women In Love (3:41)
+02. Dionne Faux - My Heart Will Gone On (4:23)
+03. Didi - Believe (4:22)
+04. Michael T - Horny (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490780   (915654) от 22.08.2021
 
 Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -626,122 +742,6 @@ Mylene Farmer - Plus grandir: Best Of 1986-1996 (2021) 2CD [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B23CED892C4ED9D54622C2104FF8A0B94F4B6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322757   (905359) от 28.08.2021
-
-Tracey Thorn - Full Studio Discography (1982-2018) [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen (4:17)
-02. Air (3:03)
-03. Guitar (2:33)
-04. Smoke (4:11)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159A3CE28E0EF68F7E9F682455695E60ECB9B104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369190   (903812) от 23.03.2020
-
-Bosson - Best of 11-Twelve (2013) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardian Angel (3:40)
-02. Every Single Time (3:58)
-03. Baby I Believe In You (3:44)
-04. Loveshock (3:21)(   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ADDCDB4244FB215D23CFACC4224D2A96B75414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369274   (903293) от 23.03.2020
-
-Dua Lipa - Future Nostalgia (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Future Nostalgia (03:04)
-2. Don't Start Now (03:03)
-3. Cool
-4. Physical (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE3F7E234D2366E2414F29BBE36539F9D8646DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992194   (902719) от 01.03.2016
-
-VA - Tulum Za Dusu Vol.9 - U Konobi (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver - Nadalina (4:47)
-02. Tomislav, Dani I Vedran - Pisme Iz Konobe (3:17)
-03. Novi Fosili - Diridonda (3:07)
-04. Trio Gust - Sve Su Koke Poludile (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC6335368C2C0B47216A4D50FA4A6C74EB19288
 ```
 
 https://mybot314.ru/tekegram_catalog/

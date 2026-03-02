@@ -1,3 +1,32 @@
+###  Публикация: 1230547   (613947) от 13.06.2018
+
+VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613947.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marilyn Manson - The Beautiful People
+002. Monster Magnet - Space Lord
+003. Bai Bang - Crazy Night
+004. Atomic Rooster - I Can't Take No More(   Читать дальше...   )Жанр: Rock, Hard Rock, Alternative, MetalПродолжительность: 10:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13832FB16407C67DE1C080A651AB9FDD7D54201D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230756   (612178) от 14.06.2018
 
 VA - Sound Of 70's Rock (2018) [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ VA - New Rock 2022 [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DC950E1693927CB66D2F7829BEF47B66431855B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300625   (587952) от 08.05.2019
-
-Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas Rising
-02. Jawbreaker
-03. Love Zone
-04. Leather Rebel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1192890   (262494) от 19.12.2017
+
+VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262494.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Electro Beat Orchestra - Make Me Fly (Extended Mix)
+002. EUCARIONTES - Tell Me More (Original Mix)
+003. Achtabahn, Matt Andersen - Ain't No Sunshine
+004. Fly & Sasha Fashion - Wake Me Up (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192996   (262493) от 19.12.2017
+
+VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Click feat. Sting - Running Down Again (Mason Extended Remix) 5:58
+02. A-Mase & Sharliz - I Never Felt So Right (Original Mix) 5:38
+03. Abity - Love Parttern (Original Mix) 7:07
+04. Alex Panchenco, Bogdan Shuvalov - Escobar (Original Mix) 6:24(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE4B9B05F978DDCFDAE82EFDFBD0B1046E9EF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193029   (262482) от 19.12.2017
+
+VA - Amazing Vocal Future Bass 3 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aero Chord & Anuka — Incomplete (4:17)
+02. Anevo feat. Heather Sommer — Can’t Stop (Original Mix) (3:25)
+03. Armin van Buuren & Garibay feat. Olaf Blackwood — I Need You (ANGEMI Extended Remix) (5:00)
+04. Audien + 3LAU feat. Victoria Zaro — Hot Water (YOOKiE Remix) (3:23)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87359491134A5236646604C607933BAD944184D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192983   (262443) от 19.12.2017
+
+VA - Кудесница Осень (2017) [MP3|256-320 Kbps] <Шансон, авторская Песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262443.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Новиков - Девочка-огонь
+002. Группа Братва & Игорь Махачкалинский - За Пацанов
+003. Александр Келеберда - Было В Жизни Все По Масти
+004. Андрей Бандера - Заплутала Моя Душа(   Читать дальше...   )Жанр: Шансон, авторская ПесняПродолжительность: 12:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A390F03284D569C9449ED7E72F0FBB0C4EB2917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192999   (262428) от 19.12.2017
+
+VA - Deep House Collection vol.149 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Kilo - Duro Igual Concreto (Hisashi & RFeL Remix) 5:48
+02. Aaliyah - Try Again (Hakan Akkus Remix) (Idyl Cover) 4:17
+03. Abity - Blood Project (Original Mix) 7:33
+04. Ace - Need to Feel Loved (Original Mix) 8:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 14:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7056BB128BD5CF63D270F7EA7798BB8C982E741A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341461   (262351) от 28.11.2019
+
+VA - Green Rave Bass (2019) [MP3|320 Kbps] <Drum And Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devastate - Trust Issues
+02. Didier Lomba - Opening
+03. Prolix - Snake
+04. E Lisa Ft Iffy Palmer - Let Go(   Читать дальше...   )Жанр: Drum And Bass, JungleПродолжительность: 05:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B0E78BB27A814F90A626252C12B871B886F477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341553   (262349) от 28.11.2019
+
+VA - The Taste Of Gold (2019) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jclarke1880 - Mekhong (Original Mix)
+002. Chiqito - Get Funky (Original Mix)
+003. Traumfabrik - Jack To Jack (Original Mix)
+004. Hokasa Toro - Build Up Drop (A.I. Beats Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 11:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1238EEE677112928ED473B2E20AD4E8982B89941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341457   (262347) от 28.11.2019
 
 VA - Shallow Sleep: Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -542,209 +745,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33308280F3E61ADEA205989C3A07756856AA946B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193966   (261760) от 23.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 3) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Вадим Мулерман и ВИА 'Ребята с Арбата'  -  Для чего  2:06
-02.  Людмила Зыкина  -  Подари мне платок  3:23
-03.  Анатолий Королёв  -  Парень с песней шёл по свету  2:35
-04.  Анна Герман и Стахан Рахимов  -  Ты, только ты  3:00(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86325547B3DD747C382E893D99A9DE35D8E1C22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194116   (261757) от 23.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 6) (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Лев Лещенко  -  Прощай  4:07
-02.  Мария Пахоменко  -  Мужчины  2:54
-03.  Анатолий Королёв  -  Пойте о любви  4:02
-04.  Муслим Магомаев  -  Песня о капитане  3:04(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C3FE38A422BA84E5B33ABD8F10E2F8AD204F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838816   (261536) от 24.11.2025
-
-VA - The Iron Apocalypse (2025) [MP3|320 Kbps] <Metal, Death, Black>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261536.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Within Destruction - A Love That Slowly Died (02:30)
- 002. Monolith - Trial Of Society (04:31)
- 003. Warfield - With The Old Breed (04:12)
- 004. Slizard - The Curious Man (02:50)(   Читать дальше...   )Жанр: Metal, Death, BlackПродолжительность: 13:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241BEE13C7523699424AC81F1F40FDB7C73A80CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838805   (261491) от 25.11.2025
-
-Green Dolls - Dark Cabaret Nights (2025) [MP3|192-320 Kbps] <Electro Swing, Nu-Jazz, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The House Always Wins
- 02 - The Black Cat Knows
- 03 - The Corridor Deal
- 04 - Money Laughs Louder(   Читать дальше...   )Жанр: Electro Swing, Nu-Jazz, OtherПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95E29851B5818EA8B53664DD2A21569BC3F8F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838802   (261490) от 25.11.2025
-
-VA - No name compilation Deep Chill Vocal House part 16 (2025) (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01 - Reteox - Guarda Indietro
-02 - Jam Music - Magnetic
-03 - Sardø - Amor Bonita(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC29E433A6CB4C394BA446D4BA6C4521212055A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838891   (261472) от 25.11.2025
-
-Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Turn To Ice (3:29)
-02. Dreams Are Made To Last Forever (4:16)
-03. Forever In Your Eyes (3:42)
-04. Heaven Is Calling (4:33)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 03:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838907   (261463) от 25.11.2025
-
-VA - Music News For Forum vol.150 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KATANA - Падший ангел (02:37)
- 002. 5 Пятниц - Фетиш (02:51)
- 003. 6LOCKMYHEART - Echelon No. 1 (01:49)
- 004. Alex Mueller feat. Retrika & Alan Krevo - Dance Zone (Extended Mix) (03:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30F59C487546420F4E8AE69813E6477D3EA8EEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

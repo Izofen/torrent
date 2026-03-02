@@ -1,3 +1,32 @@
+###  Публикация: 928717   (521371) от 17.08.2015
+
+Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - The Show Must Go On (04:29)
+02. Bryan Adams - Everything I Do (I Do It For You) (06:34)
+03. Elton John - Sorry Seems To Be The Hardest Word (03:48)
+04. Gary Moore - Still Got The Blues (06:09)(   Читать дальше...   )Жанр: Rock, Art Rock, Soft Rock, Pop RockПродолжительность: 08:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B14BE47583E4D03C05CB2BC78B723025D78A444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 228331   (521299) от 19.08.2010
 
 VA - Лучшие хиты НАШЕ РАДИО-3 (2010) [MP3|128 kbps]<pop>
@@ -725,35 +754,6 @@ VA - Purgatory: Metal Compilation (2019) [MP3|320 Kbps] <Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3A13DFF8A2621432212C9961EB78BE46B60A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782904   (476944) от 20.09.2015
-
-VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Lords - Precious Metal (Acoustic) [00:04:40]
-02. Last Autumn's Dream - I've Fallen Into You (Acoustic) [00:03:25]
-03. Brazen Abbot - Love Is On Our Side (Acoustic) [00:05:11]
-04. Sonic Station - I Wish I Could Lie (Acoustic) [00:04:04](   Читать дальше...   )Жанр: Acoustic MetalПродолжительность: 21:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8803BB8E8F130C05A9F9835A7CE273001ECC660
 ```
 
 https://mybot314.ru/tekegram_catalog/

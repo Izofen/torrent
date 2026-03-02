@@ -1,3 +1,119 @@
+###  Публикация: 1304665   (561708) от 27.05.2019
+
+Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Free (3:44)
+ 02. Keep on Loving (3:27)
+ 03. Love is a Flower (3:45)
+ 04. Walk with the Dreamers (4:18)(   Читать дальше...   )Жанр: Electronic, Synthpop, Reggae, DowntempoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CF0ADB7FE3C202D41D34647C6822FA0B85E54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924158   (560808) от 02.08.2015
+
+Natalie Imbruglia - Male (2015) [FLAC|tracks|WEB-DL]<Pop, Adult Alternative, Soft Rock, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Crush (4:57)
+02. Cannonball (3:28)
+03. The Summer (3:18)
+04. I'll Follow You Into The Dark (3:25)(   Читать дальше...   )Жанр: Pop, Adult Alternative, Pop Rock, Soft Rock, CoversПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70EA0ABFB80333C165D0FDF2AD3D373F3FB215F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304894   (559941) от 28.05.2019
+
+Sigrid - Sucker Punch (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sucker Punch (03:14)
+02. Mine Right Now (03:23)
+03. Basic (03:37)
+04. Strangers (03:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE6645081699D2AE7B050E9561689C4F68D34F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304885   (559917) от 28.05.2019
+
+VA - Inakustik Clearaudio 40 Years Excellence Edition (2018) [FLAC|Lossless|image + .cue] <Pop,  Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Charly Antolini - Jammin' (03:42)
+02.   Cameron Carpenter - Toccata & Fuge (08:47)
+03.   Yelena Eckemoff - Mommy's Shawl (05:06)
+04.   Brenda Navarrete - Mulata Linda (03:44)(   Читать дальше...   )Жанр: Pop,  FolkПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561703EBFE2A795EB7BE15E24DF35D4E253FFFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556384   (559857) от 09.06.2022
 
 VA - Feelin' Good (2004) 2xCD [FLAC|Lossless|image + .cue] <Pop, Rock, Disco>
@@ -630,119 +746,6 @@ Fortuna Ehrenfeld - Helm Ab Zum Gebet (2019) [FLAC|Lossless|tracks + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB988732D338CCDC68383D0042608464543CC1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307605   (554439) от 12.06.2019
-
-Prince - Originals (2019) Anthology [MP3|320 Kbps] <Pop, Rock, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Shooter
-02. Jungle Love
-03. Manic Monday
-04. Noon Rendezvous(   Читать дальше...   )Жанр: Pop, Rock, FunkПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C05D9E77049CB32044025D738621EFA7A16A81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307978   (554243) от 13.06.2019
-
-Real O - Платье (2010) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E08ADB4950812D6B5F5965A30A0ADDD32E371C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308305   (554121) от 13.06.2019
-
-Madonna - Madame X (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medellín (4:58)
- 02. Dark Ballet (4:15)
- 03. God Control (6:19)
- 04. Future (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985E0E851DB4F0F8932EC76D18D4545B14A0FA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308495   (553982) от 14.06.2019
-
-Bo Katzman Chor - Zwischen Himmel und Erde (2005) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the Book (3:38)
-02. Seek, Seek (3:10)
-03. Where Could I Go but to the Lord (3:43)
-04. Hole in the World (4:05)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632D8036A186CE1C76F6EFD3852D6331F8F13BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

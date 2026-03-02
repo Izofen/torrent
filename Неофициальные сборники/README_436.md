@@ -1,3 +1,219 @@
+###  Публикация: 1064420   (427906) от 19.10.2016
+
+VA - Billboard Top 40 Singles Chart (22-10-2016) [MP3|~245 Kbps (V0)] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как то на трекере никто не подхватил тему топов известных музыкальных лейблов. Поэтому представляю очередной Billboard Top 40 Singles Chart . Официальный хит-парада синглов Америки, отсортированных по результатам продаж за неделю, ведется с 1936 года американским журналом Billboard.
+Во все треки вшиты обложки альбомов.01. The Chainsmokers - Closer (feat. Halsey)  (4:05)
+02. twenty one pilots - Heathens  (3:16)
+03. Shawn Mendes - Treat You Better  (3:08)
+05. DJ Snake - Let Me Love You (feat. Justin Bieber)  (3:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F8C6C7C709ABFB620970086CE93A05FB371301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166153   (427889) от 15.09.2017
+
+Michael Jackson - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thriller  5:58
+02.  Earth Song  6:47
+03.  Billie Jean  4:54
+04.  Bad  4:07(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6720697C81449A5F4793202FF16DE077B945CC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064313   (427759) от 19.10.2016
+
+VA - Guitar Collection 8 (2016) [MP3|320 Kbps] <Blues, Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pete Haycock - Haunting   (03:02)
+002. Freddie Nystrom Power Trio - Nitro   (01:46)
+003. Ewan Dobson - Blood and Ice   (09:21)
+004. Papermoon Gypsys - Lonely Nights   (06:02)(   Читать дальше...   )Жанр: Blues, Rock, AcousticПродолжительность: 06:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA5195BB3DC23668E07A4435B754DD04E648758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064043   (427758) от 19.10.2016
+
+VA - Осенняя Бомба Года 50x50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427758.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elephante Feat. Brandyn Burnette - Plans
+002. Gladushevskyy & Новые Интеллигенты - Художник
+003. Sting & Mylene Farmer - Stolen Car
+004. Анжелика Пушнова - Мой Ангел(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575880DFDF488D3C29561B21214025AC7DB6971C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946357   (427148) от 13.10.2015
+
+Sabrina - Good Songs (2015) [MP3|128-320 кб/с]<Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guys And Dolls
+02. My Chico (Dub House Mix)
+03. My Chico
+04. Deep Water(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 04:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B856C747C95F0A09EFE29FF80519CBA4EFCED71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556364   (426858) от 05.10.2012
+
+VA - Абсолютный Русский Хит Сезона (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426858.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shami И Дима Карташов - Любовь На Расстоянии
+002. F. Jay feat. Olesya - Держи Меня За Руку (DJ Melnikoff feat. DJ Prado Remix)
+003. Валерий Меладзе и Вахтанг - Свет Уходящего Солнца
+004. Павла - Будь со мной
+005. Доминик Джокер - Если ты со мной
+006. Алеся Муха - I Say You True (Club Remix)
+007. Банзай - Ради Тебя
+008. Пицца - Париж
+009. Dress Code - Кучерявое лето
+010. Indi - Небо Это Я(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80BE48B8F2381E8BBFECBB65773096F30D80450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555923   (426854) от 05.10.2012
+
+VA - XXXL Клубничка DFM №40 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Пара Нормальных - Вендетта
+02 Марка - Витамин С
+03 Иракли - Я тебя люблю
+04 Сергей Жуков & Opium Project - Я буду с тобою (Radio Mix)
+05 Ассорти - Ангелы
+06 Ярослава - Это любовь
+07 DJ Niki feat. Soda - Она Не Ты (Radio Edit)
+08 Маша Вебер - Все для тебя
+09 Стас Пьеха - Старая история
+10 Батишта - Лови волну (DJ Oleg Perets & DJ Alexey Galin Radio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05628BEB32CCC160D5C6E0F14B311FF3304AE27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946461   (426828) от 13.10.2015
 
 Barry White - Good Songs (2015) [MP3|320 кб/с]<Blues, Jazz, Soul>
@@ -554,212 +770,6 @@ VA - Debutants of Blues (Дымка) (2016) [MP3|320 Kbps] <Blues Rock, Blues, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5D67EC89BBBB384BE2F23CF53C3C4855AB14D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572131   (425596) от 25.08.2022
-
-VA - Simply Dance Vol. 02 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Jacobson, Dennis Wonder - Without You
-02. Antonio Gregorio - Lost Soul
-03. Channing - Push For The Money
-04. Hot Pixels - On My Mind(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:39:20 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD19E22D478BA34E2E1EE43DAA1CA145CBC4BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572155   (425594) от 25.08.2022
-
-VA - Simply Tech House Vol. 02 (2022) [MP3|320 Kbps] <Microhouse, Minimal, Jackin, Tech House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malante (UK) - Follow
-02. Agonia Music - I Know Ya
-03. Diego Rva - Time
-04. DJ Alexis Freites - Lost Time(   Читать дальше...   )Жанр: Microhouse, Minimal, Jackin, Tech HouseПродолжительность: 02:06:58 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3AFBA33842A0300EDEEDECE4AFD63C44E0932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572130   (425589) от 25.08.2022
-
-VA - Simply Dance Vol. 01 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonio Gregorio - When Your Gone
-02. Sonalyis - Back In The 2000s (Radio Edit)
-03. Skuado, Freaky DJs, Mert Harmankaya, Elation - I Still Love You
-04. Kidd Ross - I Just Wanna (Extended Mix)(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:29:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AB17DA2A35210541A6DB3B72B430F44B41004A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064683   (425559) от 20.10.2016
-
-VA - Hits of My Soul Vol. 15 (2016) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Bon Jovi - You Give Love A Bad Name (03:43)
-02. The Ramones - Poison Heart (04:03)
-03. Dagoba - Livin' Dead (03:40)
-04. Judas Priest - You've Got Another Thing Comin' (05:07)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8340B03483D15F8877D801F5FDF88257013EB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572133   (425520) от 25.08.2022
-
-VA - Simply Dance Vol. 03 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooke Lee - Little Bird (Radio Edit)
-02. Fhe - True Faith
-03. Playpat & King - Final Constructions
-04. Justin Lawson - Come Back To Me(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:38:28 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5902D3EEA8CE3BF8CBFB035B8527ABCB51FD246F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571807   (425495) от 25.08.2022
-
-VA - 60 Minutes. Old School Dance Music vol.10 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Latin House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Michael Gray - The Weekend (Extended Vocal Mix)
-02-Asle - Golden Sun (Seamus Haji & Paul Emanuel Remix)
-03-Whigfield - Was a Time (Gambafreaks Vs Iii Sound Academy Latin Mix)
-04-Laurent Wolf feat. Mary Austin - Saxo (Extended Version)(   Читать дальше...   )Жанр: Club House, Latin House, Electro HouseПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652F0634B8FCED283B3D1061C55DC615977E925F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572160   (425406) от 25.08.2022
-
-VA - Simply Breaks & Beats Vol. 02 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbeat, Nu Skool>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paket - Face Your Fears (Original Mix)
-02. Poor In Spirit - Guardian Angel (Original Mix)
-03. Strongbass - Mortal (SellRude Remix)
-04. Prato & GreenFlamez - U Keep On (Original Mix)(   Читать дальше...   )Жанр: Grime, 2-Step, Breakbeat, Nu SkoolПродолжительность: 01:57:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CAC94C781826886463573FE2A65442BB33A86A
 ```
 
 https://mybot314.ru/tekegram_catalog/

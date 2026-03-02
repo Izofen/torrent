@@ -1,3 +1,236 @@
+###  Публикация: 490869   (130226) от 02.05.2012
+
+VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Hayk - В Мыслях С Тобою
+02. Руслан Алехно - Оглянись
+03. Aslan и Эльдар Далгатов - Опа Опа
+04. Рената Штифель - Душа
+05. Danila Rastv - Тайны
+06. Fontano - Революция (Radio Edit)
+07. 4POST (Дима Бикбаев) - Как Же Ты Могла
+08. Натали Катэрлин - Юра
+09. Киевэлектро - Поцелуй
+10. Олег Винник - Аэропорт2012Жанр: PopПродолжительность: 06:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57876E29175D4FACA497DF98C4FE8BE1463A7E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490532   (130018) от 01.05.2012
+
+VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Сателлит & Marlena feat. PolCox - Почему (Tonada Club Mix)
+02. Ариф - Любовь Моя
+03. Эльдар Далгатов - Я Влюблен
+04. Софья Лукьянова - People Like
+05. NEO - Суетных Улиц
+06. Антитила - А Я Видкривав Тебе
+07. Чай Вдвоём - Улетай
+08. Эрика (Еріка) - Ворожка
+09. Dino MC 47 - Игры С Огнём
+10. Джиган (Geegun) feat. Сосо Павлиашвили - Деньги2012Жанр: PopПродолжительность: 03:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3B3A18D65B81E939B039CE10A3F0F42A525289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682455   (129992) от 09.12.2023
+
+VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Electro Swingers, Paul Whiteman Orchestra - Happy Feet (Steampunk Version) [04:20]
+002. Wasted Wine - Shoreline Seniorita [04:09]
+003. Paul Whiteman & His Orchestra - Happy Feet [03:07]
+004. The Cog is Dead - The Depths Below [02:50](   Читать дальше...   )Жанр: Electro, Swing, CabareПродолжительность: 13:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489670   (129985) от 01.05.2012
+
+VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interval - Mind Vortex (original mix) (9:08)
+02. Silicon Sound - Combustion (6:46)
+03. Multiphase - In Retrospect (8:04)
+04. Future Radio - Sumer Sun (7:36)
+05. Erotic Dream - Use Your Imagination (7:04)
+06. Xshade & Loopstep - Light In Motion (9:04)
+07. Pan Papason - 2000 Years Ago (Ion remix) (8:04)
+08. Hi Profile - 01.1.81 (7:43)
+09. Datura - Lommesvuffer (8:59)
+10. Vice - With In (Phaxe remix) (8:00)(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 03:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490535   (129982) от 01.05.2012
+
+VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voxis - My Girl (Extended Mix)
+02. Marilyn Manson - Born Villain
+03. Morten Harket - Listening
+04. The Rasmus - Save Me Once Again
+05. B.o.B feat. Chris Brown & T.I. - Arena
+06. Slaughterhouse feat. Cee-Lo Green - My Life
+07. Don Omar - Zumba
+08. Narcotic Sound & Christian D - Vai (Extended Mix)
+09. Asher Roth feat. Meek Mill - Party Girl
+10. Sam Sparro - I Wish I Never Met You2012Жанр: PopПродолжительность: 03:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37860A1294A6B3E15F6C94D98EF6FE93A8B9D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489971   (129962) от 01.05.2012
+
+VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Герман - Белая Черемуха
+02. Black - Wonderful life
+03. О.Зарубина - На теплоходе музыка играет
+04. Joe Dassin - Et Si Tu N'existais
+05. Голубые Гитары - Зачем
+06. Passengers - Casino
+07. Игорь Николаев - Старая Мельница
+08. Bad Boys Blue - A word without you
+09. Алиса Мон - Подорожник
+10. Gina T. - Tokyo By Night2012Жанр: Pop,DanceПродолжительность: 06:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDF7F4B88F0AE50D3600E069FB522D4A25D8E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683008   (129924) от 09.12.2023
+
+VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Irina Поворознюк - Не Ной (02:49)
+ 002. 84 - Люди Хотят В Космос (02:48)
+ 003. 84 feat. Lookbuffalo - Магия (02:31)
+ 004. 84 feat. Rekudo - Руки в Потолок (02:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490007   (129921) от 01.05.2012
 
 VA - Танцевальная Сенсация Русский выпуск (2012) [MP3|256 кб/с]<Pop>
@@ -620,215 +853,6 @@ VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525407   (129210) от 21.01.2022
-
-VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спокойная и плавная музыка отлично подойдет для меланхоличных ребят, любящих наблюдать из окна за зимними пейзажами. Особенную атмосферу создает аранжировка, в которой напрочь отсутствуют жесткие ударные – это свойство предает композициям уникальный шарм комфорта001. Rico Rosario - Hit Hop
-002. Blue Avenue - The Floor Is On Fire
-003. Alexander Paris - Shining Night
-004. Leeman Brothers - Belisa(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5D5B451906E35F71D33A4C41A044BFAE63A93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525382   (129205) от 21.01.2022
-
-VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая известная в музыкальных кругах  медиа площадка Beatport не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам "Подарок" в виде 397-го электро саунда - микс самых известных композиций клубного дип хауса со всего мира.001. Junktion - Tribute
-002. Awsi - Lo Que Faltaba
-003. Efe Goroglu - There For You
-004. Peter Brown - This Feeling(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 10:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525418   (129196) от 21.01.2022
-
-VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
-002. Memorio - Grace
-003. Subdream - Monsonoom
-004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525376   (129191) от 21.01.2022
-
-VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
-002. Simone D Jay - Move Your Feet
-003. DJ Planet Express - Wanted U 2 Kno
-004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525426   (129188) от 21.01.2022
-
-VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
-002. Theo De Tank - Make Me Feel
-003. Jürgen Degener - Rhyme
-004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488307   (129184) от 27.04.2012
-
-VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yolan & Kenia - На Пороге Лета (Extended Mix)
-02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
-03. Батишта feat. Ульяна Глушкова - Мама
-04. MainstreaM One - Всё Пройдёт
-05. Karizma - Я Забуду (Radio Edit)
-06. Алиса - Настроение
-07. Music Hayk - Почему Не Я
-08. Bi-O-Shock - Биоробот
-09. LiLi - Lady GaGa Отдыхает!
-10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525414   (129162) от 21.01.2022
-
-VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта музыка для тех. кто максимально отрешиться от проблем и уйти в себя, или познать что-то новое и расширить границы зоны комфорта. Для многих людей лучшим способом провести это время становится путешествие и не важно большое или маленькое, но обязательно под хорошую музыку.001. DJ D Redd - Sloppy Top
-002. Plasma2097 - Wayne Train
-003. Goncalo M - Operation Friction
-004. Makaja Gonzales - Silver Bullet(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
 ```
 
 https://mybot314.ru/tekegram_catalog/

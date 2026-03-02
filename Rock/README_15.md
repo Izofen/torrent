@@ -1,3 +1,61 @@
+###  Публикация: 1496465   (872847) от 17.09.2021
+
+VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oasis - Wonderwall (Remastered) 4:19
+02. Pulp - Common People 5:50
+03. Oasis - Live Forever 4:37
+04. Blur - Song 2 (2012 Remaster) 2:01(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9541DF8E091CA8DA6EE2D36BF626F1A04BF08DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496224   (872722) от 17.09.2021
+
+Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <Score>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7CBD94EECA77EB0B1D5ECDD6CD816FD7DEB484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374503   (872683) от 10.04.2020
 
 Скрябін - Best (Сovers & Remixes) (2020) [MP3|320 Kbps] <Rock>
@@ -699,64 +757,6 @@ No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498091   (857804) от 26.09.2021
-
-Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventeen [00:02:10]
-02. Satellite [00:04:12]
-03. Feelings (aka 'No Feelings') [00:02:54]
-04. Just Me (aka 'I Wanna Be Me') [00:03:16](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4CD, 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32347FD5B464744DDD992DB63B44EA3315F9ED82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001187   (855471) от 27.03.2016
-
-VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  More Than A Feeling - Boston (3:23)
- 02.  Don't You (Forget About Me) - Simple Minds (4:18)
- 03.  Time After Time - Cyndi Lauper (4:01)
- 04.  Africa - Toto (4:25)(   Читать дальше...   )Жанр: Pop Rock, BalladsПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1572FBD5FF099F19A2E0566C3A1C574BD9B945
 ```
 
 https://mybot314.ru/tekegram_catalog/

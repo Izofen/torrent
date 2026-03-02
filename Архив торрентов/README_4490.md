@@ -1,25 +1,22 @@
-###  Публикация: 1070311   (244441) от 06.11.2016
+###  Публикация: 482070   (99401) от 12.04.2012
 
-Фигурное катание. Гран-при сезона 2016-2017 "Кубок Ростелеком-2016". Женщины. Произвольная программа (05.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+[Wallpapers] Super Girls Wallpapers (12.04.12)
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244441.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-05 ноября 2016, суббота. 19:50 МСК
-3-й Этап серии Гран-при сезона 2016-2017
-"Кубок Ростелеком-2016". Москва (Россия)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:55:11
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AFA60829273B85E25463B925E375B8E2FB87D1D
+magnet:?xt=urn:btih:D64D83D96C7EBA492D4C2B749A60201849D0F44E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,132 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567099   (244435) от 01.08.2022
+###  Публикация: 479965   (99400) от 12.04.2012
 
-eM Client Pro 9.1.2053.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244435.jpg" />
-</div>
-
-
-###  Подробнее
-
-eM Client - отличный почтовый клиент с возможностями использования календаря, задачника и чат-месседжера. Программа содержит все основные опции для качественного и удобного использования своего почтового ящика - прием, чтение, ответ, перенаправление писем и др. Профессиональная версия позволяет организовать работу с поддержкой неограниченного количества почтовых (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5113A8E32B468A68CC811F4702638E8FD13BAD6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622425   (244424) от 28.03.2023
-
-VueScan Pro 9.7.99 (27.03.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244424.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD087169FDB9A34C4C087B7ABCF0EB45E336352C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632114   (244423) от 08.05.2023
-
-Aiseesoft Video Converter Ultimate 10.7.8 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C365E319C5F194491CC0FA3EAB9A754146B7F5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531997   (244421) от 02.04.2022
-
-Связь принцесс! Новое погружение [ТВ-2] | Princess Connect! Re:Dive Season 2 | PriConne 2 [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите ролевые игры? Фентези? Вкусную еду? Приключения и обилие милых девушек? Тогда всё внимание сюда! Зимний сезон предлагает нам вновь окунуться в яркий мир, созданный режиссёром ""Коносубы"" по мотивам мобильной игры. Первый сезон нам рассказал о том, как неразговорчивый парнишка Юки попал в этот мир и познакомился со своими спутницами: (   Читать дальше...   )Жанр: Приключения, фэнтези, комедияРежиссер: Ямаи СаякаЯзык озвучки: Русский многоголосый, закадровыйСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F41996C4C38583DD5DEC90B90BE1F2722F5AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294506   (244417) от 08.04.2019
-
-VA - Between Two Points (2001) 12k / Line [FLAC|Lossless|tracks+.cue] <Experimental, Minimal, Glitch>
+Demon Hunter - True Defiance (2012) [MP3|320 кб/с]<Modern Metal / Melodic Metalcore>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244417.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roel Meelkop - Liner (08:54)
- 02. Richard Chartier - 010101 (10:13)
- 03. Miki Yui - Vibra (03:29)
- 04. Bernhard Gunter - Kernel Panic (10:29)(   Читать дальше...   )Тип издания: CD , Compilation •Жанр: Experimental, Minimal, Glitch •Продолжительность: 00:56:19
+01. Crucifix (3:44)
+02. God Forsaken (5:40)
+03. My Destiny (4:15)
+04. Wake (4:13)
+05. Tomorrow Never Comes (4:54)
+06. Someone to Hate (5:25)
+07. This I Know (4:05)
+08. Means to an End (2:51)
+09. We Don't Care (3:37)
+10. Resistance (4:25)(   Читать дальше...   )2012Жанр: Modern Metal / Melodic MetalcoreПродолжительность: 00:58:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E5FF60D075F3D448CF548C0F726E589DD9578AF
+magnet:?xt=urn:btih:F28BBF38D281CB8B467C64696B62C65D3C8E5248
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,28 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072143   (244412) от 12.11.2016
+###  Публикация: 481847   (99396) от 12.04.2012
 
-Футбол. Чемпионат Мира 2018. Отборочный турнир.Европа. Группа A.4-й тур. Франция - Швеция (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+Журнал | Золотые рецепты наших читателей №7 [апрель 2012] [PDF]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 ноября 2016, пятница. 22:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа
-Группа A. 4-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин)Продолжительность: 01:48:18
+«Золотые рецепты наших читателей» - подробные и доступные рецепты, которыми делятся опытные хозяйки.апрель 2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCA04F88F5C5A4149DE75D84271CB8F1EDE7B5FA
+magnet:?xt=urn:btih:C34A3E4F992DAB8A3230D5B3494153522271A862
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,28 +85,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072184   (244391) от 12.11.2016
+###  Публикация: 482059   (99392) от 12.04.2012
 
-Фигурное катание. Гран-при сезона 2016-2017 "Трофе де Франс-2016". Мужчины. Короткая программа (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+[Wallpapers] Weapon Wallpapers №1
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244391.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 ноября 2016, пятница. 20:40 МСК
-4-й Этап серии Гран-при сезона 2016-2017
-"Трофе де Франс-2016". Париж (Франция)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:27:32
+[Wallpapers] Weapon Wallpapers №1
+Название: Weapon Wallpapers №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:480E91822E2F5889D6F2400F1BC0B70B2334BF70
+magnet:?xt=urn:btih:A65B971EAEA03A74ECC4A8CEAAD20BE9E6FFC7A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,109 +115,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621833   (244382) от 26.03.2023
+###  Публикация: 481813   (99388) от 12.04.2012
 
-ApowerREC 1.6.3.18 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244382.jpg" />
-</div>
-
-
-###  Подробнее
-
-ApowerREC - это программа которая может записывать что угодно на вашем экране, включая ваши действия на рабочем столе, видео в прямом эфире, веб-встречи, переговоры в онлайн чатах и так далее. Вы можете захватывать свою работу на полном экране или в специально настроенной области вместе со звуком, софт способен поддерживать синхронизацию видео с аудио потоком, это (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C19018BE1D069FB644CFFA26383AE900E5B5438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072177   (244378) от 12.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "Трофе де Франс-2016". Танцы. Короткий танец (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244378.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2016, пятница. 19:00 МСК
-4-й Этап серии Гран-при сезона 2016-2017
-"Трофе де Франс-2016". Париж (Франция)
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4576BD13F7C70B2FDBC83654A7DAE77F2B2D862E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621845   (244376) от 26.03.2023
-
-Start Everywhere 1.4.0.39 (x64) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Start Everywhere - это программное обеспечение с меню "Пуск", которое предлагает несколько уникальных решений, позволяющих запускать приложения, установленные на компьютере, и быстро получать доступ к документам. Внешний вид, работа и управление Start Everywhere могут быть гибко настроеныЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600A69E2A087A0C30495D1C7CE41F9ED1E1EE12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294513   (244375) от 08.04.2019
-
-VA - Raster-Noton. Oacis (2000) Raster-Noton [FLAC|Lossless|tracks+.cue] <Minimal, Experimental>
+Eleftheria Arvanitaki - Mirame (2009) [MP3|320 кб/с]<Pop, Ethnic>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244375.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Noto – Impulse (13:20)
-02. Byetone – Form (05:02)
-03. Komet – Band (04:30)
-04. CoH – Coh Infra (07:04)(   Читать дальше...   )Жанр: Minimal, ExperimentalПродолжительность: 00:47:33
+1. To Gkrizo Ton Mation Sou
+2. To Telos Mas Des
+3. Ton Erota Rotao
+4. Sto Palati Tis Kardias Sou (Carcel de Oro)
+5. Pes Mou (Je T' Aime)
+6. Den Milo Gia Mia Nychta Ego
+7. Toso Megala Logia
+8. Ase Me Na Se Misiso
+9. Xeni Kardia
+10. Ta Mystika Tou Kosmou(   Читать дальше...   )Жанр: Pop, EthnicПродолжительность: 00:53:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73F752A2C06DECE946AB05A50B6928806AEC1D95
+magnet:?xt=urn:btih:1C6D08F49E12D51893D01F0766529E8A8B19B704
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,161 +150,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072195   (244371) от 12.11.2016
+###  Публикация: 481914   (99386) от 12.04.2012
 
-Фигурное катание. Гран-при сезона 2016-2017 "Трофе де Франс-2016". Женщины. Короткая программа (11.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244371.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2016, пятница. 22:40 МСК
-4-й Этап серии Гран-при сезона 2016-2017
-"Трофе де Франс-2016". Париж (Франция)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3BF34A0C13BED5F3A5EFBB5C4F3589F0BCAAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567088   (244365) от 01.08.2022
-
-Topaz Gigapixel AI 6.2.0 RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6030776DD861A42F6D8E6BF8F59D3F8E9B9A0B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452627   (244358) от 07.03.2021
-
-Metasequoia 4 v4.7.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание трехмерной модели, особенно создание персонажей, похожих на людей или животных, требует определенных знаний в этой области и, что наиболее важно, набора подходящих инструментов для работы. Для тех, кто сделал несколько 3D-разработок, используя различные специализированные программные решения и которым нужно работать над ними без необходимости повторной установки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2021Разработчик: tetraface Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7372BD1C9BEE5105D589610A61A91AA44A7150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621905   (244355) от 26.03.2023
-
-MemTest86 10.3 Build 1000 Free [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244355.jpg" />
-</div>
-
-
-###  Подробнее
-
-MemTest86 - бесплатная программа, позволяющая проверить оперативную память компьютера или ноутбука на наличие ошибок и проблем в работе. MemTest86 запускается с загрузочного USB носителя и выполняет полную проверку работоспособности ОЗУ.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116072D0BEA6C0C7A85D8AEBECF0508EDAE8582F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452638   (244349) от 07.03.2021
-
-Airtool 2 v2.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2021Разработчик: Intuitibits LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA108C34A2D0B3F7C6DADC95B0290C81B488F913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294510   (244345) от 08.04.2019
-
-VA - Early Modulations - Vintage Volts (2000) Caipirinha Productions [FLAC|Lossless|tracks+.cue] <Abstract, Noise, Experimental, Musique Concrète>
+Tritonal - Piercing The Quiet (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244345.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Otto Luening And Vladimir Ussachevsky - Incantation (02:36)
-02. Max Mathews - Bicycle Built For Two (00:40)
-03. Pierre Schaeffer - Etude Aux Chemins De Fer (02:53)
-04. Iannis Xenakis - Concret PH (02:42)(   Читать дальше...   )Жанр: Abstract, Noise, Experimental, Musique ConcrèteПродолжительность: 00:55:04
+01. Tritonal - Poem Of Angels
+02. Tritonal feat. Jeza - Cant Keep It In (Extended Mix)
+03. Tritonal - Ziziki (Extended Mix)
+04. Tritonal feat. Meredith Call - Broken Down (Extended Mix)
+05. Tritonal - Retake (Extended Mix)
+06. Tritonal feat. Cristina Soto - Piercing Quiet (Extended Mix)
+07. Tritonal feat. Bethany - Sometimes I Wish (Extended Mix)
+08. Tritonal feat. Jenry R - Something New (Extended Mix)
+09. Tritonal feat. Bethany - Everafter (Extended Mix)
+10. Tritonal feat. Jeza - I Can Breathe (Extended Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:50:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4C48220F3CF255A2DF27224CA40A1C87EB96EAC
+magnet:?xt=urn:btih:7FBB17C18E424E819D50CCFE95E1D48B6C98F8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,25 +185,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541520   (244344) от 03.04.2022
+###  Публикация: 481911   (99380) от 12.04.2012
 
-FabFilter - Total Bundle 2022.02.15 VST, VST3, AAX (x86/x64) [En]
+[Wallpapers] Desktop Wallpapers Pack 49
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244344.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Bundle - это набор всех плагинов FabFilter. С этим комплектом вы получаете наш профессиональный эквалайзер, ревербератор, компрессор, многополосную динамику, лимитер, де-эссер и гейт / экспандер, креативный многополосный дисторшн, задержки, фильтры и синтезаторы.Язык интерфейса: Английский
+[Wallpapers] Desktop Wallpapers Pack 49 
+Название:  Desktop Wallpapers Pack 49 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1900х1200 - 4256х2848
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F75584DD31C28310AB0AC4AE4D92886EFF7D609
+magnet:?xt=urn:btih:1D4280B5CB33C416F8712552972D2A8845CF5254
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,26 +215,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567157   (244334) от 01.08.2022
+###  Публикация: 481763   (99373) от 12.04.2012
 
-FreeTube 0.17.0 Beta + Portable [Multi/Ru]
+Spade - On The Fast Lane (2011) [MP3|320 кб/с]<Psychedelic / Full On>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244334.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FreeTube является настольным плеером YouTube с открытым исходным кодом, созданным с учетом конфиденциальности.  Используйте YouTube без рекламы и не позволяйте Google отслеживать ваши файлы cookie и jаvascript.
-FreeTube использует собственный HTTP-API YouTube с набором жестко закодированных API-ключей. Видео разрешается с использованием youtube-dl и воспроизводится (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Spade - Out Of Nowhere (Original Mix) 7:43
+ 02. Perplex & Space Cat & Michele Adamson - Shut Up & Dance (Spade Remix) 7:00
+ 03. Spade - Flash Back (Original Mix) 6:30
+ 04. Astrix - Artcore (Spade Remix) 8:36
+ 05. Spade - Do It Again (Original Mix) 8:16
+ 06. Spade - Oblivious (Original Mix) 7:03
+ 07. Spade vs Vibe Tribe - Music People (Original Mix) 7:17
+ 08. Spade vs Faders - SuperNova (Original Mix) 7:30
+ 09. Vibe Tribe - Rocket Science (Spade Remix) 6:35
+ 10. Spade - Just A Glimpse (Original Mix) 7:072011Жанр: Psychedelic / Full OnПродолжительность: 01:13:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9B361524DF1110ACA2D7A07379EFB9F67864EB4
+magnet:?xt=urn:btih:001C374020C899DD10C41868D74ACC17EC883081
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +250,264 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072132   (244324) от 12.11.2016
+###  Публикация: 482069   (99368) от 12.04.2012
 
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 11-й тур. Бразилия - Аргентина (10.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+[Wallpapers] Wallpapers Sexy Girls (12.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B570425D3F2B7864B49E9D827F5AF125FB55BD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481787   (99364) от 12.04.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99364.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 7 
+Название:  Avto Desktop Wallpapers Pack 7 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51AA3828AD950F3DA05A7AF570E7F08846498A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480631   (99362) от 12.04.2012
+
+Vulture - Oblivious To Ruin (2012) [MP3|~240 кб/с]<Stoner, Sludge, Doom>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Beautiful Infection 07:10
+ 02. Oblivious to Ruin 06:08
+ 03. Dead Sea 06:31
+ 04. Long I Crawl 05:36
+ 05. Coming Storm 04:42
+ 06. Bedridden 05:37
+ 07. Apathetic Life 04:472012Жанр: Stoner, Sludge, DoomПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2108B47F67D905CCC550D7F03DCD1E8686AAB5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482051   (99359) от 12.04.2012
+
+[Wallpapers] Avto Wallpapers №3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99359.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers №3
+Название: Avto Wallpapers №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F4E331CA15739D6FB18700FFDE8E13A0B93254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482056   (99357) от 12.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99357.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers №14
+Название: Girls Desktop Wallpapers №14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7019BAE38D788C07915CC84D06387A0E3BE403F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481447   (99356) от 12.04.2012
+
+Synasthasia - Style Collector (2012) [MP3|320 кб/с]<Melodic Death/Thrash/Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaking (3:16)
+02. Beyond The Flames (3:32)
+03. Cave Of The Deceased (3:13)
+04. Dead From Inside (3:44)
+05. The Hidden (3:34)
+06. Falling (3:57)
+07. Out Of This World (3:41)
+08. Heaven Shall Burn (3:43)
+09. Take Away My Soul (2:54)
+10. The Saints (4:09)(   Читать дальше...   )2012Жанр: Melodic Death/Thrash/Power MetalПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ED32A1E51CB9924363707B079240C5AE99EC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481780   (99355) от 12.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 47
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99355.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 47 
+Название:  Desktop Wallpapers Pack 47 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1366х768 - 4562х2949
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C49F1FFE509260679D5DA6EF9091AC8B6CC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482094   (99354) от 12.04.2012
+
+[Wallpapers] Abstract HD Wallpapers (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482105   (99352) от 12.04.2012
+
+Каникулы в Мексике - 2. Выпуск №29 (2012.04.12) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244324.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 ноября 2016, пятница. 02:45 МСК
-Чемпионат Мира 2018. Отборочный турнир
-Южная Америка. 11-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Михаил Мельников)Продолжительность: 01:44:36
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:174388E5CCEB19D035382BE739C4F28D37D8F581
+magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,28 +515,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071883   (244319) от 12.11.2016
+###  Публикация: 482086   (99350) от 12.04.2012
 
-Хоккей. Молодежная Суперсерия-2016. 3-й Матч серии. Канада (OHL) – Россия (U20) (10.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+[Wallpapers] Computer Desktop Wallpapers Collection (13.04.12)
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244319.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 ноября 2016, пятница. 03:00 МСК
-Молодежная Суперсерия-2016. 3-й Матч серии:
-
-Хоккейная лига Онтарио (OHL) – Россия (U20)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:02:32
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2A4E03936A18D54FFF02E25B5F8276B4DCFEA9C
+magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,25 +541,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541742   (244315) от 03.04.2022
+###  Публикация: 481642   (99343) от 12.04.2012
 
-XLN Audio - Addictive Drums 2 Complete 2.2.5.6 STANDALONE, VSTi, AAX (x64) [En]
+Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244315.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Addictive Drums 2 представляет из себя полноценную драм-студию на любой вкус: это плагин, который позволит вам легко создавать реалистичные барабанные ритмы, которые будут звучать так, как будто они записаны вживую. Звуки ударов содержат всевозможные нюансы: от легкого до самого сильного удара. Барабаны от Addictive Drums охватывают впечатляющий диапазон звуков, (   Читать дальше...   )Язык интерфейса: Английский
+01 Side Winder - Liliacea 08:11
+ 02 Side Winder - Faith 07:51
+ 03 Side Winder - Homogeny I-Var 07:53
+ 04 Side Winder - Inside LSD 08:28
+ 05 Side Winder & Mayaxperience - The Art Of Flight 06:51
+ 06 Zyce & Flegma - Reanimation (Side Winder Remix) 07:43
+ 07 Sideform - Dropper (Side Winder Remix) 07:44
+ 08 Side Winder - Emotional Endeavour 07:42
+ 09 Side Winder - Plasma Gun 07:28
+ 10 Side Winder - Eyes As Green As The Ocean 04:022012Жанр: Psychedelic / ProgressiveПродолжительность: 01:13:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:610F237D6BCD6ED09B36F8255C810932C5D6E3EE
+magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,25 +576,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622625   (244314) от 29.03.2023
+###  Публикация: 482091   (99342) от 12.04.2012
 
-Topaz Video AI 3.1.11 (x64) Portable by 7997 [En]
+[Wallpapers] Animals Wallpapers (13.04.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244314.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3A68401C38334B9A267494DF82A6C0249DB0367
+magnet:?xt=urn:btih:BD3950787873C84FF1C09BF1EE8DF623D8DE76EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,26 +602,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452777   (244311) от 07.03.2021
+###  Публикация: 482068   (99340) от 12.04.2012
 
-Templates for Pages – DesiGN 7.3 [Multi/Ru]
+[Wallpapers] HQ Wallpapers by KSV (12.04.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244311.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Короткий взгляд на резюме - это все, что нужно потенциальному работодателю для формирования мнения! Шаблоны Resume Lab for Pages от компании Jumsoft предоставляют множество видов резюме, чтобы вы могли представить себя с профессиональным, привлекающим внимание и запоминающимся резюме, для привлечения внимания вашего потенциального работодателя.
-Разнообразие стилей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2021Разработчик: JumsoftПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:939C673C06BDE19129BBE0ACBF1F2FA3E191BC10
+magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,27 +628,150 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622539   (244310) от 29.03.2023
+###  Публикация: 481751   (99336) от 12.04.2012
 
-ScreenFlow 10.0.9 [Multi]
+Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / Progressive>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244310.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ScreenFlow - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2023Разработчик: © 2022 Telestream, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
+01. 9th Wave [8:00]
+02. African Star [9:18]
+03. Energetic Particles [8:18]
+04. Super Groover [7:39]
+05. Universe [7:24]
+06. Ola Catuaba [7:41]
+07. Higher Dimensions [8:48]
+08. Deep Connections [9:04]
+09. Stereophonic Senses [8:21]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16EEA657496FA2F2139448AFF5BE2235948922CE
+magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480498   (99335) от 12.04.2012
+
+Арс Ворошиловский - Паутина (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BAD трип
+02. Выше только небо
+03. Давай еще споем (при уч. Артём Татищевский)
+04. Далеко от дома
+05. Ищу тебя (при уч. Артём Татищевский)
+06. Как на войне
+07. Минувшие дни (при уч. Flexa)
+08. Моя улица
+09. Мусора (при уч. Никита Мутный)
+10. Поэту нужна тишина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0800A7C828E83C26AF821CCE18313F4B7BC0FC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481036   (99333) от 12.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (11.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482088   (99330) от 12.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482053   (99327) от 12.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_99327.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers №12
+Название: Girls Desktop Wallpapers №12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6F611020512ED4510D8B854DB036108428ECAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

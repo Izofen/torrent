@@ -1,22 +1,22 @@
-###  Публикация: 1546877   (603958) от 26.04.2022
+###  Публикация: 1148296   (604265) от 05.07.2017
 
-Bakumatsu Kikansetsu Irohanihoheto | Intrigue in the Bakumatsu: Irohanihoheto | Борьба за власть времён бакумацу - никто не вечен [2006, ONA, 26 из 26] BDRip 720p 10-bit raw
+Слово вора / The Hard Word (2002) BDRip [H.264] [MVO]
 
->>Аниме с субтитрами
->>Аниме (HD)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит в эпоху Реставрации Мэйдзи непосредственно предшествующей падению сегуната Токугава, в январе 1868 года, ровно через три месяца после убийства легендарного самурая и предпринимателя Ремы Сакамото, и накануне начала Войны Года Дракона, гражданской войны, в которой решилась судьба реставрации императорского правления. Главный герой сериала - молодой (   Читать дальше...   )Производство: SunriseЖанр: Приключения, история, мистика, драмаРежиссер: Такахаси РёсукэСубтитры: РусскиеПродолжительность: 26 серий по 25 минут
+Три брата: Дэйл, тихий мясник Мэл и безбашенный Шэйн совершили немало ограблений. Теперь они планируют совершить налет прямо из тюрьмы. События начинают принимать опасный оборот, когда вдохновитель их грабежей Фрэнк решается на «большое дело». Об этом плане узнают охранники. Если бы они захотели получить долю или предотвратить преступление, все было бы в порядке, (   Читать дальше...   )Производство: Австралия, ВеликобританияЖанр: Боевик, триллер, драма, комедия, криминалРежиссер: Скотт РобертсАктеры: Гай Пирс, Рэйчел Гриффитс, Роберт Тейлор, Джоэл Эдгертон, Дэмиэн Ричардсон, Рондда Финдлтон, Кейт Эткинсон, Винс Колосимо, Пол Сонккила, Ким Джинджелл ...Перевод: Профессиональный многоголосыйСубтитры: РусскиеПродолжительность: 01:39:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:769665125663FCF2152A5C459D5C4D524382F744
+magnet:?xt=urn:btih:FD51677C526579BD98106C53CD4AAB2B58090F52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546963   (603957) от 26.04.2022
+###  Публикация: 1148265   (604264) от 05.07.2017
 
-Telegram Desktop 3.7.2 + Portable [Multi/Ru]
+Wondershare Data Recovery 6.1.0.4 RePack by D!akov  [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно - все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+Wondershare Data Recovery - мощная и простая в использовании программа, которая может восстановить удаленные, отформатированные, потерянные и недоступные данные с ПК, USB-диска, внешнего жесткого диска, мобильного телефона, цифрового фотоаппарата, Ipod, MP3/MP4-плеера и других носителей информации.Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:214F251AE5A8FE79EC06D96D533883256C6038D0
+magnet:?xt=urn:btih:915DC3A95D052009A94356C46BF0C9071A5BACBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546888   (603956) от 26.04.2022
+###  Публикация: 1148229   (604263) от 05.07.2017
 
-Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD, The Complete Recordings [FLAC|Lossless|WEB-DL|tracks] <Glam, Pop Rock, Soft Rock>
+Анна Пальцева | Безусловная магия (2017) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603956.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I've Never Been In Love (2017 Remaster) (3:03)
-02. Mind Demons (2017 Remaster) (2:28)
-03. She's in Love with You (2017 Remaster) (3:33)
-04. Hollywood (2017 Remaster) (3:00)(   Читать дальше...   )Жанр: Glam, Pop Rock, Soft RockПродолжительность: 7CD, 07:09:33
+Расплата за магию — не самая лучшая перспектива для девушки, никогда не верившей в волшебство. Обычная жизнь устраивала Адель, пока однажды она не угодила в лапы вампиров, да не простых, а пришедших из другого мира, куда ей был заказан билет в одну сторону.
+
+Но кто не сдается, тот всегда побеждает! И теперь ей предстоит пройти тяжелый путь там, где магия всегда имеет (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56EFA334D01D2694A32E68E96E7DA23766153C1D
+magnet:?xt=urn:btih:DAA9DA99F77B530AE4152C818F08299AA8A6CC06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,55 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546944   (603955) от 26.04.2022
+###  Публикация: 1148235   (604262) от 05.07.2017
 
-Александр Никонов | Климат, или Что рулит судьбой цивилизаций (2021) [MP3, Филипп Матвеев-Витовский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнай все о влияние климата: факты и мифы.
-Нам редко приходится задумываться о том, что климат влияет на ход истории. Что послужило рождению трех великих цивилизаций древности – египетской, месопотамской и индо-харрапской? Как среднеглобальное падение температуры всего на полградуса заставило всех говорить о глобальном потеплении, таянии ледников, всемирном потопе?Жанр: Научно-популярная литератураПродолжительность: 13:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDC096B6D69EDEDFFC715B37774F126D94C223D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148290   (603954) от 06.07.2017
-
-Водное поло. Мировая лига 2017. Женщины. Суперфинал. Шанхай (Китай). 1/2 Финала. Россия - Канада (10.06.2017) WEB [H.264/720p-LQ] [EN]
+Daum PotPlayer 1.7.2710 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603954.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 июня 2017 года
-Мировая лига 2017. Женщины. Суперфинал. Шанхай (Китай)
-1/2 Финала
-Россия - Канада(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:15:06
+Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D43C4A6D885E6F7E5D3D8F8939620B1E7BB912C6
+magnet:?xt=urn:btih:4C2FA292E4048641922EF57B2AF205C50F29C877
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148167   (603953) от 06.07.2017
+###  Публикация: 1148272   (604261) от 05.07.2017
 
-Ignasi Terraza Trio - Live at the Living Room, Bangkok (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+Кирилл Бенедиктов, Юрий Бурносов | Балканы. Дракула (2017) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603953.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. An Emotional Dance [07:30]
-02. Les dotze van tocant [04:50]
-03. Georgia on My Mind [05:00]
-04. Give Me Another [06:50](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:16
+В 1431 году в самом сердце Карпатских гор родился мальчик, которому было суждено войти в историю под именем Дракулы. Князь Валахии, прозванный потомками «Цепеш» — «Колосажатель», был безжалостным и бесстрашным воином, железной рукой защищавшим свою страну от врагов и жестоко каравшим подданных за малейшее нарушение. Но был ли он на самом деле вампиром, как утверждают (   Читать дальше...   )Жанр: Историческое фэнтези, ужасы, мистикаПродолжительность: 10:32:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACA0437F66A99D6F27D4A988985A8EE41567C43E
+magnet:?xt=urn:btih:59F4F64BD16E909A63B35BFAC361D20502A5A7D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +130,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148162   (603952) от 06.07.2017
+###  Публикация: 1148287   (604260) от 05.07.2017
 
-Cor Vivaldi & Ignasi Terraza Trio - El 25 de Desembre Swing, Swing, Swing! (2012) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+VA - ZYX Italo Disco New Generation vol.8 (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603952.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Les dotze van tocant [02:51]
-02. Benvinguda [01:38]
-03. El desembre congelat [02:40]
-04. L'angel i els pastors [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:22
+01. Heaven42 Feat. Mirko Hirsch - Strong To Fight (Extended Version) (00:06:17)
+02. Lenroy - You Are The Girl (Extended Edit) (00:07:10)
+03. Magic System DJ - Angels (Extended Version) (00:06:30)
+04. Cristina Manzano - Only Dreams (Extended Edit) (00:07:02)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:39:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FBCE2BB942425BBE4E3B1588848C1BD67451D3F
+magnet:?xt=urn:btih:D2E6BACF86C65AC091F7A85CC9FE4DE526499568
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +159,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148172   (603951) от 06.07.2017
+###  Публикация: 1064897   (604259) от 25.04.2022
 
-Ignasi Terraza Trio - Imaginant Miro (2014) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603951.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imaginant Miro [04:15]
-02. El Segador [04:36]
-03. Nocturn [05:20]
-04. Polaritats [05:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:47:04
+01. From This Moment/Persis - Brian Eno
+02. Midnight Sun - David Sylvian
+03. Promis - ORB
+04. Sixty Sixteen (For Karina) - Banco De Gaya(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:18:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93F5D28CCD5A53EE3060D257B8BAAC1DC375125F
+magnet:?xt=urn:btih:5218E01B990C5DAE8135D29EBF21DDACFA422DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +188,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148387   (603950) от 06.07.2017
+###  Публикация: 1546751   (604258) от 25.04.2022
 
-Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with Sound (2015) PCRec [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603950.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Four Brothers [8:44]
-02. On The Alamo [9:44]
-03. I'll Only Miss Her Whwn I Think Of Her [8:11]
-04. Fred [7:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:15
+Мы будем работать с отличной библиотекой для Processing под названием minim и использовать FFT (Fast Fourier Transform) для считывания звукового спектра из аудиофайлов или живого звука с микрофона или линейного входа и будем приминять эти аудиоданные для управления чем-то на экране, например анимацией или освещением.
+Этот курс основан на двух моих предыдущих курсах.Производство: SkillshareЖанр: Генеративное искусствоЯзык озвучки: АнглийскийПродолжительность: 05:34:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79E04025AC7ED96A540D7E3C04EDB7AE75B21978
+magnet:?xt=urn:btih:7B7E8B6832A006264D48311B41A69F61E7EB701E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +215,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148149   (603949) от 06.07.2017
+###  Публикация: 1546726   (604257) от 25.04.2022
 
-Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+Ольга Гуляева | Как умирала Вера (2021) [FB2]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603949.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When It's Sleepytime Down South [05:42]
-02. Misty [04:28]
-03. Love for Sale [06:16]
-04. I Can't Get Started [05:20](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:56:43
+Шикарная красавица-телеведущая Вера Званцева однажды проснулась не у себя дома в объятиях любимого, а в… морге. Единственным живым существом в этом «заведении» оказался санитар Пахом. От него Вера узнала, что ее тело предназначено для пересадки супруге гениального хирурга Германа Фишера.
+Вера оказалась в западне, спасать ее абсолютно некому. Как только все приготовления (   Читать дальше...   )Жанр: Триллер, УжасыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
+magnet:?xt=urn:btih:E47AD929A2C758B2AFC862533724A6F244FC4E35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,202 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148154   (603948) от 06.07.2017
+###  Публикация: 1546857   (604256) от 25.04.2022
 
-Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candy [05:41]
-02. September Song [06:25]
-03. Love for Sale [05:56]
-04. I Remember Clifford [07:13](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528D506D2736AEA991875CAC7077025708A7AFF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148161   (603947) от 06.07.2017
-
-Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Glad There Is You [05:35]
-02. P.S. I Love You [04:15]
-03. Spring Can Really Hang You Up the Most [05:13]
-04. Just One of Those Things [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0599BC5588194726DCF98FA25DB54C34E90BB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148175   (603946) от 06.07.2017
-
-Ignasi Terraza - Sol-IT (2010) 2CD, 2012, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603946.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You're My Everything [05:02]
-02. These Foolish Things [05:07]
-03. Round Midnight [04:58](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C4EA76AEA7707F9EC1CD59F93B83A3192F5401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148190   (603945) от 06.07.2017
-
-The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Recordins  -  LHCD 025 [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damballa (8:03)
-02. Ibo (3:51)
-03. Tracks of My Tears (4:08)
-04. Black Enuff (2:57)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C3CFB8EF04C5E3BCC343F5771FF72C6E69F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148403   (603944) от 06.07.2017
-
-Roland Kirk - I Talk With The Spirits (1964) 1998, Verve [WavPack|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade to a Cuckoo [04:34]
-02. We'll Be Together Again / People (from 'Funny Face') [04:41]
-03. A Quote From Clifford Brown [04:25]
-04. Trees [06:21](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAEC1E108238EE0DD91E4BAA8D7B913D5AF7E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148157   (603943) от 06.07.2017
-
-Toni Sola & Ignasi Terraza Trio - Night Sounds (2000) 2007, Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End of a Love Affair [04:37]
-02. You've Changed [05:20]
-03. Just in Time [04:29]
-04. Quintessence [05:41](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147DB13DB1AE52745D53AA82908A7A9DAE2DADDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148407   (603942) от 06.07.2017
-
-VA - Ibiza Landscape Vol. 10 (2017) [MP3|320 Kbps] <Trance>
+FanControl V111 Portable [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603942.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunvision - Shadow (Original Mix)
-02. RnaDh3 - Forever In My Heart (Original Mix)
-03. Vokoglok - Sight (BadEQ Remix)
-04. Yuri Yavorovskiy - The Cycle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:16
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D378555DE80A8FBBF63E7D0B7B24691FE05701D0
+magnet:?xt=urn:btih:93E5F51677195425E7DDD8F9DBCC38912CFE6097
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,28 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148423   (603941) от 06.07.2017
+###  Публикация: 1546874   (604255) от 25.04.2022
 
-Monster Energy NASCAR Cup Series 2017. 17-й Этап. Daytona-Coke Zero 400 (01.07.2017) HDTVRip [H.264/720p-LQ] [EN]
+Wondershare UniConverter 13.6.2.1 (х64) Repack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603941.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 июля 2017 года
-Monster Energy NASCAR Cup Series 2017 является 69-м сезоном профессиональных гонок автомобилей в США и 46-м сезоном современной эпохи NASCAR Cup Series.
-17-й Этап. Coke Zero 400. Дейтона-Бич (штат Флорида, США)
-Дистанция: 400 миль (640 км), 160 кругов  (круг - 2,5 мили (4,0 км))(   Читать дальше...   )Телекомпания: NBC SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 03:22:54
+Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24D61D8367B7B28567B4029843EDB029E10425FA
+magnet:?xt=urn:btih:15F0413C4EC25EAB1FD71F442FB15B6A24EBCA67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148365   (603940) от 06.07.2017
+###  Публикация: 1546793   (604254) от 25.04.2022
 
-Бокс. Роберт Истер vs Денис Шафиков / Robert Easter Jr vs Denis Shafikov (30.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+А.И. Тихонов и др. | Датчики и измерительная техника в электроэнергетике (2022) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603940.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 июня 2017 года
-Профессиональный бокс.
-Роберт Истер-младший (США) — Денис Шафиков (Россия)
-Статус: Чемпионский бой за титул чемпиона мира по версии IBF в легком весе(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:57:32
+Представлен программный материал, включающий краткий лекционный курс, практические и компьютерные лабораторные работы по дисциплине «Измерительная техника, датчики в электроэнергетике». Для удобства студентов при подготовке к практическим занятиям в издание включен практический тренинг, а также материал по выполнению самостоятельных индивидуальных заданий, предусмотренных (   Читать дальше...   )Жанр: ЭлектроэнергетикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80BF6EC85293DAEAD6960790EED67C871D52CAB2
+magnet:?xt=urn:btih:A87B074AB3FEF7AA5AA3C99CDBA5775DF6BFC6D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,26 +320,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148401   (603939) от 06.07.2017
+###  Публикация: 1546768   (604253) от 25.04.2022
 
-A Better Finder Rename 10.19 [En]
+Единственный выстрел / A Single Shot (2013) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604253.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как Джон Мун пошел охотиться на оленя и случайно застрелил молодую женщину, у которой затем он нашел письмо и большую сумму денег. И в итоге паническое сокрытие несчастного случая превратилось в бесконечный кошмар.Производство: Великобритания, США, Канада / A Single Shot Productions, Unified Pictures, Media House CapitalЖанр: Триллер, драма, криминалРежиссер: Дэвид М. РозентальАктеры: Сэм Рокуэлл, Джеффри Райт, Келли Райлли, Джейсон Айзекс, Джо Андерсон, Офелия Ловибонд, Тед Левин, Уильям Х. Мэйси, Эми Слоун, У. Эрл БраунПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1817876CB3CC49DCB45635B34FE5879544E80A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546728   (604252) от 25.04.2022
+
+Денис Владимиров | Псы Нинеи (Книга 3). Отблески в зеркалах (2022) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Призрачные локации – камень преткновения многих. Обычные кланы и гильдии, разрозненные группы и одиночки всех мастей, а также многие, многие, многие мечтают прикоснуться к богатствам, таящимся внутри. Но далеко не всем это удается.
+
+Стафу повезло. У него есть доступ, есть цели, есть многое, чего нет у других. Вот только хватит ли этого, чтобы остаться в живых, особенно, (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, LitRPGПродолжительность: 10:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF26A6ECCE8846FC836CEE522298B9C1CDC5DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546717   (604251) от 25.04.2022
+
+Aiseesoft Mac Blu-ray Player 6.6.12 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603939.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 июля 2017Разработчик: Frank ReiffПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Aiseesoft Mac Blu-ray Player - удобный в работе, медиа проигрыватель для Mac. Он поможет воспроизвести любые Blu-Ray диски с очень высоким качеством. Этот удивительный плеер, может воспроизводить не только Blu-Ray диски, но и все популярные видео и аудио форматы, а также ISO-образы. Он надежен и прост в управлении.Тип издания: macOS SoftwareРелиз состоялся: 22.04.2022Разработчик: © 2008-2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97C044F8CAD83847298DEA2701EEE6090C4A883E
+magnet:?xt=urn:btih:1172EFE8F472EE0A3D74593257B02C2ECE5CF80F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,27 +400,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148291   (603938) от 06.07.2017
+###  Публикация: 1065514   (604250) от 25.04.2022
 
-И. И. Иоффе | Новый стиль (1932) [PDF]
+Cesaria Evora - Cafe Atlantico (1999) [APE|Lossless|image + .cue] <Jazz, Latin, Afro-Cuban>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603938.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Постановление ЦК ВКП(б) от 23 апреля 1932 года о перестройке литературно-художественных организаций ставит важнейшую задачу создания высокохудожественных произведений. Эта задача может быть успешно разрешена только при наличии творческих исканий и развертывании творческой дискуссии.
-
-Предлагаемая вниманию читателя книга Иоффе „Новый стиль" содержит ряд ошибочных (   Читать дальше...   )Жанр: История, политология, искусствоФормат: PDF
+01. Flôr di nha esperança
+02. Vaquinha mansa
+03. Amor di mundo
+04. Paraiso di Atlantico(   Читать дальше...   )Жанр: Jazz, Latin, Afro-CubanПродолжительность: 00:58:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97373FECF73EF3969097058D33F090D7FAEFA151
+magnet:?xt=urn:btih:47F60D1430458E18ED6ECA397FF4FE0ADE4A7F2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,27 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148267   (603937) от 06.07.2017
+###  Публикация: 1546862   (604249) от 25.04.2022
 
-Script Debugger 6.0.5 [En]
+Greenslade and Thomas - G & T (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_603937.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
-
-Редактор полностью поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 июля 2017Разработчик: Late Night Software LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+01. She Wants To Talk To You (3:18)
+02. Sabotage (4:20)
+03. Freefall (3:57)
+04. Late Coming Love (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0CCC60462A95F5352BC941FC5DD866D1D280E1E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +458,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148292   (603936) от 06.07.2017
+###  Публикация: 1062073   (604248) от 25.04.2022
 
-VA - Sportsorica Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
+Simon & Garfunkel - The Hit Collection Part 1 (1990) [APE|Lossless|image + .cue] <Pop Rock, Folk Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603936.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yuri Yavorovskiy vs Alex007 - Record Games
-02. Neil Hunter - Phoenix
-03. Anton Kotov - The Independens
-04. Alex007 - Road By Rail(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:58:01
+01. I Am A Rock
+02. The Sounds Of Silence
+03. Homeward Bound
+04. 59th Street Bridge Song - Feelin' Groovy(   Читать дальше...   )Жанр: Pop Rock, Folk RockПродолжительность: 00:41:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:795211BA55173B003083B5B774A943184E875122
+magnet:?xt=urn:btih:8FC9E5BFD46394C4A10AD8BE0A7CAF2F5C212BE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +487,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148397   (603935) от 06.07.2017
+###  Публикация: 1064918   (604247) от 25.04.2022
 
-VA - Inspirations Uplifting Trance Hymns (2017) [MP3|256-320 Kbps] <Uplifting, Vocal Trance>
+Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Downtempo, Tribal, Deep House>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603935.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. AirLab7 - Reminiscent Of My Teen Life (Original Mix)
-002. Alan Morris & Ana Criado - Border Line (Original Mix)
-003. Flash Brothers, Susie Ledge - Where I Belong (Incognet Remix)
-004. Ana Criado - Still There's You (A.R.D.I. Remix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:24:45
+01 Aladdin - We Enter (Deep Forest Dub VIP Mix)
+02 Radar - Running Away
+03 Blue Planet - Latin Masala
+04 Genetic druGs & Jasmon - Lost Frequencies(   Читать дальше...   )Жанр: Downtempo, Tribal, Deep HouseПродолжительность: 02:28;56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69592796C4C8B43B314A2BF1A5A43209ACAC34CD
+magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +516,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547075   (603934) от 26.04.2022
+###  Публикация: 1544109   (604246) от 25.04.2022
 
-Microsoft Edge 100.0.1185.50 [Multi/Ru]
+Летняя сказка / Conte d'ete (1996) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Застенчивый математик Гаспар ждет, что к нему на летние каникулы присоединится девушка Лена, а тем временем встречает некую Марго - студентку, изучающую этнологию и подрабатывающую официанткой. Спустя какое-то время Марго берет Гаспара с собой на вечеринку, где он знакомится с еще одной девушкой, Солин. И когда Гаспар уже полностью запутался в своих чувствах к обеим, (   Читать дальше...   )Производство: Франция / Canal+, La Sept Cinéma, Les Films du Losange, SofilmkaЖанр: Драма, Мелодрама, КомедияРежиссер: Эрик РомерАктеры: Мельвиль Пупо, Аманда Лангле, Гвенэль Симон, Орель Нолин, Аиме Лефевр, Ален Гюллафф, Эвелин Лахана, Ив Герин, Франк СаботПеревод: Многоголосый профессиональный, «Другое кино»Язык озвучки: Русский, ФранцузскийСубтитры: Русские, английскиеПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58545DF1E618FE01B8B5F9551A3E1451E5BC80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064602   (604245) от 25.04.2022
+
+Enrique Iglesias - Latin Collection 2000 (2000) [APE|Lossless|image + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Divine
+02. Bailamos
+03. Ruleta Rusa
+04. Al Despertar(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B56E4817A5BB4DE14BB170F12AEF33C18C08252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546687   (604244) от 25.04.2022
+
+Textify 1.8.11 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603934.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, как вам удобно, импортировав закладки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+Textify — это крошечная утилита, позволяющая скопировать практически любой некопируемый обычными средствами текст диалоговых окон, меню, панелей инструментов и так далее. Пользователю достаточно воспользоваться горячими клавишами и кликнуть в нужную область экрана, а затем скопировать текст из открывшегося окна.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABC311C0D14FD44850F2F69A4BE2DC82B8B34B69
+magnet:?xt=urn:btih:144DF3343962D9C3EFD2D9115E7BC1A1613E1BF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,25 +597,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547092   (603933) от 26.04.2022
+###  Публикация: 1546873   (604243) от 25.04.2022
 
-Бегство рогатых викингов (2018) WEB-DLRip [H.264]
+Ричард Лаймон | Странствующий Цирк Вампиров (2022) [FB2]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603933.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ещё один день, и Джонни Воробьёву исполнится девять лет. Тогда он наконец-то освободится от своего летнего «рабства» в летнем лагере под присмотром несносной старшей сестры и сможет спокойно проводить каникулы с своими друзьями. Но Джонни даёт благородное обещание остановить зловредного Тольку Самохина и его банду рогатых викингов и прекратить их набеги на ребятишек (   Читать дальше...   )Производство: Россия / Ассоциация НП «КОТ»Жанр: Семейный, Комедия, Детский, ПриключенияРежиссер: Илья БелостоцкийАктеры: Евгений Олещук, Илья Плясухин, Даша Чистякова, Мирослав Быков, Никита Смирнов, Никита Липунов, Алексей Ломакин, Алина Бабушкина, Артём Кожевников, Андрей ЛауферСубтитры: ОтсутствуютПродолжительность: 01:10:18
+Лето 1963 года. Странствующий Цирк Вампиров привозит в небольшой городок Грендвилль великолепную, завораживающую и… смертоносную Валерию. Она – последняя из рода вампиров. Три подростка готовы отдать все, чтобы попасть на необычное шоу в обход правилу: «Только для совершеннолетних».
+Попасть на шоу трудно, но после его окончания вернуться домой еще сложнее.Жанр: Ужасы, ФэнтезиПеревод: Александра МироноваФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2245C963DBD0DED9AB77DB933DB53EE4ED8B8B4
+magnet:?xt=urn:btih:10D619C09814CDEA77F342E6549E1902EC7DBDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546671   (604242) от 25.04.2022
+
+Плохой и сумасшедший / Baedeu Aen Keureiji / Bad and Crazy (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспринципный полицейский Су-ёль достаточно быстро движется по карьерной лестнице, пока не встречает безумца по имени К, обладающего обострённым чувством справедливости — по любому поводу парень пускает в ход кулаки.Производство: Южная Корея, Studio DragonЖанр: боевик, комедия, криминалРежиссер: Ю Сон-донАктеры: Ли Дон-ук, Ви Ха-джун, Хан Джи-ын, Чха Хаг-ён, Сон Джи-ру, Ким Дэ-гон, Лим Ги-хон, Кан Э-щим, Ли Хва-рён, Чха Щи-вонПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F793002B489896D1A461EA4CAFFB8A262C8FE0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546781   (604241) от 25.04.2022
+
+AmanVPN 2.1.6.0424 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604241.jpg" />
+</div>
+
+
+###  Подробнее
+
+AmanVPN бесплатный, быстрый, безопасный и безлимитный.
+Просмотр в частном порядке:
+Зашифруйте свою интернет-активность, чтобы никто не мог отследить или украсть ваши данные.
+Изменить свой IP:(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C45A988230D5E7F23A2EE1D016E3097DCDF754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546744   (604240) от 25.04.2022
+
+Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс OpenGL, GLSL и компьютерной графики!
+Это практичная и иллюстрированная программа, разработанная для того, чтобы дать вам визуальную интуицию и практические навыки программирования компьютерной графики с использованием OpenGL, GLSL и C++.
+Это сырая концентрированная выжимка знаний OpenGL и GLSL (никакой "воды"! никаких долгих разговоров, (   Читать дальше...   )Производство: UdemyЖанр: Программирование, 3D графикаЯзык озвучки: АнглийскийПродолжительность: 02:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AEA0E913FDD359403230E249F6AA9077CB77CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1409530   (445255) от 17.09.2020
+
+Gathering Of Kings - First Mission (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gathering (01:03)
+02. Forever and A Day (04:36)
+03. Love Will Stay Alive (04:50)
+04. Endless Paradise (04:11)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6749DD7739F0FC760B4B18CA652D19E5565253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156289   (444651) от 17.09.2020
+
+Cold Chisel - 23 Albums (1978 - 2019) 39 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cold Chisel - самая известная австралийская паб-роковоя команда, распродавшая на родине свыше трех миллионов пластинок. Группа, где, по сути, началась карьера Jimmy Barnes, образовалась в 1973 году в Аделаиде и поначалу меняла названия чуть ли не на каждом концерте. Конец неразберихе с вывесками положил клавишник Дон Уолкер (впоследствии главный автор песен), сочинивший (   Читать дальше...   )Список альбомов:
+1978 - Cold Chisel
+1979 - Breakfast At Sweethearts
+1980 - EastЖанр: Hard RockПродолжительность: 34:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA48209783CC8566665D3C2B8D26497559CA9972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164121   (443775) от 08.09.2017
 
 The Nights - The Nights (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -687,64 +745,6 @@ Shiloblaengare - Golden Book of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FD8B5DB70D295378C66FE5A7898BBB017985336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708470   (430274) от 08.10.2013
-
-Nazareth - Close Enough For Rock'n'Roll (1976) remastered /2002, Eagle Records/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telegram (7:54)
-02. Vicki (2:24)
-03. Homesick Again (4:31)
-04. Vancouver Shakedown (4:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410922   (429542) от 24.09.2020
-
-Lord Tracy - Deaf Gods Of Babylon (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out With the Boys
-02. East Coast Rose
-03. Shes a Bitch
-04. Barney’s Wank(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2523EC618DA2EDB00A0997B15E329B22278AFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

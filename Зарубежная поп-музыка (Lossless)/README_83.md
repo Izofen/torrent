@@ -1,3 +1,120 @@
+###  Публикация: 1435573   (141976) от 29.12.2020
+
+Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till I See You Again (3:17)
+02. I Love You Baby (3:29)
+03. Bye Bye Girl (3:24)
+04. Sunshine Superman (4:07)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9E30EB9B845B89082F38DEBA18635E8A272FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435566   (141960) от 29.12.2020
+
+The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] <Rock, Pop, Surf>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan & Dean - Surf City (2:30)
+02. Jan & Dean - Deadman's Curve (2:27)
+03. Jan & Dean - I Get Around (2:06)
+04. Jan & Dean - Help Me Rhonda (2:56)(   Читать дальше...   )Жанр: Rock, Pop, SurfПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520458   (141840) от 28.12.2021
+
+VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Christmas, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительный пост в уходящем году. Не то чтоб на этом сборнике Вас ждали какие-то уж совсем новинки, но всё здесь подобрано старушкой Соней так, чтоб лишний раз не отвлекаться от праздничного стола и салат оливье сочетался с хорошим музыкальным сопровождением.
+Не пугайтесь того, что в первом видео внизу вас встретит надпись о шокирующих кадрах. Время меняется и (   Читать дальше...   )CD1:
+01. John Lennon - Happy Xmas (War Is Over)  (3:35)
+02. Shakin’ Stevens - Merry Christmas Everyone  (3:40)
+03. Elton John - Step Into Christmas  (4:31)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 8 ноября 2019 годаЖанр: Christmas, Pop, RockПродолжительность: 05:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5273ED0E837C65A77B5FF4BF666B4538700BD805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435578   (141539) от 29.12.2020
+
+Sonny & Cher - The Collection (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cher - Gypsies, Tramps And Thieves (2:35)
+02. Cher - Dark Lady (3:25)
+03. Cher - The Way Of Love (2:31)
+04. Sonny & Cher - I Got You Babe (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4D80BB7480B6979006CB7D5D008B6190ED13BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435698   (141386) от 29.12.2020
 
 VA - Ciao Italia (1997) 3CD Box Set [FLAC|Lossless|tracks + .cue]<Pop>
@@ -629,122 +746,6 @@ Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Drea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683010   (129908) от 09.12.2023
-
-НеАнгелы - Номер один (2006) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты из тех самых
-02. Танцуй со мной
-03. Я знаю, это ты
-04. Только люби(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD626B4DC99A3B608C2527617BD50A7034E301A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525630   (129389) от 21.01.2022
-
-Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Forbidden Fruits Of Eden (0:40)
- 02. AURORA, Pomme - Everything Matters (3:34)
- 03. Giving In To The Love (3:01)
- 04. Cure For Me (3:22)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683325   (128709) от 10.12.2023
-
-Rebecca Ferguson - Heaven, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digging For Gold [00:03:51]
-02. I'm Going To Love You [00:03:52]
-03. From Now On [00:03:30]
-04. Shallow Breathing [00:03:33](   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683473   (128403) от 11.12.2023
-
-Bananarama - Robert De Niro's Waiting /  Velvet Lies (Remixes) (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert De Niro's Waiting (The Reflex Revision - Edit)
-02. Velvet Lies (Luke Million Remix)
-03. Robert De Niro's Waiting (The Reflex Revision)
-04. Venus (Boys Noize Rework Edit)Жанр: PopПродолжительность: 00:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C41A4D5528D3C45DD834E28BD8FE5A642983BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1617134   (1035611) от 05.03.2023
+
+Раритет - Кровь имеет память (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Адова игла [00:03:22]
+02. Кровь имеет память [00:05:32]
+03. Этот мир [00:03:49]
+04. Ледокол [00:04:09](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFF9B50291BB07292D2D551DC1B07A1E1427140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616987   (1035566) от 05.03.2023
+
+Ольга Арефьева и Ковчег - Амона Фе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь в октябре [00:04:21]
+02. Аквалюди [00:04:19]
+03. Амона Фе [00:06:23]
+04. Бетельгейзе [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7C62570B84EE9F07FB114C8FAECCB0AAC83EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617357   (1035326) от 06.03.2023
 
 Аборт Мозга - Акустика (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore punk>
@@ -685,61 +743,6 @@ Nikolay - Mother Russia (1995) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5686D8081D6742B99CB30659DE08583D2B5373B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239898   (1031955) от 12.02.2021
-
-Облачный Край - 11 Альбомов (1982 - 2003)[FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2C06141EDD4C9637650913D8B50B09CEA57665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620663   (1031866) от 21.03.2023
-
-Константин Ступин и Алексей Ракитин - Когда я умер (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда я умер [00:05:26]
-02. Ночная трость [00:03:04]
-03. Гром [00:02:58]
-04. Пушистый хвост лисицы [00:02:54](   Читать дальше...   )Жанр: RockПродолжительность: 00:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2750DAD1415949D86F0C62E639FE1B28C5121513
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1449710   (1029520) от 23.02.2021
+
+VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Might Just Take Your Life (Remastered 2005)
+02. The Lachy Doley Group - Make or Break
+03. Santana - Oye Como Va
+04. Glenn Hughes - Steady(   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 04:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5FCE9F75BF1D4177F9DDA659420105E09AE2AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623263   (1029398) от 01.04.2023
 
 VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
@@ -713,35 +742,6 @@ VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61586CCDAFFF7B41F35E268DE00C7233D6538AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469078   (1016746) от 10.05.2021
-
-VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ONI - Barn Burner (04:00)
- 02. Interloper - Glasshouse (04:31)
- 03. Monuments - Animus (03:41)
- 04. Fiends - Keep Me in the Dark (06:35)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9686B02628928B86ED36A967D377F2A561D94155
 ```
 
 https://mybot314.ru/tekegram_catalog/

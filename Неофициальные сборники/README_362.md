@@ -1,3 +1,206 @@
+###  Публикация: 924779   (557373) от 04.08.2015
+
+VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Дорин - Для Тебя
+002. Faith Evans - Extraordinary
+003. Профилактика - Навсегда Ухожу
+004. Charli Xcx & Roma Pafos Vs Lilly Wood & Nejtrino & Baur - Player Break The Rules(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113D4AAAD6F391755C5112B9BA1CE68E5AF73DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924716   (557307) от 04.08.2015
+
+VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.25-17 - Просыпайтесь! (02:48)
+02.7000$ - Хозяин леса feat. Noize MC, Staisha (03:45)
+03.7Б - Холодно (vs. Влад Демьян) (04:26)
+04.Brainstorm - Эпоха (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924709   (557275) от 04.08.2015
+
+VA - 100 золотых зарубежных хитов 80 - 90-х (2015) [MP3|320 кб/с]<Dance, Disco, Eurodance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557275.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Ross - Valentino Mon Amour
+002. Annie Anner - Night In The City
+003. Antares - Ride On A Meteorite
+004. Apotheosis - O Fortuna(   Читать дальше...   )Жанр: Dance, Disco, Eurodance, PopПродолжительность: 08:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2257DB57DFEF950A950E7528192FD8A96CE89FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235607   (557156) от 13.07.2018
+
+VA - Top 100 Зайцев.Нет Июнь 2018  [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MATRANG - Медуза
+02. Макс Барских - Сделай громче
+03. Ka-Re - Polovina
+04. Элджей - Suzuki(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3FF29B0D922D09F580612D845938AB16C59EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305304   (557150) от 30.05.2019
+
+VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557150.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Komflux - Logarithm
+002. Komflux - Hard Seek
+003. Nitrous Oxide - Avalon
+004. Caboosh - Persona Non Grata(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2988DFA0CF13DD0F4DB05118036026EE635A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305302   (557108) от 30.05.2019
+
+VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lounge Pilots - Any Lounge Color
+002. Molda Sensa - Trawler
+003. Moby - The Waste Of Suns
+004. Too Ugly - Gold Coast(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB328C4C4F93D967CD93AFB78F05EF96172F00A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305303   (557105) от 30.05.2019
+
+VA - Cyberspace: Techno Electronic Mix (2019) [MP3|320 Kbps] <Electronic, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unifire - Bang The Underground
+02. Wasted Penguinz - Not That Easy
+03. Diginsect - Shadowblast (Original Mix)
+04. Gal Tsadok-Hai - The Green Eden(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 08:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BF7B15AF6ACFDB243872138C1A4B6FB76B18E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305305   (557102) от 30.05.2019
 
 VA - Essential Vocal House: EDM Hits (2019) [MP3|320 Kbps] <Electro, Vocal House>
@@ -542,208 +745,6 @@ VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D526DA2536E96CA36AF2B4A7FC6F9A63A963F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236051   (556162) от 15.07.2018
-
-VA - Дискотека 2018 Dance Club Vol.181 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. DJ Cargo - Summer Night (3:01)
-02. Mesto - Give Me Love (3:22)
-03. Sunrise Blvd ft Nelita - Can't Hide (Radio Version) (3:46)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC602593FAFE9904D771DCA419F3E7C528FB87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305892   (555931) от 02.06.2019
-
-VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aaron Smith - Dancin (Krono Remix) (4:15)
-2.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-3.Billie Eilish - Bad Guy (3:14)
-4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C7E55B824F089BF6EBF487ECEF8DB4919E70AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305931   (555930) от 02.06.2019
-
-VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samra & Capital Bra - Wieder Lila
-002. Juju - Vermissen (feat. Henning May)
-003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305977   (555873) от 02.06.2019
-
-VA - Hit Music (лето 2019) от Мяу [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moon Taxi - Now's The Time
-002. Ally Brooke feat. A Boogie Wit Da Hoodie - Lips Don't Lie
-003. Градусы - Не Уходи
-004. Jam & Spoon Feat. Plavka Vs. D - Right In The Night (Rico Bernasconi Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62DD9F91A737CC41A201C2CE3F55BF68B346945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305859   (555870) от 02.06.2019
-
-VA - 100 хитов в дорогу. Русский выпуск часть 2 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. IOWA - Пой (Eleonora Kosareva Remix) 3:29
-002. Anivar - Крыльями 3:24
-003. ALEKSEEV - Моя звезда (ARROY & Sergey Raf Remix) 3:03
-004. Artik & Asti - Привет (Lavrushkin & Max Roven Remix) 4:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1713ABCD76B61F2B10493CEC67EE0083A883D70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306007   (555861) от 02.06.2019
-
-VA - Громкие новинки Июня vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555861.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Иван Дорн - Страсть (5:13)
-2.КняZz - Бывший раб (4:43)
-3.Taron Egerton - Rocket Man (4:30)
-4.Kaiser Chiefs - Record Collection (4:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23BB40F0265A703A14FDCC74CA663D3C1D2CBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306247   (555829) от 03.06.2019
-
-VA - German Top 50 Party Schlager Charts 03.06.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Andrea Berg - Die geheimen Träumer
-03. Kerstin Ott - Regenbogenfarben
-04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: Pop, Schlager
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F334887E2E9291BDFD827C47DA6AC306D24DAFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

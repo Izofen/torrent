@@ -1,3 +1,30 @@
+###  Публикация: 1737446   (49737) от 17.07.2024
+
+Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using SwiftUI, Swift 5.5 and Xcode 13 (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49737.jpg" />
+</div>
+
+
+###  Подробнее
+
+The goal of this book is to teach the skills necessary to build iOS 15 applications using SwiftUI, Xcode 13 and the Swift 5.5 programming language.
+Beginning with the basics, this book provides an outline of the steps necessary to set up an iOS development environment together with an introduction to the use of Swift Playgrounds to learn and experiment with Swift. (   Читать дальше...   )Жанр: Программирование, язык программирования Swift, программирование для AppleЯзык: АнглийскийИздательство: Payload MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE054CAC89C4B16AF6D69A87BCCDF65D9A40ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738185   (49287) от 21.07.2024
 
 T. Edet | Database Fundamentals (2024) [PDF] [EN]
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F443A32A2A08D006A378A7BBFBDF1E06E3E06B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759595   (37813) от 09.11.2024
-
-Morten Barklund | React in Depth (2024) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поможет вам овладеть стандартными навыками работы с React для создания эффективных и масштабируемых приложений. Если вы знаете основы, эта книга проведет вас через продвинутые паттерны компонентов, методы оптимизации и инструментарий разработчика. Каждый новый навык представлен и объяснен на практических примерах — от погодного приложения до клона Wordle. Научитесь (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning Publications CoФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFD7686A79B207DDC154BF0009D10A0ADA5DD4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

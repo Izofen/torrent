@@ -1,3 +1,32 @@
+###  Публикация: 1348680   (1004272) от 02.01.2020
+
+Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siddhi Yang (5:49)
+02. She Nying Yang (6:06)
+03. Tarai Yang (6:52)
+04. Mani Yang (8:31)(   Читать дальше...   )Жанр: Tibetan ChantsПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349314   (1004225) от 02.01.2020
 
 Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8328AC2162823F2C45010D643862284D0D468E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352228   (1000880) от 15.01.2020
-
-Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Directions (8:19)
-2.All Who Wander (8:15)
-3.Trailblazers (6:20)
-4.Springtime Dreaming (9:20)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

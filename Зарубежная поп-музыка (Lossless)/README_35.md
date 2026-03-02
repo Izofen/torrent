@@ -1,3 +1,119 @@
+###  Публикация: 1287876   (699376) от 09.03.2019
+
+Dido - Still On My Mind (2019) BMG [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Folk, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Hurricanes (5:17)
+ 02/12. Give You Up (3:22)
+ 03/12. Hell After This (3:28)
+ 04/12. You Don't Need a God (3:32)(   Читать дальше...   )Жанр: Electronic, Pop, Folk, DowntempoПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC496B1CBBBB5FB9E51406DD889A224526EB3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132768   (698869) от 10.05.2017
+
+The Korvids - The Korvids (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Faith (03:49)
+02. Spyboy (03:33)
+03. Tender Tyrannies (04:54)
+04. Slouch (04:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D45206540977D2F5786F6AC755E6EB2DEE5E3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132759   (698795) от 10.05.2017
+
+Sylvie Vartan - Confidanses (1989) [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est Fatal 3:31
+YouTube: Q6SUwv4RmmM
+(Michael Cretu / D.Barbelivien)
+02. Ca va de soi 3:32(   Читать дальше...   )Жанр: Pop , ChansonПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221076   (698513) от 22.04.2018
+
+Selena Gomez - Revival (Box Set USA) (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival - 04:06
+02. Kill 'Em With Kindness- 03:37
+03. Hands to Myself - 03:20
+04. Same Old Love- 03:49(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4D5704DF957B32FF5E9718E16324BC248183B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402909   (697583) от 16.08.2020
 
 Pupo - Su di noi - The Best of Pupo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -631,122 +747,6 @@ Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, New Wa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46CE70BE135830D7C9172752266EA5C10F88A3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 73285   (685884) от 22.08.2020
-
-VA - Best Audiophile Voices vol.4 (2005) [APE|Lossless|image + .cue] <Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salena Jones - You Don't Bring Me Flowers (3:31)
-02. Jane Duboc - Lady Jane (4:25)
-03. Tim Tamashiro - The Way You Look Tonight (3:14)
-04. Marianna Leporace - If (2:35)(   Читать дальше...   )Жанр: VocalПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018EA1FE4441EA39888C61EF27E97C73C3EB0CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029131   (684642) от 25.06.2016
-
-Amy Grant - House Of Love (1994) [APE|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky One
-02. Say You'll Be Mine
-03. Whatever It Takes
-04. House of Love(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA5B6D72EBF7957A982866D060DB6DB15C0730D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028980   (684531) от 25.06.2016
-
-Natalia - In My Blood (2016) [FLAC|Lossless|tracks] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Anyone Out There 3:38
-02 In My Blood 3:32
-03 Julie In The Meantime 3:41
-04 Sabotage 3:43(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CF8D27492E4F9E435583AF9F145378C3312A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289947   (684342) от 17.03.2019
-
-VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Lancaster feat. Onkel J. - So wie im Film
-02. Schlagergold - Flippers Hitmix
-03. Daniela Haake - Liebesrausch
-04. Bernice Ehrlich - Nie wieder missen(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C2A7CCCE028608F729CB5596DEFA63EA45D411
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1399217   (733762) от 30.07.2020
+
+Векторный клипарт - Chinese New 2021 Bull Asian Background Design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Китайский Новый год 2021
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C88CFB9A94BE83311F6352A3134311B4F60C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399222   (733729) от 30.07.2020
 
 Векторный клипарт - Brand name company logos business corporate design 30 [EPS]
@@ -650,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D1B72D642F625E1EC607F31F14626AF93DB899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283867   (730858) от 19.02.2019
-
-Векторный клипарт - Happy valentines day vector design #4 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасные шаблоны для открытки, приглашения, флаера ко дню Валентина - 14 февраля.Формат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC0D80F29297B35F75E3F4A44D8CE8C39F79344
 ```
 
 https://mybot314.ru/tekegram_catalog/

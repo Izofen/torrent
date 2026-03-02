@@ -1,3 +1,206 @@
+###  Публикация: 1378083   (847954) от 24.04.2020
+
+Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dio - I Speed At Night
+02. Dio - Rainbow In The Dark
+03. Black Sabbath - Falling off the Edge of the World
+04. Ronnie James Dio - Love Is All(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA27566A2B21A26922D3FB61B63A9A5F8F1061F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111376   (847753) от 05.03.2017
+
+VA - Дискотека 80-90 х По-Новому Зарубежный выпуск № 43 (2017) [MP3|320 Kbps] <Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847753.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lian Ross - Say You'll Never(DJ NIKOLAY-D Remix ) 6:31
+002. DANUTA - Touch My Heart (DJ NIKOLAY-D & DJ RONNY Remix ) 7:01
+003. HEAVEN 42 feat. DJ NIKOLAY-D - Just Tonight(SUPER LONG Remix ) 9:42
+004. Angle Gold - Eat You Up (DJ NIKOLAY-D, DJ OLGA-D & DJ RONNY Remix ) 8:14(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231DE5F4656708DE0C49FFCE3B995F3B8CB61A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111355   (847751) от 05.03.2017
+
+VA - Mega Дискотека 80-90-х В Современной Обработке (2017) [MP3|256-320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847751.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - Ha - The Sun Always Shines On TV ('500 Channels & Nothing's On' Instrumental Dub Mix) 7:10
+002. Aaron Ambrose feat. Paulina - Moonlight Shadow (Scotty Remix) 4:11
+003. Boney M - Happy Song (Dj Ikonnikov E.x.c Version) 6:36
+004. Clan Dj Team - The Groove Has Change (Sergey Zar Radio Mix) 4:43(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03093347F355144E73D884738DFD7C1E7F14C36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498737   (847678) от 02.10.2021
+
+VA - I Can See Through You: 60s Psychedelic Rock & Garage Beat Rarities Vol.3 (2021) [MP3|320 Kbps] <Rock, Funk, Garage Rock, Soul>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazarus - In the Beginning
+02. The Geers - I Need You
+03. The Rugbys - Juditha Gina
+04. The Jerms - Green Door(   Читать дальше...   )Жанр: Rock, Funk, Garage Rock, SoulПродолжительность: 01:29:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF3ECCFF76A4A6B5A527CF0263B68290B8C0BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499646   (847598) от 02.10.2021
+
+VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847598.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. PlayingTheAngel feat. Rory - Доверяй Мне (02:52)
+ 002. Adam Maniac & Melissa - Танцевать (03:04)
+ 003. Aikko feat. ЮККИ - Лучше Всех (02:31)
+ 004. AKVA - Аспирин (02:16)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF75BD33D633F5924BBE65CF83F3136A9F40E55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498597   (847466) от 02.10.2021
+
+VA - Masters Of Hardcore Chapter XLIII Magnum Opus (2CD) (2021) [MP3|320 Kbps] <Hardcore & Hardstyle, Speedcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847466.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Angerfist - What Happened
+02. Re-Style & Cammie Robinson - Kryptonite
+03. N-Vitral & Never Surrender - Wij Gaan Harder(   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 02:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8871E133C5AA89F36C2E0A53B8B8FFBF4A97AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499035   (847454) от 02.10.2021
+
+VA - Радио Рекорд Dance 2021 Выпуск 2 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Quba, Sandra K, IDA - Silence (2:30)
+02. Scott Forshaw, Alix Robson - But I Do (2:55)
+03. Marco Dalla Villa - Baltasound (2:26)
+04. Shaun Williams - I Got This Love (3:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276A4272829427AF6F8B6EC4F7E97A8E86CA53F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499496   (847357) от 02.10.2021
 
 VA - Shazam & Apple Music Chart (Россия Топ 100 Сентябрь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -539,209 +742,6 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72FC97CC658B9792D6745C9853C47F608944FD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111610   (846569) от 06.03.2017
-
-VA - Peace Acapella: Grand Hit Collection (2017) [MP3|224-320 Kbps] <RnB, Rap, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Swedish House Mafia And Knife Party X Apster And Nlw - Antidote Soundboy (Bonka Mashup) 3:01
-002. Cashis - 100 Racks 3:48
-003. Kalash - Aller Simple 4:13
-004. Alonzo - Binta 3:37(   Читать дальше...   )Жанр: RnB, Rap, Hip HopПродолжительность: 08:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40D5A3713891191A8DC556C3874F916DC5A3313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111638   (846565) от 06.03.2017
-
-VA - Рок впрок выпуск № 8 (2017) [MP3|320 Kbps] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. МодеМ - Шанель №6 4:27
-002. Fire Stream - Кто мы? 6:05
-003. Label - Нам не все равно (feat. Дмитрий Спирин) 3:12
-004. РЕЙС - Родная 3:33(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FB5E5CA4B1F5BFC0BA6934447F49A1AE74D8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378136   (846526) от 25.04.2020
-
-VA - Настроение жесть (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846526.jpg" />
-</div>
-
-
-###  Подробнее
-
-001	Салехард — Настроение жесть
-002	Ковтун  Андрей — Черная полоса
-003	Коновалов Евгений — В жизни бывает всякое
-004	Южный Ильдар — Откровение странника(   Читать дальше...   )Жанр: Pop, Shanson, OtherПродолжительность: 06:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF6FE93AACB43689E983AA9D227038442AEAE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111815   (846492) от 06.03.2017
-
-Taj Mahal - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Man, Brown Man
-02. Coconut Man (Live)
-03. Kalimba
-04. New E-Z Rider Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD96C1128BFF9CED3A0FD0CECEE7F8A8F280321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111810   (846480) от 06.03.2017
-
-Rihanna - MP3 Play (2014) [MP3|320 Kbps] <RnB, Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umbrella (feat. Jay-Z)
-02. Pon De Replay
-03. Push Up On Me
-04. SOS(   Читать дальше...   )Жанр: RnB, ReggaeПродолжительность: 04:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F293247B7AC913DF3A424C4E248419177F0FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378276   (846457) от 25.04.2020
-
-Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846457.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:29| 01. Andru Donalds - Just For One Day
-|03:45| 02. Andru Donalds - Holdin' On To You
-|04:00| 03. Andru Donalds - Mishale
-|04:21| 04. Andru Donalds - Better Way(   Читать дальше...   )Жанр: PopПродолжительность: 02:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F094CE54973DA3E582E137BDE8F2D041C0EFC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378204   (846290) от 25.04.2020
-
-Livin' Blues - 100% Livin' Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey And Gin
-02. Mysterios Ways
-03. Shylina
-04. I Came Home At Night(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F18660F9E9AFFD6D09458EB5E494F847E5EACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1603104   (1045835) от 08.01.2023
+
+Hurts - Happiness (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Lining
+02. Wonderful Life
+03. Blood, Tears & Gold
+04. Sunday(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D56C352FFEED29B0C7CD78BC963EBC03DC7224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605675   (1044837) от 18.01.2023
+
+Gilbert O'Sullivan - The Best Of (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044837.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Get Down:
+01. Get Down (2:40)
+02. Matrimony (3:12)
+03. No Way (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 03:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72690CB817AD2E76521C69E752B1015A3D4DFA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605339   (1044814) от 18.01.2023
+
+Kovacs - Child Of Sin (2023) [FLAC|Lossless|tracks] <Pop, Vocal Jazz, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile (3:02)
+02. Goldmine (3:15)
+03. Child Of Sin (with Till Lindemann) (3:50)
+04. Bang Bang (3:11)(   Читать дальше...   )Жанр: Pop, Vocal Jazz, SoulПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23394ADB2839F9C9507B907A662C8E6037F2EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607590   (1043943) от 27.01.2023
+
+Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного (   Читать дальше...   )CD - 1:
+01. Scared Of The Dark (3:47)
+02. Deeper Shade Of Blue (3:41)
+03. One For Sorrow (4:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608133   (1043749) от 29.01.2023
 
 VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -632,122 +748,6 @@ Showaddywaddy - Under The Moon Of Love (1993) [FLAC|Lossless|image + .cue] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27BCA98E3225DF316F5F357F5218F58C1A279BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439911   (1039332) от 15.01.2021
-
-Showaddywaddy - Greatest-Hits-Medley (1991?) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showaddywaddy, Intro (1:10)
-02. Twist And Shout (1:09)
-03. Alley Oop (1:22)
-04. Three Steps To Heaven (1:07)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514BBCA47DA8AA0D9B325A49C435894B9675CA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613709   (1039288) от 19.02.2023
-
-VA - Vintage Café – The Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening, Lounge>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Os Digitalistas - Grizzly Bear (Javier Penna Remix) (3:12)
-02. Nenei - Just the Two of Us (Luxury Remix) (4:01)
-03. Bellestar - Can't Get You out of My Head (Nu Disco Mix) (2:36)
-04. Natty Bong - No Rain (Ronan Remix) (2:45)(   Читать дальше...   )Жанр: Pop, Easy Listening, LoungeПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75D0EC3EDE00A3E3194364E0A3C7E0D92CADE03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440253   (1039160) от 16.01.2021
-
-The Archies - Sugar Sugar (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Sugar (2:49)
-02. Jingle Jangle (2:45)
-03. Bang-Shang-a-Lang (2:35)
-04. Sugar and Spice (2:06)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E50846AD8497AB7FC2A902961CF860AA7588B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440260   (1039151) от 16.01.2021
-
-Sha-na-na - Rama Lama Ding Dong (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Prayer (2:47)
-02. Get A Job (2:48)
-03. Little Arrows (2:42)
-04. Alley Oop (2:43)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297235F10042A39EA5A4B8B76FFB2F4A43212260
 ```
 
 https://mybot314.ru/tekegram_catalog/

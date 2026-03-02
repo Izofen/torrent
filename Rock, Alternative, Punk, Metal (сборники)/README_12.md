@@ -1,3 +1,32 @@
+###  Публикация: 1503118   (820962) от 18.10.2021
+
+VA - The Top 100 Most Played: Rock (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disturbed - The Sound of Silence
+02. Cage The Elephant - Ain't No Rest for the Wicked
+03. Nirvana - Come As You Are
+04. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: RockПродолжительность: 07:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB710DD75176095A83CDE3E74E5D4EC39E1E427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381558   (820872) от 10.05.2020
 
 VA - Life under the rubble - collection (2020) [MP3|320 Kbps] <Metal>
@@ -716,35 +745,6 @@ Scorpions - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0CFDBC2D390BFE9FD14BC281AA798633C433491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508913   (796219) от 10.11.2021
-
-VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ironwill - Breakout
-002. Fiona - Where The Cowboys Go
-003. Distilled Tongues - Drawing Shapes
-004. Andrйs Calamaro - Bohemio Con Julio Iglesias(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4250AED739403E9EEEFF3964D1CE5F56B0B8F571
 ```
 
 https://mybot314.ru/tekegram_catalog/

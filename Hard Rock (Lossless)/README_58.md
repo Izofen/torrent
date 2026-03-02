@@ -1,3 +1,61 @@
+###  Публикация: 1332860   (309727) от 22.10.2019
+
+Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Win I Lose (6:01)
+02. Bring Your Light Out (5:07)
+03. Blow A Fuse (3:55)
+04. Never Say Goodbye (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' HeavyПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42159C0C653C748F9FFB3AF96B0594C7645A84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077234   (308893) от 27.11.2016
+
+Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room With A View 03:20
+02. No Man's Land (The Blue And The Grey) 04:18
+03. If You Want Me 04:08
+04. Storyville 05:00(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422561   (308695) от 09.11.2020
 
 S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
@@ -684,64 +742,6 @@ Black Stone Cherry - The Human Condition (2020) [FLAC|Lossless|image + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3367CF1C1BAF70B9BD2BD637214D2D823C9BC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334811   (293370) от 30.10.2019
-
-Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Part of Me (3:34)
-02. Lay It Down (3:30)
-03. Forget, Forgive (4:49)
-04. Now or Never (4:30)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71081B76CAC7BD997E50FB4CF39C86FC06791F72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079775   (291896) от 05.12.2016
-
-Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Lossless|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Priestess 3:47
-02. Time To Live 4:30
-03. The Park 5:58
-04. Simon The Bullet Freak 3:46(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C06E3B2D0D57634AE315FA1BC94501F71291FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

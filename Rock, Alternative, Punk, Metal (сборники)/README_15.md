@@ -1,3 +1,32 @@
+###  Публикация: 1211791   (776741) от 09.03.2018
+
+VA - 100 Hits Rock (2018) [MP3|256-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Би-2 - Ля-ля тополя (Музыка Из Фильма О Чем Говорят Мужчины. Продолжение)
+02. Мумий Тролль - Милота
+03. Дана Соколова - Голос (feat. L'One)
+04. Би-2 - Виски(   Читать дальше...   )Жанр: RockПродолжительность: 06:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A5D327EEAEDD08007D43B254C3F4574E660CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211887   (776739) от 09.03.2018
 
 Cinderella - The Best of the Best (2018) [MP3|320 Kbps] <Hard Rock>
@@ -718,35 +747,6 @@ VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126461   (765370) от 18.04.2017
-
-VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crowbar - Plasmic And Pure 5:38
-002. Heavenwood - The Juggler 6:43
-003. Bathsheba - At the End Of Everything 8:26
-004. Beelzefuzz - The Righteous Bloom 6:55(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 15:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,21 +1,19 @@
-###  Публикация: 1061664   (446756) от 11.10.2016
+###  Публикация: 242814   (447325) от 07.10.2010
 
-VA - First Class Lounge Vol. St Tropez (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Moleskinsoft Clone Remover v3.8 [RuS + Multi]
 
->>
->>
+>>След.
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446756.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Man In A Room - Something New (06:06)
-02. Weathertunes - My Night And Day (04:56)
-03. Newton - Just One Touch (04:55)
-04. Dave Ross - Break The Silence (08:03)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
+Moleskinsoft Clone Remover – программа осуществит поиск дубликатов(одинаковых) файлов. Она поможет найти любые одинаковые файлы. Например, файлы изображений, музыки(mp3) и не только. Поиск дубликатов файлов осуществляется тремя способами.
+1. По содержимому – файлы имеют разные имена, но содержат одинаковые данные. Например, файл с вашей фотографией может находиться (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -27,28 +25,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061796   (446755) от 11.10.2016
+###  Публикация: 1569833   (447323) от 15.08.2022
 
-Alberto Rionda Alquimia - Alquimia (2013) Japanese Ed.  2016 Reissue [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+Deer Creek - Menticide (2022) [MP3|320 Kbps] <Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 (It Had Neither Fins nor Wings) nor Did It Writhe [00:07:36]
+02 Peace on Earth [00:06:08]
+03 The Utter Absence of Hope [00:07:36]
+04 It's Rotten [00:04:25](   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78300C3E19D93C3AC6289D4572421626E5F9662E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569827   (447322) от 15.08.2022
+
+Axioma - Sepsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446755.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mutus Liber
-02. El Lobo Y El Arca
-03. Dama Oscura
-04. La Cuna De Arce(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:16:02
+01 - Blood Ruminations (00:06:44)
+02 - Contortions of Passage (00:06:56)
+03 - Septic (00:03:06)
+04 - God Extraction (00:04:52)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:40:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC746519CE224A0561CB388B8E65F4D33D6FE73B
+magnet:?xt=urn:btih:2E75530515CCEA668990EC6778188DE3E55C581B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061615   (446754) от 11.10.2016
+###  Публикация: 1569980   (447320) от 15.08.2022
 
-VA - The Lounge Hotel Vol.5 Royal Edition (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Loa Ride - 2 Relises (2021-2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446754.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rosarossa - Get Free (Soul Beats Mix) (03:34)
-02. Desert Groove - Beyond and Headlines (Orion Omega Mix) (03:34)
-03. Karmo - Push the Button (Carisma Mix) (03:23)
-04. Spherical Eyes - All Is Lost (Crystalline Mix) (03:56)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:00
+01. The Evil Song [00:06:00]
+02. Trouble [00:05:38]
+03. Last Man [00:06:58]
+04. The Pen and the Sword [00:04:14](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 2 CD, 01:27:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D564EF1DCE2A2EE2FAEF026C91205960FDC6679
+magnet:?xt=urn:btih:C0097426C33043E10EDC940C7D17BEC9EFF36C6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061657   (446753) от 11.10.2016
+###  Публикация: 1569790   (447318) от 15.08.2022
 
-VA - Hotel Wellness and Relax Chillout Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+El Astronauta - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446753.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Chillout Company - Miami Morning (06:17)
-02. Ice Pedestrian - Trust (Re:birth Mix by Masa) (08:57)
-03. Derek Lion - Frozen Lake (Meditation Edit) (08:17)
-04. Bertram Geck - Weekend (Live Piano Version) (05:38)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:37
+01. Re-entry(Intro) [00:01:51]
+02. Burn [00:04:50]
+03. Stronger Men [00:03:21]
+04. Give Up the Ghost [00:02:55](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 2 CD, 01:02:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A46375E65F8DCD86445B98C49540020E37231474
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061629   (446752) от 11.10.2016
+###  Публикация: 1569796   (447316) от 15.08.2022
 
-VA - No Need To Rush Vol.6: Sunday Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Stress im Bus - Chruzpe (2022) [MP3|320 Kbps] <Grunge, Stoner, Fuzz, Garage>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446752.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Star (Original Mix) (04:06)
-02. Dave Ross - Sound Desire (Original Mix) (06:43)
-03. Grisha - Mir (Original Mix) (06:04)
-04. Xemplify - Twenty 11 (Original Mix) (06:26)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:49
+01 Hoverbus [00:03:50]
+02 Miss Understood [00:04:41]
+03 With Power [00:03:27]
+04 Golden Skies [00:04:09](   Читать дальше...   )Жанр: Grunge, Stoner, Fuzz, GarageПродолжительность: 00:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21C6BB9C72374C446D7245DE5B5AFCD34DD83348
+magnet:?xt=urn:btih:5A65C457FBE6E5DDFC9325BFA778E0AAE6BD3A7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +170,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061670   (446751) от 11.10.2016
+###  Публикация: 1570103   (447314) от 15.08.2022
 
-VA - Moods Of Spring (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Бронко Билли. Язва / The Pest (1922) DVDRip
 
->>Electronic
->>Easy listening
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446751.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Van - Gentleman (06:48)
-02. Castlebed - Gravity (03:30)
-03. Stefan Reh - Way Out Here (06:48)
-04. Chris Le Blanc - Enjoy Your Life (Cafe Del Mar Edit) (04:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:07
+Еще один фильм под режиссурой Гилберта М. Андерсона и Стэн Лорел в главной роли.
+Стэн продает книги, в частности, биографию Наполеона. Не очень ему везет: он ведет свои продажи около общества глухонемых. И тут, как назло, ему попадается очень говорливая дама... Впрочем, у Стэна еще будет шанс и продать свои книги, и спасти прекрасную девушку.Производство: США, The Amalgamated Producing Company / Quality Film ProductionsЖанр: Комедия, короткометражный, немое киноРежиссер: Гилберт М. "Бронко Билли" АндерсонАктеры: Стэн Лорел, Глен Кэвендер, Вера Рейнольдс, Джой Винтроп, Hero, Мэй ЛорелПеревод: Немой с интертитрамиСубтитры: Русские интертитрыПродолжительность: 00:22:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC2F9281CBC8C9E20DC4471530B1F7DD26453D5
+magnet:?xt=urn:btih:388B79D3839A50162AFE983F72BEF6E560BB8B33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061791   (446750) от 11.10.2016
+###  Публикация: 1569645   (447312) от 15.08.2022
 
-VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Lounge>
+The Bardic Depths - 2 Albums (2020-2022) [MP3|320 Kbps] <Psychedelic Rock, Stoner Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446750.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sofa Groovers - Voyageur - Russia 2 Ibiza Mix
-02. DJ Lounge Del Mar - Wonderful Life - Sometimes it Hurts Mix
-03. Noel - Hold me - Relax Lounge Cafe Chillout Mix
-04. Two Heroes - A Place and a History - Mystical Movie Voice Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:54
+01. And She Appeared [00:07:47]
+02. Regal Pride [00:05:18]
+03. Consumed [00:07:57]
+04. The Burning Flame [00:06:01](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 2 CD, 01:59:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:937C49870A7F6D796A90D99F620E0E16ECACAEF0
+magnet:?xt=urn:btih:80545EBF40FC8F00909082E51486C7585B6C7C06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,54 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247956   (446746) от 18.09.2018
+###  Публикация: 1569962   (447307) от 15.08.2022
 
-MarsEdit 4.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2018Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9EA62D1669FECFC9017EFFA6780EF3B8DDE64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248135   (446744) от 18.09.2018
-
-Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
+Lillian Boutte - The Jazz Book (1994) Blues Beacon Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446744.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cimarron [3:52]
-02. Danza de los nanigos [4:30]
-03. Una tarde cualquiera en Paris (To Bebo Valdes) [4:49]
-04. Preludio (To Jose Juan) [3:29](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:47:24
+01. Now Baby or Never [4:11]
+02. Comes Love [5:10]
+03. On Revival Day [4:25]
+04. Don't Worry About Me [6:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:547C74CDE46A84D254CBB9CE4872360C127FE179
+magnet:?xt=urn:btih:AF1DCDE206A1EE3A5A700A914521C2C5CF2153B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,26 +255,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247950   (446743) от 18.09.2018
+###  Публикация: 1569814   (447305) от 15.08.2022
 
-JustBroadcaster for Facebook 2.1 [En]
+Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446743.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самый быстрый путь транслировать с вашего Mac на Facebook.
-Всё что вам нужно - это иметь Facebook-аккаунт.Идеально для тех у кого нет времени вникать в технические детали. Создайте профессиональную трансляцию в считанные минуты.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: MacBroadcasterПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+01 - Judgment [00:03:33]
+02 - Good Fight [00:03:55]
+03 - Won't Stay Down [00:02:27]
+04 - We Are the Resistance [00:02:56](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:38:35
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A1AA4DF3C46BA6E06E695319C17ACB197E1EBD20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,26 +284,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248072   (446742) от 18.09.2018
+###  Публикация: 1569890   (447303) от 15.08.2022
 
-GroupsPro 3.1.1 [Multi/Ru]
+Хаме-леоН - Крики! (2022) [MP3|320 Kbps] <Heavy Power Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446742.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
-GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2018Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и т.д.
+01 - Утро мёртвых [00:01:08]
+02 - Бежать! [00:04:42]
+03 - Navigator [00:06:38]
+04 - Я знаю имя [00:05:18](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:54:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7950DF115856646B81B4EE7360C65DD1BE87EF78
+magnet:?xt=urn:btih:6DDA0CBD33E25B791FBB0E11415252D9F8DA82BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,56 +313,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248204   (446740) от 18.09.2018
+###  Публикация: 1569858   (447301) от 15.08.2022
 
-Studies 1.5.0 (48) [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
-
-Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248131   (446739) от 18.09.2018
-
-Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+The Charlie Byrd Quintet - Du Hot Club De Concord (1995) Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446739.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nuages [8:17]
-02. How About You [5:05]
-03. Someone To Watch Over Me [6:59]
-04. Makin' Whoopee [5:23](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:23
+01. Swing '59 [4:44]
+02. Golden Earrings [3:45]
+03. Lamentos [4:41]
+04. Carinhoso [4:58](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 01:02:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D63EBF3638C65B808DD07E7F868E2D2A3D2CCB83
+magnet:?xt=urn:btih:0D5CFC3CE2A966A6FBB027017093E96389A50E33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,27 +342,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248196   (446738) от 18.09.2018
+###  Публикация: 1569898   (447299) от 15.08.2022
 
-AnyTrans for iOS 7.0.0 (20180918) [Multi]
+Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Funeral March -6ft Under (00:02:47)
+02 - Black Knight (00:02:43)
+03 - Madness (Explicit Version) (00:04:25)
+04 - Age of Darkness (00:03:57)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50DB401159C09910AE4ECFFC72134CA1485B882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570048   (447298) от 15.08.2022
+
+Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else [00:03:28]
+02. Vein mp3 [00:03:56]
+03. Non-Human Club 2.0 [00:03:14]
+04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FAC131AC6C5708BC1096F12F6505D12339DB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570057   (447297) от 15.08.2022
+
+The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravedigger
+02. Bad Day
+03. BraveNation
+04. Eternal(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD37D823C11E676287B1D208B49287A8820FE7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570012   (447295) от 15.08.2022
+
+Q-Dir 10.95 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446738.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
-
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA5ABF82095F6F6726DAF140F945B8CD441F930A
+magnet:?xt=urn:btih:6DCA049BF6D6F9CA4EA2E7B4B1CB097468FE4584
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,26 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248189   (446737) от 18.09.2018
+###  Публикация: 1570000   (447292) от 15.08.2022
 
-App Cleaner & Uninstaller Pro 5.4 [En]
+Жорж Сименон | Мегрэ и строптивые свидетели (2017) [MP3, Александр Хошабаев]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446737.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Управляйте установленными приложениями, деинсталлируйте ненужные приложения, удаляйте сервисные файлы приложений.
-Удалите все служебные файлы и будьте уверенны, что ничего лишнего не занимает места на Вашем диске. Запустите приложение и оно автоматически сделает всю работу по поиску служебных файлов за Вас.Тип издания: macOS SoftwareРелиз состоялся: 14.09.2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+Комиссар Мегрэ носит давно вышедшие из моды котелок и пальто, не расстаётся с трубкой, предпочитает дождливую погоду, обожает греться у огня и ходить, заложив руки за спину. Мрачный, немногословный, он обладает редким даром внушать доверие, ему известны тайные пружины человеческой драмы. Разгадывая самые сложные преступления, распутывая самые причудливые интриги, (   Читать дальше...   )Жанр: классические детективыПеревод: Елена ЯкушкинаПродолжительность: 03:59:20
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9C48A2D612E2E3F34FECA02C1F826BC2FCA57756
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,29 +482,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248229   (446735) от 18.09.2018
+###  Публикация: 1570032   (447290) от 15.08.2022
 
-Che-MD - Хозяин в доме (2018) [MP3|320 Kbps] <Alternative Rock, Folk Rock, Punk Rock>
+Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446735.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа Che-MD — тогда она называлась Plexus — была основана в 2002 году её бессменным лидером и идейным вдохновителем Михаилом Смоленко, ныне журналистом бельцкого телевидения, документалистом и любителем молдавской старины.
-Название коллектива поменялось в 2006 году на вариант созвучный с сочетанием имени легендарного революционера Че Гевары и названия интернет-домена (   Читать дальше...   )01. Герои Бессарабии
-02. Страх
-03. Балканика
-04. Бесы(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Punk RockПродолжительность: 00:36:36
+01. Someone Else [00:03:28]
+02. Vein mp3 [00:03:56]
+03. Non-Human Club 2.0 [00:03:14]
+04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:55C9C60593EAA26B48400B95E4051703D60FE554
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,28 +511,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248111   (446734) от 18.09.2018
+###  Публикация: 1570051   (447288) от 15.08.2022
 
-Darlyn Vlys - Prince in the Rain (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Techno, Indie Dance>
+Лайза Джуэлл | Ночь, когда она исчезла (2022) [MP3, Наталья Мартынова]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446734.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Northern Lite & Darlyn Vlys – Sun In Hell | AFFKT Remix (06:58)
-02. Darlyn Vlys & Kid Bucle – Tears In Rain | Marc DePulse Remix (06:44)
-03. Darlyn Vlys & RARI – Paradoxal | Third Son Remix (06:07)
-04. Darlyn Vlys & Haptic – Surface | HearThuG Remix (07:40)(   Читать дальше...   )Жанр: Deep Progressive House, Techno, Indie DanceПродолжительность: 01:07:21
+Таллула и Зак отправляются на свидание. Они совсем юные, но у них уже есть маленький ребенок. У пары не все гладко в отношениях, но, кажется, Зак по-настоящему влюблен в Таллулу. А что чувствует она?
+Последний раз их видят направляющимися на вечеринку в особняк, который прозвали «„Темным местом“».
+Проходит пара лет. Автор детективов Софи Бек только что переехала (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 12:31:11
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:41B7D6D6C642353662E554E6E8FE8C07F0753D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,27 +539,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248162   (446731) от 18.09.2018
+###  Публикация: 1569997   (447287) от 15.08.2022
 
-Things 3.6.2 [Multi/Ru]
+Войцек / Woyzeck (1979) BDRip [H.264/720p] [MVO]
 
->>
->>
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+Экранизация незаконченной пьесы Георга Бюхнера. История солдата Войцека, обезумевшего от тягот жизни. Он кроток и пассивен, берёт всякую работу, чтобы содержать своего ребенка и подругу Мари. Однако жестокость командования и ветреность возлюбленной однажды становятся непосильной ношей... В основу фильма (и пьесы) положена реальная история Иоганна Кристиана Войцека, (   Читать дальше...   )Производство: Германия, Werner Herzog Filmproduktion, Zweites Deutsches Fernsehen (ZDF)Жанр: драма, биография, криминал, экранизацияРежиссер: Вернер ХерцогАктеры: Клаус Кински, Ева Маттес, Вольфганг Райхман, Вилли Земмельрогге,
+Йозеф Бирбихлер, Пауль Буриан, Фолькер Прехтель, Дитер Аугустин, Ирм Херманн, Вольфганг БёхлерПеревод: профессиональный многоголосый (R5), любительский одноголосыйСубтитры: русские (knulp), английскиеПродолжительность: 01:19:45
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0A6EA7CB5AA39A22378589F1FE9110F6CA9E9E1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,200 +566,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248223   (446730) от 18.09.2018
+###  Публикация: 1570036   (447286) от 15.08.2022
 
-VA - German Top 100 Single Charts 17.09.2018 [MP3|320 Kbps] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro Gigi D'Agostino - In My Mind
-002. Bonez MC RAF Camora - 500 PS
-003. Capital Bra - Melodien (feat. Juju)
-004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248210   (446729) от 18.09.2018
-
-Калеб Крисп | Только не Айви Покет! (2018) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы знакомы с Айви Покет? Эта двенадцатилетняя горничная — сущее наказание для всех, у кого она когда-либо служила. Айви сродни стихийному бедствию: там, где она появляется, тут же наступает хаос и происходят разные недоразумения. Она запросто может окунуть вас лицом в суп и высказать все, что у нее на уме. Зная об этом, вы бы доверили ей ужасно ценный алмаз Тик-так? (   Читать дальше...   )Жанр: Городское фэнтези; Фантастика для детейПеревод: Наташа АллунанФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248160   (446727) от 18.09.2018
-
-Avant Browser Ultimate 2018 build 6 + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не знаете какой браузер лучше - Internet Explorer, Chrome или Firefox? Испытайте Avant Browser - современный браузер, использующий 3 движка (Trident, Webkit и Gecko), между которыми можно быстро и легко переключаться. Avant Browser имеет удобный интерфейс, умеет блокировать всплывающие окна, флеш-ролики и рекламу, включает в себя массу нужного для работы в интернете.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248141   (446726) от 18.09.2018
-
-VA - Morning Breeze Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Rise & Shine (Original Mix) 4:37
-02. Martin Liege - Chillin In La (Original Mix) 3:59
-03. Red Chameleon - Everything (Original Mix) 3:55
-04. Solar Music Club - Down To Earth (Original Mix) 6:11(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248060   (446724) от 18.09.2018
-
-VA - Record Super Chart 553 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynoro feat. Gigi D'Agostino - In My Mind
-02. Chris Lake - I Want You
-03. The Prince Karma - Later Bitche
-04. Vanessa da Mata - Ai Ai Ai (Felguk & Cat Dealers Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 01:54:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248121   (446723) от 18.09.2018
-
-Shortcut Bar 1.8.14 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
-Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552523   (446722) от 27.09.2012
-
-DJ Feel - TranceMission (25-09-2012) [MP3|320 кб/с]<Trance>
+Pet Shop Boys - Introspective (1988) [OGG|485 Kbps] <House, Synthpop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446722.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rex Mundi - Bella Monaco (Original Mix) (COLDHARBOUR)
- 02. Space RockerZ & Ellie Lawson - Under The Same Sky (Two & One Remix) (A&R)
- 03. Alex Vives - Take Off (Original Mix) (MONDO)
- 04. Carol Lee - Edge of A Broken Heart (Raneem Vocal Club Mix)
- 05. Rave CHannel - Te Quiero (Sargas Remix) (CD-R)
- 06. Store N Forward - Sugar (Original Mix) (AFTERGLOW)
- 07. Evo & Faveon - Play (Original Mix) (ECHELON)
- 08. Azima - Godsfalling (Essonita Remix) (CD-R)
- 09. Tritonal feat. Cristina Soto - Everafter (Craig Connelly Remix) (AIR UP THERE)
- 10. DJ Feel - Burning Up (Original Mix) (ALTER EGO)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:24
+01. Left To My Own Devices	8:16
+02. I Want A Dog	6:15
+03. Domino Dancing	7:40
+04. I'm Not Scared	7:23(   Читать дальше...   )Жанр: House, SynthpopПродолжительность: 00:48:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:632B4540BB998C88D8D8C1C3BA1FE3C955E27E91
+magnet:?xt=urn:btih:3DE82642626A6F9B4E95AF96AB0F63878D688E11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,24 +595,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 175198   (446721) от 03.10.2014
+###  Публикация: 390722   (447258) от 22.09.2011
 
-Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
+Журнал | What Hi-Fi? Звук и Видео №9 (2011) [PDF]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446721.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Концерт Avril Lavigne в Calgary Alberta (Canada) 2 апреля 2007.01. Girlfriend
-02. I Can Do Better
-03. Sk8er Boi
-04. My Happy Ending(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:06:17
+Журнал «What Hi-Fi? Звук и Видео» является спутником покупателя качественной аудио-, видео-, Hi-Fi-техники и домашнего кинотеатра, охватывает широкий спектр аппаратуры. Издание знакомит читателей с новинками рынка, дает советы по выбору и настройке аудиовидео аппаратуры.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D187A2B02B1AA359AE86B8D1FB3764900621F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409314   (447245) от 16.09.2020
+
+Opera GX 71.0.3770.138 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она ещё может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9153053B4FF72449909AADE6EBD9B72257C94601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409315   (447244) от 16.09.2020
+
+Ксения Любомирова | Фруктовые салаты (2013) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о фруктовых салатах, которые не только полезны, но и невероятно вкусны! В ней вы найдете рецепты таких экзотических яств, как салаты индийской и средиземноморской кухни, блюда с вкусными и необычными заправками, и самыми удивительными составляющими - от креветок до тростникового сахара.
+Вы научитесь готовить блюда из самых экзотических тропических фруктов (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E885CD82596D3886E84E86842ACF593716D0582E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409373   (447243) от 16.09.2020
+
+XYplorer 21.10 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447243.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer - удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1057AE6354CAC50F8037B3BF74D9BB2BF4D83FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409351   (447242) от 16.09.2020
+
+Футбол. Кубок Германии 2020-2021. 1-й раунд. Айнтрахт Б — Герта (2020) HDTV [H.264/1080i-LQ]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок Германии по футболу 2020-2021.
+11 сентября 2020, пятница. 21:45 МСК
+1-й раунд
+Айнтрахт (Брауншвейг) — Герта (Берлин)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:13
 
 ## Скачать торент
 ```bash

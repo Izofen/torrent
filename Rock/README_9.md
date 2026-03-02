@@ -1,3 +1,73 @@
+###  Публикация: 607268   (991148) от 28.01.2013
+
+Bonnie Tyler - All The Best (3CD) (1996) [MP3|320 кб/с]<pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991148.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 101. More Than A Lover
+02. Where Were You
+03. God Gave Love To You
+04. Sending Me Angels
+05. Careless Heart
+06. Whenever You Need Me
+07. Why
+08. Till The End Of Time (Duet With Dan Hartman)
+09. Heaven Is Here
+10. Love Is In Love Again(   Читать дальше...   )Жанр: popПродолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5DAF3A38D0D418AAB8B3ABD223D71F97667711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610742   (989398) от 30.01.2013
+
+Buddy Holly - The Ultimate Best Of Buddy (2011) [MP3|320 кб/с]<Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 What To Do
+02 Early In The Morning
+03 Peggy Sue
+04 Everyday
+05 Maybe Baby
+06 Baby I Don't Care
+07 Learning The Game
+08 I'm Gonna Love You Too
+09 Fool's Paradise
+10 True Love Ways(   Читать дальше...   )Жанр: Rock-n-RollПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC0AEE87D7A1E8B20D12F551C915D1A6449B96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971159   (988617) от 01.01.2016
 
 Фляус и Кляинн - Тестирование потустороннего гидровелосипеда в многомерном пространстве (2015) [MP3|320 кб/с] <Indie Rock, Brit Pop, Psychedelic Rock>
@@ -706,64 +776,6 @@ Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9683594D52B09656BC44632A96B0ABBF0F34BA63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980958   (954596) от 30.01.2016
-
-VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Throne - Bring Me the Horizon
-02. Shinedown - Cut the Cord
-03. Fall Out Boy - Uma Thurman
-04. Royal Blood - Litte Monster(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4E78AFEB8A03F15A2E63F97ECF41228584ECD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981129   (953047) от 31.01.2016
-
-TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engine 04:38
-02. Refugee 04:21
-03. Ship In the Night 04:02
-04. Take It Like a Man - Woman! 03:03(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7701ADBC6C9AA1110988260BD9A119A1944624
 ```
 
 https://mybot314.ru/tekegram_catalog/

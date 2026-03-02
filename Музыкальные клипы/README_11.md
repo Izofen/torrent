@@ -1,25 +1,23 @@
-###  Публикация: 1367571   (915656) от 16.03.2020
+###  Публикация: 1375554   (863763) от 15.04.2020
 
-Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
+Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.264/1080p-LQ] <Post-Hardcore, Metalcore>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001  2015 Pyogenesis - Lifeless
-002  2015 Pyogenesis - Steam Paves Its Way (The Machine)
-003  2017 Pyogenesis - Every Man For Himself... And God Against All
-004  2017 Pyogenesis - I Have Seen My Soul(   Читать дальше...   )Производство: PixelFilm, AFM RecordsЖанр: Gothic Metal, Alternative RockПродолжительность: 00:36:16
+CDA: Concepts (2020) Worry About Me (Ellie Goulding & blackbear Cover) (Single)
+Music Video: Ellie Goulding & blackbear - Worry About Me (2020)Жанр: Post-Hardcore, MetalcoreСубтитры: ENПродолжительность: 00:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF36A663A954373350E47F563AD51FCA6F4EF29D
+magnet:?xt=urn:btih:B64D932DE5F7AA107F3228C912F8AFA9958307BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367648   (915255) от 16.03.2020
+###  Публикация: 1375301   (863761) от 15.04.2020
 
-Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160p-LQ]
+Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 SABATON - Official Music Videos - 2,56 GB - 21 Files (01:30:04)
-
-001 2006 SABATON - Attero Dominatus
-002 2008 SABATON - Cliffs of Gallipoli (Live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:56:39
+001 2015 Kill The Kong - Caged (2160)
+002 2016 Kill The Kong - Bring the Heat (1080)
+003 2017 Kill the Kong - Ashes In the Wind (1080)
+004 2017 Kill The Kong - Juggernaut (Wolfpack) (1080)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:28:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07B6B03339EB3BC4DE0B076C4BD87863144D79E9
+magnet:?xt=urn:btih:6415CC82F6FA5E48B89C86BA0DD006F55A0FD3FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367424   (915092) от 16.03.2020
+###  Публикация: 1375328   (863609) от 15.04.2020
 
-Сборник клипов 01 (03.2020) WEB-DLRip [H.264/720p-LQ]
+Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915092.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник зарубежных и отечественных видеоклипов за март 202001_C-BooL - Higher
-02_W&W x Lucas & Steve - Do It For You
-03_ШЕFF feat. Indigo - Я рисую!
-04_Shlakoblochina feat. Fearmuch - Новая сила киски(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 3:07:18
+001 2019 Bongtower - Altered States (1080)
+002 2019 Bongtower - Bong Rider (1080)
+003 2019 Bongtower - Defender of Humanity  (1080)
+004 2019 Bongtower - What's Wrong With You (1080)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBAC1B2D1828F68EC7A1842127415B98EEF90744
+magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +83,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 634136   (912961) от 24.03.2013
+###  Публикация: 1375595   (863534) от 15.04.2020
 
-Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
+Юлия Чичерина - Дискотека (2020) WEBRip [H.264/720p-LQ] <Альтернативный Рок>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: HouseПродолжительность: 00:02:30
+01 Юлия Чичерина - ДискотекаЖанр: Альтернативный РокПродолжительность: 00:04:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D2A9BC5481573712DDE0DFD31670048A65D0E18
+magnet:?xt=urn:btih:5A747708E623B466F9912465BEC4F90D3D016B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 634324   (912944) от 24.03.2013
+###  Публикация: 1376099   (861692) от 16.04.2020
 
-Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
+Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912944.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:14
+Продолжение лучшего, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop 2 — Intro
+01. Nelly feat. P. Diddy & Murphy Lee — Shake Ya Tailfeather
+02. 2Pac — California Love
+03. Ice Cube feat. Lil’ Jon & Snoop Dogg — Go to Church(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:44:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
+magnet:?xt=urn:btih:23C876F8AF3AEA1456F008C2B74CE4B353C3F6C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 633919   (912782) от 24.03.2013
+###  Публикация: 1375893   (860380) от 17.04.2020
 
-Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
+Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Metalcore>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912782.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, Dubstep, SoulПродолжительность: 00:04:12
+001 2017 Leeched - Boar
+002 2018 Leeched - By the Factories
+003 2018 Leeched - Star & Garter
+004 2018 Leeched - The Stone and the Steel(   Читать дальше...   )Жанр: Sludge Metal, MetalcoreПродолжительность: 00:35:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AC7A926F092DECF6E09E9817127136D78834CF9
+magnet:?xt=urn:btih:907CA4F68A95315E73CEA16B6BC4166BAF4C2BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 634137   (912642) от 24.03.2013
+###  Публикация: 1375870   (860370) от 17.04.2020
 
-Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
+Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912642.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Hip-hopПродолжительность: 00:03:27
+001 2014 Igorrr - My Chicken's Symphony
+002 2015 Igorrr - Chicken Sonata (Full version)
+003 2017 Igorrr - Cheval
+004 2017 Igorrr - ieuD(   Читать дальше...   )Жанр: IDM, BreakcoreПродолжительность: 00:27:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF50E9C7ED836031A446EE2229C27388CE3DBB85
+magnet:?xt=urn:btih:18E0BE76DD2726499EC756CEA71294D73F86BF7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +196,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 634981   (910682) от 25.03.2013
+###  Публикация: 1376040   (860364) от 17.04.2020
 
-Роман Полонский / Годится! Ягодица! (Uncensored) (2013) WEBRip [H.264/1080p-LQ]
+Ауткаст - Один из нас (2020) WEBRip [VP9/2160p-LQ] <Alternative/Nu-Metal>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910682.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клип Романа Полонского - Годится! Ягодица! (+18)Жанр: Музыка, PopПродолжительность: 00:04:08
+Группа, образованная из бывших участников AMATORY: Игорь Капранов, Александр Павлов и Дмитрий Рубановский.
+CDA: Ауткаст (2020) Один из нас (Single)Производство: Hangover ProductionsЖанр: Alternative; Nu-MetalПродолжительность: 00:04:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47E78EDD360F17F70D4ADDEAE08F7D25534A7F96
+magnet:?xt=urn:btih:2B92D79E71486F7F734BE2785910502BEE55B6E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635445   (909706) от 26.03.2013
+###  Публикация: 1498140   (857505) от 26.09.2021
 
-Stooshe - Slip (2013) WEBRip [H.264/1080p]
+Сборник зарубежных видеоклипов (2021) WEBRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909706.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:04:03
+Подборка видеоклипов зарубежных исполнителей.1. ABBA - I Still Have Faith In You
+2. Anitta - Loco
+3. Ava Max - Everytime I Cry
+4. Becky G - Green light go(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
+magnet:?xt=urn:btih:F3D41678E7154DA8528587B52DF4119383AF910B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,25 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635447   (909525) от 26.03.2013
+###  Публикация: 873598   (857390) от 06.03.2015
 
-Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
+ABBA - The Definitive Collection (1974-1982) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909525.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:16
+1 Waterloo
+2 Ring Ring
+3 Mamma Mia
+4 SOS(   Читать дальше...   )Жанр: Pop, DiscoРежиссер: Лассе Халльстрём, Челль СундвалльПродолжительность: 02:16:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
+magnet:?xt=urn:btih:CF8D18401F94B87159FDA3C363B79AD463511553
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +281,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635452   (909505) от 26.03.2013
+###  Публикация: 648033   (855438) от 24.04.2013
 
-Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
+Sara Tunes - VIP (2013) WEBRip [H.264/720p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909505.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:04:00
+Жанр: DanceПродолжительность: 00:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
+magnet:?xt=urn:btih:F95ED03E71A95153E6443E34ECFC838FC4B43C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +307,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 864509   (909481) от 04.02.2015
+###  Публикация: 648027   (855371) от 24.04.2013
 
-Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
+Marty - Suddenly (2013) WEBRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909481.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
+Жанр: DanceПродолжительность: 00:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
+magnet:?xt=urn:btih:BB4D6EFF128E52F0FF4C77744121CBFC5DB41664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635441   (909438) от 26.03.2013
+###  Публикация: 648031   (855285) от 24.04.2013
 
-Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
+Chase The Ace - California (2013) WEBRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909438.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:47
+Жанр: Hard RockПродолжительность: 00:02:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
+magnet:?xt=urn:btih:52DC9964B8D39EBD8E693EF410B8163DC451961B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,25 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635343   (909339) от 26.03.2013
+###  Публикация: 769067   (854167) от 23.03.2014
 
-London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
+Сборник клипов - VA - Various Music part. 51 (2014) WEBRip 720p, 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909339.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: InstrumentalПродолжительность: 00:05:34
+1. Alex Ferrari - Guere Guere 1080p (2:59)
+2. Andrew Rayel - Power Of Elements (Trancefusion 2014 Anthem) 720p (3:26)
+3. ARASH feat Helena - ONE DAY 1080p (3:46)
+4. Armin van Buuren feat. Lauren Evans - Alone 1080p (4:06)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
+magnet:?xt=urn:btih:CFA58A86487825C9C91585F212F43E74989BADA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,29 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 990820   (909286) от 26.02.2016
+###  Публикация: 1111068   (848067) от 05.03.2017
 
-VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
+Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909286.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция клипов для любителей рок и метал.
-Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
-A Sound of Thunder - Murderous Horde.avi
-AC-DC - Are You Ready.avi
-AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
+«Lichtspielhaus» («Кинотеатр») — второй DVD группы Rammstein, выпущенный в декабре 2003 года. DVD содержит все клипы группы, имевшиеся на момент издания релиза. Также релиз включает такой раздел как «Making Of», в котором представлены процессы съёмок некоторых клипов. Секция концертного видео содержит съёмки выступлений с различных концертных площадок, начиная с (   Читать дальше...   )01. Videos
+02. Live
+03. Making Of
+04. TV TrailersПроизводство: Германия | Motor Music GmbH, Universal RecordsЖанр: Industrial Metal, NDHЯзык субтитров: английский, немецкий, французский, испанский, японскийПродолжительность: 03:30:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
+magnet:?xt=urn:btih:BD2B99B0A7577B3A6829F17495609854E17F084B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350780   (908696) от 20.03.2020
+###  Публикация: 1003103   (842926) от 03.04.2016
 
-Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
+Сборник - Bollywood Video Yarmix (2016) BDRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Music Videos at Ozzy Osbourne: (00:11:03)
-2019 Ozzy Osbourne - Under the Graveyard [1080p] 2020 (00:05:47)
-2019 Ozzy Osbourne & Post Malone - Take What You Want (Live Video) [1080p] 2019 (00:02:46)
-2020 Ozzy Osbourne - Straight to Hell [1080p] 2020 (00:03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:43
+Мини-сборник клипов из индийских фильмов01. Intro, Dhoom-2
+02. Saiyaan Superstar - Ek Paheli Leela
+03. Mainu Ishq Da Lagya Rog - Mainu Ishq Da Lagya Rog
+04. Desi Look (Ek Paheli Leela)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан,  Катрина Кэйф и др.Продолжительность: 00:22:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:782A59B121F5F3731DA24FB91E3C4C3EE33CDA09
+magnet:?xt=urn:btih:84D282B40545DA82651BB2C8816AB5CCEF048307
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +446,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635880   (907830) от 27.03.2013
+###  Публикация: 309135   (842116) от 15.03.2011
 
-Alisher - Money (2013) [H.264/1080p] WEB-DLRip
+Supermax - Rhythm Of Live (2010) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907830.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: POP
+Сборник концертных выступлений и видеоклипов группы Supermax.
+Бонус - выступление Курта Хауенштайна  (Kurt Hauenstein) с группой Земляне ("Living In A World" и "Hotline") на фестивале байкеров в г. Москва в 2008 году.Жанр: Pop/Rock, Electronic, Reggae, Funk / Soul, Hip Hop, Folk, World & Country, Disco.Формат: DVD VideoПродолжительность: 01:34:46 + 00:18:16 (bonus)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:145F5471FA6A3BAE2A8371EF5339D757825FC697
+magnet:?xt=urn:btih:1CAAA345F1231F0E174D56BA611B5A6146861ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,25 +473,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635889   (907822) от 27.03.2013
+###  Публикация: 1112869   (840860) от 09.03.2017
 
-Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
+Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907822.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: POP
+Слушайте хорошую музыку! Музыка способна оживить поникшие растения. Если рядом с увядающим цветком поставить колонки и включить легкую музыку, то он на глазах оживет, наполнится красками и может даже склониться к источнику музыки.
+Музыка предотвращает потерю слуха. Эксперимент показал, что музыканты слышат лучше, чем  те люди, которые никогда не увлекались музыкой. (   Читать дальше...   )01. Rag'n'Bone Man - Human (Official Video)  (3:18)
+02. The Weeknd - Starboy (official) ft. Daft Punk  (4:33)
+03. Feder feat. Alex Aiono - Lordly (Official Video)  (3:14)
+04. Ed Sheeran - Shape of You (Official Video)  (4:23)(   Читать дальше...   )Производство: Different countriesЖанр: Музыкальные клипыРежиссер: Europa PlusАктеры: Rag'n'Bone Man, The Weeknd, Feder feat. Alex Aiono, Ed Sheeran, Alok, Bruno Martini feat. Zeeba etcСубтитры: отсутствуютПродолжительность: 02:32:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B9F9FE7FBBF669BB785F4E3E9E1551BFE38D7DC
+magnet:?xt=urn:btih:EFECF279058125DFF9085CB6619ADC0A6871869A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,25 +503,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635882   (907713) от 27.03.2013
+###  Публикация: 1379380   (840685) от 28.04.2020
 
-Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRip
+Вика Старикова - Три желания (2019) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: POP
+Видеоклип Виктории Стариковой — «Три желания».
+Русская версия небезызвестной детской песенки — «Лягушка и три желания»
+Автор – Фрэнсис Лемарк (Francis Lemarque).
+Русский текст - Самюил Болотин.Производство: Serghey Grey ProductionЖанр: ПопРежиссер: Serghey GreyАктеры: Виктория СтариковаПродолжительность: 00:04:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
+magnet:?xt=urn:btih:D1BFC578AB563C01F17C5B505BD37D83A63D06E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,155 +532,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635887   (907649) от 27.03.2013
+###  Публикация: 193789   (839910) от 19.04.2010
 
-Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990276   (907446) от 27.02.2016
-
-VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
+Дискотека Авария - Лето всегда! (OST ''Любовь в большом городе 2'')  (2010) TVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907446.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение коллекции клипов в авто.Часть 4.
-Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
-Kelis - Acapella.avi
-Kelly Clarkson - Heartbeat Song.avi
-Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635733   (907129) от 27.03.2013
-
-Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dubstep ViolinПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0561C7FACDFF0519EBE8495BA038857A6F98545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759482   (906593) от 22.02.2014
-
-Katy Perry feat Juicy J - Dark Horse (2014) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Dark Horse сочетает в себе такие элементы хип-хопа, грайма, трапа, хайфи и поп-музыки. В песне рассматриваются темы эротического и сексуального содержания, что отличает ее от предыдущих работ Перри. В том числе это выразилось в минимализме продукции и вокале Перри, который стал более "соблазнительным" и "зрелым". Juicy J выступил также в роли приглашенного исполнителя. Согласно певице, песня должна была получить "волшебную, темную" окраску в стиле "черной магии". Перед выпуском песни Перри и компания Pepsi устроили голосование среди поклонников на выбор первого промо-сингла с альбома Prism. Таким образом, Dark Horse получила большее количество голосов и была выпущена первой.Жанр: PopПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C583E74E19D7CBE2089565576310EFC05BAF3FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759678   (906571) от 22.02.2014
-
-Натали - О Боже, какой мужчина! (2013) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип на песню «О Боже, какой мужчина!» Видеоклип к середине апреля 2013 года был просмотрен более 2,5 миллионов раз, а к концу 2013 года число просмотров превысило 12 миллионов. Клип был представлен широкой публике на телевидении 3 апреля в передаче Первого канала «Пусть говорят».Жанр: PopРежиссер: Мария СкобелеваПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C17D7F8081B860D3744FD9EAA0F207030D97E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180201   (906381) от 09.03.2010
-
-Джон Леннон Видео / John Lennon - Video (1968-1980) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: John LennonАктеры: John LennonПеревод: ОригинальныйПродолжительность: 04:22:03
+Жанр: ВидеоклипПродолжительность: 00:04:32
 
 ## Скачать торент
 ```bash
@@ -668,25 +558,159 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 635849   (906004) от 28.03.2013
+###  Публикация: 1499778   (839819) от 07.10.2021
 
-The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
+The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: POPПродолжительность: 00:03:23
+The Pretty Reckless выпустили видеоклип на песню «Only Love Can Save Me Now», совместную с гитаристом Soundgarden Ким Тайилом и барабанщиком Мэттом Кэмероном.Жанр: RockПродолжительность: 0:05:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA9DAE6ECD687346EC8EFE11CBECA30B3BA8BF3B
+magnet:?xt=urn:btih:8EB4DB4E1DC701E97AB6EB5CFA889897446841AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500058   (839585) от 07.10.2021
+
+AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839585.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC устроили экскурсию по своей истории в клипе «Through The Mists Of Time». Видео снято по той же технологии, что и клип «Realize», еще один сингл с прошлогоднего альбома «Power Up». Каждый из участников группы был отснят по отдельности в разных частях мира, а затем с помощью монтажа и специальных эффектов режиссер Наджиб Тарази поместил музыкантов вместе на одну (   Читать дальше...   )Жанр: RockПродолжительность: 0:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B2D897364F0CBE1CE71F690882F5EBFC947F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500973   (839236) от 07.10.2021
+
+Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - Nemo (2008)Жанр: Symphonic MetalПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830A0A7B7A5A80C8D2B969180232650FCD5B8CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379560   (838986) от 29.04.2020
+
+Вика Старикова - Сборник кавер-версий (2017-2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория Старикова — юная певица, которая обрела первую популярность на шоу «Минута славы». Несмотря на жёсткую критику со стороны жюри, Вика сумела завоевать своих первых поклонников не только в среди детской, но и среди более взрослой аудитории.
+В родном Нижнем Тагиле, Вика была удостоена престижной премией на церемонии «Человек года» в номинации «Дети, прославившие (   Читать дальше...   )01. А зори здесь тихие
+02. Ангел и я 2
+03. Ангел и я
+04. Богемская рапсодия(   Читать дальше...   )Жанр: CoversАктеры: Виктория СтариковаПродолжительность: 00:02:17-00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DA8558A4E8D1460284F8DB31673FBC68624E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501173   (837993) от 08.10.2021
+
+Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - Sleeping Sun (2005 Version)Жанр: Symphonic MetalПродолжительность: 00:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E02563E607AEC4026088E841D23D44DF0C4BF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501186   (837870) от 08.10.2021
+
+Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - The Islander (2008)Жанр: Symphonic MetalПродолжительность: 00:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54802080155FBA17881C74A78ED68E54AF2B047
 ```
 
 https://mybot314.ru/tekegram_catalog/

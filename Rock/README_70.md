@@ -1,3 +1,61 @@
+###  Публикация: 1423825   (298160) от 14.11.2020
+
+Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouroboros (Prelude) (21:56)
+ 02. The Eternal Fire (Ritual) (05:35)
+ 03. Hurrian Hymn To Nikkal (H.6) (04:56)
+ 04. Mother (Takeda Lullaby) (06:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68D24504EE97133DD7D4DDCF86F3094108540DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423611   (298083) от 14.11.2020
+
+The Wet Fish - Ready To Blow (2020) [MP3|320 Kbps] <Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Family Tree (02:30)
+02. Too Bad For Rock And Roll (03:14)
+03. Mean Streak (03:42)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED13D87A078B17A1FCF38BFA07B7F47CA9508F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961852   (296988) от 03.12.2015
 
 Pink Floyd - 1965: Their First Recordings (2015) [MP3|320 кб/с]<Rock, Psychedelic Rock>
@@ -694,64 +752,6 @@ Jesus Culture - христианская рок группа из города R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B098E2CABFD5815F59EB297F2A8E70D4E4A10C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081225   (284796) от 09.12.2016
-
-Edge - Edge (1970) Reissue, 2009, Tone Arm [MP3|320 Kbps] <Psychedelic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Callin' Out
-2. Sing Your Song
-3. A New Breed Of Man
-4. Lady Of Darkness(   Читать дальше...   )Жанр: Psychedelic Rock, Hard RockПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6B2ECF53AAC55362BF201E28EFD4AE1A022967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081170   (284629) от 09.12.2016
-
-Joe Satriani - Supernova Remix - The Free EP (2016) [MP3|320 Kbps] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye Supernova Remix
-02. Stars Race Across The Sky Remix
-03. In My Pocket Remix
-04. Cataclysmic Remix(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F88DD02BA091405040F84C134388B5FE94A3ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

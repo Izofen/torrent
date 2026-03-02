@@ -1,25 +1,207 @@
-###  Публикация: 1275050   (791161) от 10.01.2019
+###  Публикация: 1274709   (791477) от 09.01.2019
 
-Mirah - Understanding (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Indie Rock>
+Книжная серия | Кремлевская школа переговоров [3 книги] (2016-2018) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая серия книг по ораторскому мастерству и переговорам от ведущих российских экспертов. Кремлевская школа переговоров», зародившаяся в 20-е годы прошлого века, стала одной из самых жестких переговорных школ в истории. Её принципами руководствовались советские дипломаты, которые прибегали к самым агрессивным переговорным тактикам. Освоить все постулаты «Кремлевской (   Читать дальше...   )Жанр: Самосовершенствование, психологияФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93F97F921B528ECFA51D9C4B230EC9AC35248D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273780   (791476) от 09.01.2019
+
+Разлом / Землетрясение / The Quake / Skjelvet (2018) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791476.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1904 году норвежская столица пострадала от землетрясения силой 5,4 балла по шкале Рихтера. Стихия привела к разрушениям в городе, но ни один человек не пострадал. В настоящее время геологические исследования показывают, что в Осло почти еженедельно происходят слабые подземные толчки, которые могут служить предвестниками ещё более сильного землетрясения.Производство: Норвегия / FantefilmЖанр: Боевик, Триллер, ДрамаРежиссер: Йон Андреас АндерсенАктеры: Кристоффер Йонер, Эни Даль Торп, Хан Тран, Йонас Хофф Офтебро, Эдит Хогенруд-Сэнд, Катрин Торборг Йохансен, Равдип Син Бавджа, Тина Шей, Стиг Р. АмдамПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440323038380A2A382360FFDA487344AAE581C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622372   (791475) от 09.01.2019
+
+Белый мавр, или Интимные истории о моих соседях (2012) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это ироничная, местами откровенно смешная и в тоже время грустная история о буднях так называемого «верхнего среднего класса» — воспетой в Америке Вуди Алленом, но пока еще весьма малочисленной в нашей стране прослойке состоятельных граждан. Помимо завидного достатка, всех этих погрязших в экзистенциальных сомнениях и банальных адюльтерах бизнесменов, кинозвезд, (   Читать дальше...   )Производство: РоссияЖанр: драма, комедияРежиссер: Дмитрий ФиксАктеры: Александр Галибин, Андрей Соколов, Екатерина Стриженова, Жанна Эппле, Игорь Верник, Сергей Астахов, Олеся Железняк, Анна ЯкунинаПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475C1582ED733C754DA479B29722370F916C1859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273956   (791474) от 09.01.2019
+
+03.04 (2019) [Ru/En] (1.4) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра предлагает вам пройти путь к искуплению, попасть в лучшее место, избавившись от диссонанса в своей душе. Главный герой после оглушающе-громкого взрыва просыпается в незнакомом ему месте без единого намека на присутствие по-близости людей. У игрока имеется телефон, на который приходит сообщение от неизвестного абонента. Вам ничего не остается, кроме как последовать (   Читать дальше...   )Тип издания: LicenseРазработчик: JPEG OF PAIN GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440F5A8CF3806071479E40FB19E443A19A3D8FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274859   (791473) от 09.01.2019
+
+T-FLEX CAD 16.0.32.0 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791473.jpg" />
+</div>
+
+
+###  Подробнее
+
+T-FLEX CAD - профессиональная конструкторская программа, объединяющая в себе мощные параметрические возможности 2D и 3D-моделирования со средствами создания и оформления чертежей и конструкторской документации. Технические новшества и хорошая производительность в сочетании с удобным и понятным интерфейсом делают T-FLEX CAD универсальным и эффективным средством 2D (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12ACA7D8088B73031049B20E29A066FEBB6F291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259184   (791472) от 09.01.2019
+
+Rise: Race The Future (2018) [Multi] (1.2) License PLAZA
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rise: Race The Future — это мультиплатформенный аркадный рейсинг, события которого разворачиваются в недалеком будущем, где возникли сверхновые технологии, позволяющие автомобилям перемещаться по любой поверхности, в частности, по воде.Тип издания: LicenseРазработчик: VD-devЖанр: Racing (Cars), Arcade, 3DЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A569CB31A1796969A62404A319BC1E47F207A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140891   (791471) от 09.01.2019
+
+Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791471.jpg" />
+</div>
+
+
+###  Подробнее
+
+События Dragon’s Dogma развиваются в огромном открытом для исследования фэнтезийном мире. Главный персонаж в группе трех героев отправляется в долгое путешествие, чтобы найти и убить таинственного дракона.Тип издания: LicenseРазработчик: CapcomЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF39C1497FEB7E9148A10ED3691ABEEA5EBC390E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510273   (791470) от 16.11.2021
+
+Architects (UK) - For Those That Wish To Exist (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternative Rock, Metalcore, Post Hardcore, Arena Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791161.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Counting (02:51)
-02. Information (03:50)
-03. Lake/Ocean (02:45)
-04. Lighthouse (05:10)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, Indie RockПродолжительность: 00:38:42
+01. Do You Dream Of Armageddon! [00:01:38]
+02. Black Lungs [00:03:51]
+03. Giving Blood [00:03:32]
+04. Discourse Is Dead [00:03:46](   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Post Hardcore, Arena RockПродолжительность: 00:58:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DC3AFC3EAE81FA250AC869DF44F63918883659F
+magnet:?xt=urn:btih:C5F2514D78A2CA538CC396EB4099CADEF41179E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +209,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275293   (791160) от 10.01.2019
+###  Публикация: 1510375   (791469) от 16.11.2021
 
-AFI - All Hallow's E.P. (1999) EP [FLAC|Lossless|tracks + .cue] <Punk>
+И снова жить (Второе рождение) / Hwajang / Revivre (2014) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791469.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Сан Мо — вице‑президент крупной косметической компании и верный и любящий муж. Он пользуется огромным авторитетом среди своих подчинённых. Когда он узнаёт, что его жена больна раком, О Сан Мо не бросает свою жену, а ухаживает и заботится о ней. Каждый день после работы он идёт в больницу. Даже через четыре года такой утомительной жизни он всё еще не сдаётся (   Читать дальше...   )Производство: Южная Корея, Myung FilmsЖанр: драмаРежиссер: Лим Гвон-тхэкАктеры: Ан Сон-ги, Ким Гю-ри, Ким Хо-джон, Пак Чон-щик, Чон Хе-джин, Ким Бён-чхун, Ким Ги-чхон, Мин Гён-джин, Хан И-джин, Ан Сок-хванПеревод: любительский двухголосый (АрхиAsia)Субтитры: русские (АрхиAsia), английскиеПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A386CA62492EBDFDBA80AE052C360C932CAACC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510379   (791468) от 16.11.2021
+
+VA - Trance Pioneers (2021) [FLAC|Lossless|WEB|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Askew - Bad Apple (Original Mix) (7:32)
+02. John Askew - Z List Uber Star (Reaky Remix) (6:21)
+03. John Askew & John O'Callaghan - Game Over (John O'Callaghan Remix) (9:05)
+04. Manuel Le Saux - Reflex (Activa Intro Rework) (6:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AF016A1243BE2110210FD7E521432DFB322E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510409   (791467) от 16.11.2021
+
+Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Factor B & Highlandr - Fading Into You (5:45)
+02. Factor B, Highlandr & Susie Ledge - Don't Hide (6:21)
+03. Factor B & Highlandr - Feel Surreal (6:45)
+04. Factor B & Arielle Maren - Connected (Highlandr's Sunday Morning Mix) (6:18)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31621F0C2ECFEB10A4140D55106F102574AF76EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510323   (791466) от 16.11.2021
+
+Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791160.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fall Children (3:13)
- 02. Halloween (3:58)
- 03. The Boy Who Destroyed the World (3:05)
- 04. Totalimmortal (2:45)Жанр: PunkПродолжительность: 00:13:01
+1. One More Time
+2. Gabriella
+3. All My Days
+4. Some Kind Of Wonderful(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9EEC9F1371DA324CE4294563BC265F9899A4662
+magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +322,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275264   (791159) от 10.01.2019
+###  Публикация: 1510488   (791465) от 16.11.2021
 
-Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Contemporary Jazz>
+VA - Deep In Chill: Instrumental House (Irma Dancefloor Chill House Selection) (2021) [AAC|~321 Kbps] <Deep House, Chill House>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791159.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Circus
-02. Wurli
-03. Five
-04. Easygo(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 01:02:23
+01. Penford, Pearson - Let The Sun Shine Thru (5:36)
+02. The Love Mods - Mystify (DJ Umbi Instrumental Vision) (4:14)
+03. Belladonna - Melodies (Belladonna Parfumed Remix) (7:00)
+04. G.Pantelidis - Mindscapes (6:24)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:59:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C1A5C9BB8C8B3B07F4D700D1A9E1C46BA222580
+magnet:?xt=urn:btih:9A308B0E580D713AB23C66C9B61DEB6828CF77B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,57 +351,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275055   (791158) от 10.01.2019
+###  Публикация: 1510413   (791464) от 16.11.2021
 
-Augie March - Bootikins (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake Jive (04:39)
-02. Mephistopheles Perverted (03:51)
-03. The Third Drink (04:04)
-04. The Long Wait And See (02:51)(   Читать дальше...   )Жанр: Indie Rock, Folk Rock, Indie PopПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE783A480B85C8F9D415D0D9777E9D43A5CE58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275200   (791157) от 10.01.2019
-
-VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dance>
+VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshire) (2021) [FLAC|Lossless|WEB|tracks|image] <Tech Trance>
 
 >>Electronic
->>House
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791157.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Adam Walker - Ocean (Original Mix) 5:09
-02. WDX - Late Night Kiss (Original Mix) 4:17
-03. Ian Deluxe - Feels Like This (Original Mix) 4:40
-04. Steven Turner & Murrell - So Close (Original Mix) 4:53(   Читать дальше...   )Жанр: Electronic, Future House, DanceПродолжительность: 02:17:54
+01. Greg Downey - Grade A (Mandy Reid Remix) (7:26)
+02. Danny Oliveira - Drop It Your Love (John O'Callaghan Remix) (7:21)
+03. Cristian Ketelaars - Tank (Original Mix) (6:59)
+04. Craig Forsyth - Salamanca's Bell (Original Mix) (6:14)(   Читать дальше...   )Жанр: Tech TranceПродолжительность: 03:19:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
+magnet:?xt=urn:btih:4CD4D2E66488813ADBD343C7A84E788555F47F65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275275   (791156) от 10.01.2019
+###  Публикация: 1510400   (791463) от 16.11.2021
 
-Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+VA - Study With Relaxing Jazz (2021) [AAC|~334 Kbps] <Jazz>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Original Mix) (3:30)
- 02. Permanent Hadway (Original Mix) (6:38)
- 03. Carnivalmind (Original Mix) (6:18)
- 04. Timescope (Original Mix) (6:50)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:53:52
+01. Lo Greco Bros Quartet - In A Sentimental Mood (5:50)
+02. Papik, Peter De Girolamo - Sunny (3:48)
+03. Paolo Sessa, Polose - The Moon (3:53)
+04. Gazzara - Berimbau (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:652D9C6F7C9D64AA3AC9A9CE1E38F3F7FA25E667
+magnet:?xt=urn:btih:B28ED8A57CBA560C919C95E98103C1B5B8829424
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275182   (791155) от 10.01.2019
+###  Публикация: 1510391   (791462) от 16.11.2021
 
-Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+VA - Mediterraneo 4 by Billy Esteban (2021) [AAC|~331 Kbps] <Chill Out, Downtempo, Organic House>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791155.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues In Hoss' Flat [3:13]
-02. H.R.H. (Her Royal Highness) [2:40]
-03. Segue In C [6:15]
-04. Kansas City Shout [3:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:48:04
+01. Cafe De Anatolia, Bob Zopp - Barceloneta Beach (4:23)
+02. ThroDef, Michalis Koumbios, Thomas Konstantinou - Kos (4:34)
+03. Cafe De Anatolia, Billy Esteban, Alex Mihalakis - Halkidiki (6:38)
+04. Cafe De Anatolia, Bob Zopp - Gothic Quarter Street Music (5:50)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:41:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DE09571DD78BFE286EAF8DF2FCDDCECE6E8ADC5
+magnet:?xt=urn:btih:398311366EBA45320AC57B02028C84F4CCF96CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +438,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275207   (791154) от 10.01.2019
+###  Публикация: 1510312   (791461) от 16.11.2021
 
-VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
+Смешанные единоборства. UFC Fight Night 197: Макс Холлоуэй - Яир Родригез / UFC Fight Night 197: Holloway vs. Rodriguez. Prelims & Main Card (13.11.2021) IPTVRip [H.264/1080p-LQ]
 
->>Electronic
->>House
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
-02. Mert Avci - Forget Me Not (Original Mix)
-03. Superkluster - Timelapse (Original Mix)
-04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+13 ноября в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC Fight Night 197. Главным событием которого стал бой в полулегком весе между Максом Холлоуэй и Яиром Родригезом. Макс Холлоуэй в декабре 2019 года уступил австралийцу Александру Волкановски единогласным решением судей и потерял пояс чемпиона UFC в полулегком весе. Промоушен решил, (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
+magnet:?xt=urn:btih:3596EABA7B63CD4101647A68041E12A054B38A59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +464,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275312   (791153) от 10.01.2019
+###  Публикация: 1510393   (791460) от 16.11.2021
 
-VA - Best Of LW Trance III (2019) [MP3|320 Kbps] <Trance>
+VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>Trance
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791153.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Judge Jules x Ronnie Canada & Tristan D - The Verdict (Ronnie's Vocal Mix)
-02. Estiva & Johan Vilborg - Mondays (Original Mix)
-03. Lange & Tom Tyler - On Your Side (Willem de Roo Remix)
-04. Sean Truby & Solis feat. Irina Makosh - Forever (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:24
+01. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
+02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
+03. Brass, Alessio Ventura, Dario Benedetti - Ordinary World (Cover) (6:12)
+04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E988968CA114F3EA32E9B9C32D8A04B442F9DD2B
+magnet:?xt=urn:btih:513BE017AB8601E6F115A62B1AEBD8336465F49D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,83 +493,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275259   (791152) от 10.01.2019
+###  Публикация: 1510295   (791459) от 16.11.2021
 
-Baptiste Herbin - Dreams and Connections (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Bop, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Julian (5:02)
-02. Dreams and Connections (7:24)
-03. Mia Sorella (7:41)
-04. For JC (5:04)(   Читать дальше...   )Жанр: Jazz, Bop, Bossa NovaПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D70A425ABD911F91BC07C57FA6BBB9D462CEBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275302   (791151) от 10.01.2019
-
-I Am Robot And Proud - Lucky Static (2018) [FLAC|Lossless|tracks + .cue] <IDM, Leftfield, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Small House (01:14)
-02. Ginkgo (03:40)
-03. My Algo (04:01)
-04. A Dot In Air (03:18)(   Читать дальше...   )Жанр: IDM, Leftfield, AmbientПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9219EAFBAB68A8C4CC6A16E2C82400FEB0DA5BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387628   (791149) от 02.06.2020
-
-Бог грома / Mortal (2020) WEB-DL [1080p] ATV3
+Оружейный барон / Lord of War (2005) BDRip [720p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791149.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повелевать стихией, обращать в пепел прикосновением и заставлять всё живое трепетать от страха — удел языческих богов. Но что произойдет, когда планета столкнется с одним из них во плоти? Ведь этот древний Бог всего лишь человек.Производство: Норвегия, США, Великобритания / 42, Automatik Entertainment, Eldorado FilmЖанр: Фэнтези, боевик, приключенияРежиссер: Андре ОвредалАктеры: Нат Вулф, Приянка Бозе, Ибен М. Акерлие, Артур Хакалахти, Оддрун Валестранд, Равдип Сингх Баджва, Аня Нова, Суннива Линд Ховерстад, Пер Фриш, Нико РусаковПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:43:58
+Родители братьев Орловых, старшего Юрия и младшего Виталия, покинули Украину и обосновались в Америке, на Брайтон-Бич, где открыли маленький ресторанчик. Дети же не рвались идти по родительским стопам. Юрий, раздумывая, чем заниматься, пришел к выводу: самое выгодное — торговать оружием. Потому что в мире, переполненном агрессией, оружие никогда не бывает лишним. (   Читать дальше...   )Производство: Франция, Германия, США / Entertainment Manufacturing Company, VIP 3 Medienfonds, Ascendant Pictures, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, драма, криминалРежиссер: Эндрю НикколАктеры: Николас Кейдж, Бриджет Мойнэан, Джаред Лето, Шейк Тухманян, Жан-Пьерр Ншанян, Джаред Бурк, Эрик Уйс, Дэвид Шамбрис, Стюарт Морган, Джаспер ЛенцПеревод: Дублированный, двухголосый профессиональный, авторский одноголосыйСубтитры: русские, английскиеПродолжительность: 02:01:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:478AD5AEE61F9F460B681A105B6DC65E9A11A4F0
+magnet:?xt=urn:btih:9172CFF0043C3D9292CDA14FD7682D3BBA0C39B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,27 +519,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387488   (791145) от 02.06.2020
+###  Публикация: 1510369   (791458) от 16.11.2021
 
-Проекты - Motion Array - The Old Suitcase Memories - 610605 / VideoHive - The Old Suitcase Memories - 26902563 [AEP]
+Роман Шиян | Рота вирусов и батальон бактерий. Книга о детских инфекциях (2021) [PDF]
 
->>Проекты
->>Слайдшоу (проекты)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791145.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"The Old Suitcase Memories" - эмоционально заряженный и элегантно анимированный шаблон After Effects, который использует живые экшн-кадры в формате 4K.
-Он содержит 94 заполнителей для ваших фотографий и 5 заполнителей для вашего текста.
-Незаменимый проект, что бы показать фотографии из своих прошлых путешествий, отпуска, Дня рождения, свадьбы, романтических (   Читать дальше...   )Формат: AEP
+«Ребенок заболел! Что делать?!» — с этим вопросом сталкивается каждый родитель, порой, по несколько раз в год. Причиной для беспокойства может стать температура, кашель, насморк, красное горло или боль в животе. Когда дело касается ребенка, важно действовать быстро и правильно. И, самое главное, спокойно, без тревог.
+
+Роман Шиян — врач-педиатр с более чем десятилетним (   Читать дальше...   )Жанр: Педиатрия, Популярно о медицинеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7435E515E44B0555AFC268DBC35EFDC72C97B67F
+magnet:?xt=urn:btih:A820FD4189610C58C74F3639BCE4506DDD678B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,25 +547,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387546   (791144) от 02.06.2020
+###  Публикация: 1510354   (791457) от 16.11.2021
 
-NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) [PR]
+VA - Music News vol.148 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 
->>Зарубежные TV-бренды
->>National Geographic
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791144.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Время и пространства Вселенной невозможно измерить, а количество миров, которые предстоит изучить поистине велико. И тем не менее новый сезон сериала Космос предпринимает завораживающее путешествие к новым мирам – потерянным, и тем, что ещё предстоит открыть. Вы познакомитесь с исследователями, чьей смелости позавидует любой герой. Мы унесём вас далеко в будущее, (   Читать дальше...   )Производство: США, Cosmos Studios, Fuzzy Door Productions, National Geographic ChannelЖанр: Документальный, Научно-популярный, КосмосРежиссер: Энн Драйэн, Брэннон БрагаПеревод: Одноголосый профессиональныйСубтитры: Английские (форсированные)Продолжительность: 13 x ~ 00:43:55
+01. Jelly Nide - Зависимость (03:31)
+ 02. Alyona Poli - Стекло (02:37)
+ 03. Andrea Crocicchia - In The Silence (02:10)
+ 04. Anitta - Envolver (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:08:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3592EAEF3B558B064B27AF0F57B35E76C96C0010
+magnet:?xt=urn:btih:AAAE8B7898261649EB17DF25477B9AE8095BBA1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,25 +576,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387658   (791141) от 02.06.2020
+###  Публикация: 1510245   (791456) от 16.11.2021
 
-Mailbird Pro 2.8.12.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+Rod Stewart - The Tears Of Hercules (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (3:58)
+02. Gabriella (3:33)
+03. All My Days (3:37)
+04. Some Kind Of Wonderful (3:03)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C94B84AD6E74B026D66C380F5E76D38D9BBFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510450   (791455) от 16.11.2021
+
+Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Objection (Tango) (3:44)
+02. Underneath Your Clothes (3:45)
+03. Whenever, Wherever (3:16)
+04. Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510454   (791454) от 16.11.2021
+
+Fancy - Locomotion (2021) [AAC|~336 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Voice In The Dark (4:00)
+02. Die For You (3:14)
+03. Fools Cry (3:16)
+04. Pretty Woman (2:53)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC25FDBCF28E80B5BC660C80E301682926F5F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510412   (791453) от 16.11.2021
+
+DesktopOK 9.33 Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791141.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mailbird — очень интересный почтовый клиент. Простой, удобный и с набором всех необходимых функций. Был создан после закрытия проекта Sparrow и от части копирует его простой интерфейс. Цель проекта: создание и дальнейшее развитие быстрого почтового клиента с доступным интерфейсом. В функциональном плане, это простой, но полнофункциональный почтовый клиент: поддержка (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+DesktopOK - небольшая бесплатная и портативная (не требующая установки) программа, предназначенная для сохранения и восстановления местоположения иконок на рабочем столе. Утилита запоминает настройки для различных пользователей, позволяет сохранять позицию иконок для разных разрешений экрана, автоматически скрывает и отображает иконки, а также умеет сворачивать все (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D43A67949C2B47DCC40E279F1EA415B4312DDB7
+magnet:?xt=urn:btih:48D259D86E6D4B46FF343CB615AF26459017B1BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,287 +689,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387607   (791140) от 02.06.2020
+###  Публикация: 1510468   (791452) от 16.11.2021
 
-Квин и Слим / Queen & Slim (2019) BDRemux [H.264/1080p]
+Николай Лейкин | В собачьем мире (2021) [MP3, Станислав Федосов]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791140.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не самое удачное свидание из-за встречи с патрульным превращается в историю о погоне и любви, где два человека вынуждены бежать не куда, а откуда. И пока одни думают о выживании, для других эта парочка превращается в символ травмы и боли.Производство: Канада, США / BRON Studios, 3Blackdot, Creative Wealth Media FinanceЖанр: Драма, мелодрама, криминалРежиссер: Мелина МатсукасАктеры: Дэниэл Калуя, Джоди Тёрнер-Смит, Боким Вудбайн, Клоэ Севиньи, Фли, Стерджил Симпсон, Индия Мур, Бенито Мартинес, Джахи Диалло Уинстон, Грэйлен Брайант БэнксПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:12:23
+Две повести, объединённые общими героями, и герои эти – не люди. Автор «Наших за границей» пишет на этот раз о собаках. Вот только вопросы, которые их волнуют, и отношения их друг к другу совсем уж человеческие...Жанр: Русская классика, Юмористическая прозаПродолжительность: 10:21:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54DF219109A1FCDE9FC427FC9E7094A0E3533F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386616   (791139) от 02.06.2020
-
-Александр Михайловский, Александр Харников | Цикл «Однажды в октябре» [6 книг] (2015-2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791139.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2012 году к берегам Сирии, охваченной пламенем войны, вышла российская эскадра под командованием контр-адмирала Ларионова. Но вместо Средиземного моря она оказалась в море Балтийском, а из 2012 года попала в год 1917-й. В октябрь, десять дней которого, как потом писал Джон Рид, «потрясли весь мир».
-С кем быть, чью сторону принять? Как сделать так, чтобы пролетарская (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818CE31630484C2249FA62F9A250CDAD59A17E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387661   (791136) от 02.06.2020
-
-Adobe Acrobat Pro DC 2020.009.20067 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A3B36B713B0DFB02588FE13531C557CF0D9640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387611   (791135) от 02.06.2020
-
-Проекты - VideoHive - Broadcast Flag Lights - 25288301 [AEP, MOGRT]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791135.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Broadcast Flag Lights» - стильный элегантный пакет для создания телевизионного подкаста на фоне развивающего флага.
-Многие оценят его по достоинству.Формат: AEP, MOGRT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0BB0BBB22C76AF85A72AFDB4F5295621909E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387331   (791134) от 02.06.2020
-
-Приди ко мне / The Other Lamb (2019) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка Сэла с самого рождения живет в лесу, не имея понятия о внешнем мире. Её мир состоит из женщин и единственного мужчины, которого все называют Пастырем, а он свою паству делит на дочерей, провинившихся и жён. Через некоторое время Сэла тоже должна стать женой, и девушка с волнением ожидает этого события, когда их община сталкивается с непредвиденными трудностями.Производство: Ирландия, Бельгия, США, Rooks Nest Entertainment, Rumble Films (II), Subotica Entertainment Ltd., Zentropa BelgiumЖанр: Драма, триллер,Режиссер: Малгожата ШумовскаАктеры: Микил Хаусмен, Рэффи Кэссиди, Денис Гоф, Ив Коннолли, Келли Кэмпбелл, Изабель Коннолли, Эльве Коули, Ирен Келлехер, Шарлотта Мур, Джейн ХербертПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECE61C77D71F99F48DA57182F9DC2C99BF26491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387375   (791133) от 02.06.2020
-
-Опасная роль Джин Сиберг / Seberg (2019) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец 60-х. Красавица Джин Сиберг, любимица французской новой волны, возвращается в Лос-Анджелес. От предложений новых ролей нет отбоя, она — новая икона Голливуда. Но внезапный головокружительный роман с лидером партии Черные пантеры делают Джин мишенью спецслужб. Круглосуточная слежка ФБР и провокации грозят разрушить не только ее карьеру, но и жизнь.Производство: Великобритания, США / Phreaker Films, Bradley Pilz Productions, Automatik EntertainmentЖанр: Триллер, драма, биографияРежиссер: Бенедикт ЭндрюсАктеры: Кристен Стюарт, Джек О`Коннелл, Маргарет Куэлли, Зази Битц, Винс Вон, Энтони Маки, Стивен Рут, Иван Атталь, Колм Мини, Сер`Дариус Блэйн, Гэбриел Скай, Виктория БарабашПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881B514285BA0E35E770585B038E19A915A3402B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275076   (791130) от 10.01.2019
-
-Журнал | AD / Architectural Digest [Germany] №2 (февраль 2019) [PDF] [De]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3FB974C95C4C3ED8F0E3B8606A17DDE9299081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275094   (791129) от 10.01.2019
-
-Газета | Дача и жизнь №1 (56) (январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание является отличным помощником для тех у кого есть дача! Ведь так хорошо вырваться из загазованного и душного города на ухоженный дачный участок, чтобы можно было попариться в баньке, пожарить шашлык и подать к нему выращенные своими руками овощи. А после этого заварить чай на ягодах и целебных травах, собранных своими руками. Проще говоря все это — дача (   Читать дальше...   )Жанр: Дача, огород, садФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5560093D6152E5A33975DD09E5CC33BB5F08B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275158   (791128) от 10.01.2019
-
-Wise Program Uninstaller 2.3.1.132 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A3FCC820052F9AB0BFE681937388C8C7B3EF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275071   (791127) от 10.01.2019
-
-Журнал | Дарья. Любимые заготовки №12 (декабрь 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал целиком посвящен домашним заготовкам. В каждом номере более 100 рецептов в каждом номере. В каждом выпуске журналы собраны кулинарные рецепты, присланные постоянными читателями. Варенья, маринады, соленья, копчёности, компоты - каждый рецепт прошел конкурсный отбор. Рецепты, которые присылают читатели, многократно проверены опытными хозяйками и которые можно (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B0E978E698E3D5731E379D9A979FE71BDD78BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274803   (791126) от 10.01.2019
-
-Жан-Поль Фр. Рихтер | Зибенкэз (1937) [DJVU]
-
->>Художественная литература
->>Классическая поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман Жан-Поля является синтезом важнейших тенденций в развитии романа XVIII века. Жан-Поль органически соединяет тенденцию к воплощению общественных конфликтов и закономерностей в отдельных, узких «клеточках» буржуазного общества (преимущественно в отдельном изолированном человеке, в семье) с тенденцией к конкретному показу многообразия самого этого общества. Жан-Поль (   Читать дальше...   )Жанр: История, политология, публицистика, прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDECA8AA01286A701B7CAD5C411DA136DD669520
+magnet:?xt=urn:btih:A401C3923A4B19A59D381F03427114B6FACB8D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

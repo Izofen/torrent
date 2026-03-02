@@ -1,3 +1,206 @@
+###  Публикация: 1104178   (880153) от 15.02.2017
+
+VA - Дискотека зимних дорог. Индустрия поп музыки. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катерина Красильникова - Пусть Станет Раем 3:34
+002. Анна Уайборн - Мечта 3:38
+003. Николаос Feat. Кристина - Каждую Ночь 3:58
+004. Женя Вилль - Что Ты Наделал 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B818D9479C13B1DF46D05506E0F179CAE83EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373285   (880106) от 06.04.2020
+
+David Gilmour - 100% David Gilmour (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5 A.M. (Live At Pompeii 2016)
+02. Rattle That Lock (Live At Pompeii 2016)
+03. Faces of Stone (Live At Pompeii 2016)
+04. What Do You Want From Me (Live At Pompeii 2016)(   Читать дальше...   )Жанр: RockПродолжительность: 08:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F716514F56C9394867173B25945F51A841E067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104079   (880038) от 15.02.2017
+
+VA - Только хиты. Русский сборник на Hit FM. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880038.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ксения Луговая - Мать Жены Моего Брата 3:02
+002. Mainstream One - Пьяная 2:53
+003. Митя Фомин Feat. Fomka - Мобилка 2:52
+004. Дискотека Авария & Филипп Киркоров - Яркий Я 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51B8672D6EA6E1FFF5D3D154423D8C48FEDD95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104706   (879982) от 15.02.2017
+
+VA - Саундтреки к Фильму 'Притяжение' (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Паулина Андреева - Closer (Movie Version)  3:34
+02.  L’one - Брат за брата (Feat. NEL, Паанда)  3:02
+03.  Макс Корж - Эндорфин  4:28
+04.  L’one - Возвращение  3:32(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F06DFED9A74873E8F24AB11F29C232ECBAC8321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104436   (879956) от 15.02.2017
+
+VA - Music For The Perfect Wedding (2017) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  David Stanhope - J.S. Bach Suite No.3 in D, BWV 1068 (Arr. August Wilhelm)  3:28
+02.  David Measham & West Australian Symphony Orchestra - Boccherini Quintet in E Major, Op.11, No.5, G.275  3:04
+03.  Leonard Dommett & Melbourne Symphony Orchestra - Offenbach Les Contes d'Hoffmann Act 2 (Instrumental) (Barcarolle)  3:58
+04.  Anna McDonald & Diana Doherty (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46DB61C5B0B1C3AE3E93586246935B2CB23353A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104694   (879934) от 15.02.2017
+
+2 Unlimited - No Limits! (1993) [MP3|320 Kbps] <Techno, Euro House, Eurodance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No Limit  3:44
+02.  Ritmo Tribal  3:40
+03.  Mysterious  4:23
+04.  Faces  3:49(   Читать дальше...   )Жанр: Techno, Euro House, EurodanceПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55B667230C244CB37EA60C87CEC25627D72FFF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373346   (879933) от 06.04.2020
+
+Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Think You Know How to Love Me
+02. Living Next Door to Alice
+03. It's Your Life
+04. Don't Play Your Rock 'N' Roll to Me(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0667662AE92EB5C13305A707E10ABDADC502EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373281   (879927) от 06.04.2020
 
 Era - 100% Era (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
@@ -539,209 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182AAF0E1CE2E615A0FA322668AF3870EFC12FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996516   (878869) от 14.03.2016
-
-VA - Самые Лучшие. Медленные Песни Vol.2 (2016) [MP3|320 кб/с] <Pop, Ballads, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello
-02. Michael Jackson - Give In To Me
-03. Laura Pausini - It's Not Good-Bye
-04. Pink - Bridge of Light(   Читать дальше...   )Жанр: Pop, Ballads, RockПродолжительность: 10:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ACD3FA9B7B66A97110606CC2F513AA549CAE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495640   (878816) от 13.09.2021
-
-VA - Get a Rock! (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мураками - Говори (4:12)
-02. Гарик Сукачев - О, Море В Гаграх (4:17)
-03. Земфира - Мелодрама (4:03)
-04. ФЛИП - Не Умрём (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 04:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373477   (878542) от 07.04.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #46 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Breathead - Pot & Psychedelics
-002. Elenski - Go Down To Hell
-003. Abigail Noises - Shadow Profile
-004. Alex Starsound - Made From Biohazard(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEE01F1841D1F8B0A15D7A6AE4A9F5FB41C0554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373700   (878511) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.13 (3CD) (2019) [MP3|320 Kbps] <Power, Symphonic, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878511.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Beast In Black - Die By The Blade (2019)(3:15)
-02. Free From Sin - Faces Of Christ (2018)(5:19)
-03. Serenity - United (2017)(5:34)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425A83F74B6611B0D0DFB16BFAD3F92CE05D5AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373697   (878489) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.15 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Beyond The Black - Songs Of Love And Death (2015) (4:18)
-02. Iron Savior - Roaring Thunder (2019) (4:23)
-03. Turilli - Lione Rhapsody - Zero Gravity (2019) (5:53)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373706   (878465) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.16 (3CD +1CD LIVE) (2020) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878465.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Nozomu Wakai's Destinia - Rain (2018) (4:53)
-02. Dream Child - Under The Wire (2018) (5:43)
-03. Last Days Of Eden - Dead Man's Tale (2018) (4:24)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373711   (878443) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.14 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878443.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Burning Witches - Lords Of War (2018) (3:38)
-02. Phantom - Baptised (2017) (4:15)
-03. Queensryche - 46 North (2019) (3:33)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
 ```
 
 https://mybot314.ru/tekegram_catalog/

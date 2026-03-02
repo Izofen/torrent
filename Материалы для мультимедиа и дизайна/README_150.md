@@ -1,3 +1,30 @@
+###  Публикация: 1225106   (661774) от 14.05.2018
+
+Текстуры - Creative Market -  Marble Halftone Pack + Bonus! - 649035 [PNG, AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные полутоны -это текстурный пакет, наполненный широким разнообразием текстур полутонов, тщательно изготовленных вручную из мраморных изображений высокого разрешения с дополнениями и официальной документацией.
+Автор: 52NINE GRAPHICSФормат: PNG, AI, EPSРазрешение файлов: 7016 x  9933
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57928CEDDBD87F6F03F5895C0EC3E5C8B9E0B713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225099   (661772) от 14.05.2018
 
 Текстуры - Creative Market - Luxury Marble & Gold Textures - 2037495 [JPG, PSD]
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5AFD7738AF9A109C2A18456D3A30C0CBDE51C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902726   (658568) от 30.05.2015
-
-Сборник - European Capital Landmarks [PSD, AI, EPS, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейские столицы. Самые известные здания и сооружения.Формат: PSD, AI, EPS, SVG, CSH, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5522DC213B20A2DD3899AA894CD2C5B6FFCD1014
 ```
 
 https://mybot314.ru/tekegram_catalog/

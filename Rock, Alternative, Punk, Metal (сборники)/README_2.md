@@ -1,3 +1,32 @@
+###  Публикация: 1469078   (1016746) от 10.05.2021
+
+VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ONI - Barn Burner (04:00)
+ 02. Interloper - Glasshouse (04:31)
+ 03. Monuments - Animus (03:41)
+ 04. Fiends - Keep Me in the Dark (06:35)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9686B02628928B86ED36A967D377F2A561D94155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471358   (1015142) от 20.05.2021
 
 The Tiger Lillies - Dark Songs not About Love & Flowers (Compilation Album) (1994-2000) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Rock, Folk Rock, Avantgarde>
@@ -716,35 +745,6 @@ VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD082E143ABB2D261E0DDC60066E66DD6A041E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524409   (1004698) от 31.07.2021
-
-VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizness Band - Там, где руины превращаются в нас (02:32)
-02. Дочки-Матери - Я не верю (02:24)
-03. Hot Toys - Я смотрю на них (03:01)
-04. Серцевий напад - Кордони гетто (02:50)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C1A8A86690E2DD87073DD649DDD3FFD8697542
 ```
 
 https://mybot314.ru/tekegram_catalog/

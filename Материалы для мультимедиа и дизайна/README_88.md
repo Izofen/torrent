@@ -1,3 +1,29 @@
+###  Публикация: 1507608   (798205) от 05.11.2021
+
+Пресеты - Creative Market - 788 Cyberpunk Presets LUTs - 5883096 [XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите этот колоссальный набор из 788 пресетов и LUT, чтобы создавать потрясающие образы в стиле киберпанк.Формат: XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A0C8A4E7D950216B2A29299001FCC5D2EB727E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385342   (797746) от 24.05.2020
 
 Футажи - VideoHive - Baby Shower Celebrations - 26733109 [MOV]
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E6014DD7E9172BE1BBA7B8AAF92A6C643911423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274139   (794926) от 05.01.2019
-
-3D модели - Hum3D - Ford Expedition MAX Platinum 2017 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794926.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EF86BC075F36F577F2BA14B277DA816FC38198
 ```
 
 https://mybot314.ru/tekegram_catalog/

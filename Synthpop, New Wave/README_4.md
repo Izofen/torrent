@@ -1,3 +1,32 @@
+###  Публикация: 1220375   (704320) от 19.04.2018
+
+VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Synthpop, Italo-Disco, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
+02. Italoconnection - Night City (12" Radio Edit) (3:42)
+03. Johan Baeckstrom - Cry Softly (Time Is Mourning) (4:20)
+04. Rational Youth - Flash In The Night (3:44)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9845C96D8A0C90DB86FC80FAA063A958ABED6E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132352   (702825) от 08.05.2017
 
 Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
@@ -719,35 +748,6 @@ Toyah - Desire (серия "Другие восьмидесятые") (1987) Rei
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B3309EE54EC663137B11B56B9302A5ED908198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294986   (624105) от 10.04.2019
-
-November Group - November Group (серия "Другие восьмидесятые") (1982) Vinyl, LP [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624105.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Shake It Off
-A2. Flatland
-A3. Pictures Of The Homeland
-B1. We Dance(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A0B2B3E0864E2866D274F333C00E32B807E54A
 ```
 
 https://mybot314.ru/tekegram_catalog/

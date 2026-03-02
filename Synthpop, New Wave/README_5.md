@@ -1,3 +1,32 @@
+###  Публикация: 1294986   (624105) от 10.04.2019
+
+November Group - November Group (серия "Другие восьмидесятые") (1982) Vinyl, LP [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Shake It Off
+A2. Flatland
+A3. Pictures Of The Homeland
+B1. We Dance(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A0B2B3E0864E2866D274F333C00E32B807E54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295029   (623985) от 10.04.2019
 
 VA - Synthwave Vol. 2 (2015) [MP3|320 Kbps] <Synthpop, Syntwave>
@@ -719,35 +748,6 @@ Blancmange - британский электронный нововолновы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A53ED9AA48810179DB967F32ECC37496ED7631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235110   (564074) от 09.07.2018
-
-Rheingold - Im Lauf der Zeit (2017) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kraut
-02. Im Lauf der Zeit
-03. Sehnsucht
-04. Stromaufwarts(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAB1D054E9457255F03E9AEBCFD0A5CFDD5F73C
 ```
 
 https://mybot314.ru/tekegram_catalog/

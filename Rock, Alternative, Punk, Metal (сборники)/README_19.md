@@ -1,3 +1,32 @@
+###  Публикация: 1025591   (710107) от 12.06.2016
+
+Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blacker Than
+02. A Nightmare Phantasm
+03. Klendathu
+04. The Horror In Clay(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 792166   (709913) от 02.06.2014
 
 VA - Driving Rock Ballads (2014) [MP3|320 кб/с]<Rock, Hard Rock, Classic Rock>
@@ -717,35 +746,6 @@ VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403991   (684277) от 23.08.2020
-
-VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684277.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Video Nasties - Viva Death
-002. Naat - The Moth
-003. Crafter - Rupture
-004. Disembodied - Bloodshed Rain(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18208A55D9D55A3059AFA732C68E0DCBD46C3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

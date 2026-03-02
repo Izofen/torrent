@@ -1,61 +1,3 @@
-###  Публикация: 1351663   (1002003) от 11.01.2020
-
-John Gary - The Essential John Gary (2001) RCA [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. While We're Young [2:30]
-02. I'll Remember Her [2:57]
-03. You Never Kissed Her [2:14]
-04. I'll Be Seeing You [3:10](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCAC02CBB34A0C566CBF663E482606A1FF1A751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351967   (1001695) от 12.01.2020
-
-Eddie ''Lockjaw'' Davis - Four Classic Albums Plus 1952 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001695.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Very Saxy [8:20]
-02. Lester Leaps In [6:16]
-03. Fourmost [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 02:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCFA4E082669E5BC6F571E599F31201588582AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351915   (1001686) от 12.01.2020
 
 Thought Gang (David Lynch and Angelo Badalamenti) - Thought Gang (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Dark Jazz, Free Jazz>
@@ -823,6 +765,76 @@ Devil's Hollow - Devil's Hollow (2010) [APE|Lossless]<Blues>
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599679   (999178) от 07.01.2013
+
+Dave Nevling - Sweet Bijou (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's All That (5:10)
+ 02. Upside (4:07)
+ 03. Lenora (7:16)
+ 04. Sweet Bijou (4:21)
+ 05. Vieux Carre (4:13)
+ 06. Drink You Away (3:35)
+ 07. Josiah (5:25)
+ 08. Connie's Cafe (4:31)
+ 09. Night Into Day (4:26)
+ 10. I Need Love (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599247   (999111) от 07.01.2013
+
+Мадера Хард Блюз - 3 альбома (2002-2010) [MP3|320 кб/с]<Blues, Hard rock, Rock'n'roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999111.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:34) 01. Мой образ жизни рок-н-ролл
+(5:15) 02. Белый пароход
+(3:54) 03. Я охраняю свой покой
+(5:18) 04. Прощай, брат
+(3:24) 05. Спасибо, Родина
+(6:14) 06. Аэроплан
+(3:52) 07. Бред
+(5:16) 08. Тоска
+(3:52) 09. Песня покойника
+(5:51) 10. Патологоанатом(   Читать дальше...   )Жанр: Blues, Hard rock, Rock'n'rollПродолжительность: 01:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0DED7111566D22A2BD3ACFFBB9D68E6F093BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,203 @@
+###  Публикация: 1265642   (273856) от 28.11.2018
+
+Besomorph & Julius Kasa - No More (2018) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Besomorph & Julius Kasa - No MoreЖанр: ElectronicПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492A922A231217C66E254FDCB09E14104C7B59B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083596   (273786) от 16.12.2016
+
+VA - Melody Reminiscense State Play (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal, Harmonic, Emotional, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273786.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filo & Peri feat. Aruna - Ashley (Maria Healy Remix) 7:48
+002. Susana & Hazem Beltagui - Silent For So Long (Maratone Remix) 6:48
+003. Braulio Stefield - Te Amo (Original Mix) 8:51
+004. Fredd Moz - The Power Of The Night (Original Mix) 7:39(   Читать дальше...   )Жанр: Trance, Melodic, Vocal, Harmonic, Emotional, UpliftingПродолжительность: 14:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F526695ABA1A5E528EAB2B1BC518BDE2CDA013A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083574   (273714) от 16.12.2016
+
+VA - Музыкальный плен на Europa Plus 4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273714.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Tv Noise Feat. Oisin - Remember 2:43
+002.Нужный Ритм - Незабываемая 3:12
+003.Fallulah - Slow Love 3:02
+004.Ruslan Nigmatullin - Москва Не Город А Целый Мир 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827E9685DC3825BD3DEFF603FA720147043ABE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337500   (273713) от 11.11.2019
+
+VA - Club Later Night (2019) [MP3|320 Kbps] <Club, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273713.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maliki - Darkside
+002. Blood Groove - Diver (Original Mix)
+003. Fernandes - Con Escala En Medellin
+004. Frank Sonic - Bloooom(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 13:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104C3B68B911FC99D811D05489322F682A47045B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083577   (273710) от 16.12.2016
+
+VA - Beatport In The Remix (2016) [MP3|320 Kbps] <Progressive House, Minimal, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep House
+01. Ralphi Rosario, Linda Clifford - I Hear The Music (Demuir's Deep Inside U Remix)
+02. Rick Wade - Daedalus (Rogerio Martins Deep Down Inside Remix)
+03. Four Tet - Aerial (Jay Daniel Remix)(   Читать дальше...   )Жанр: Progressive House, Minimal, Deep HouseПродолжительность: 16:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C727619795415CFC5E6600A90A3AA7124D9A09C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083576   (273708) от 16.12.2016
+
+VA - Душевная музыка на Шансоне. Выпуск 3 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Сиран Агасаров - Все У Нас Впереди 3:24
+002.Александр Казанцев (Сотник) - Интелегент 3:01
+003.Валерий Курас - Шансон 3:13
+004.Алена Шарапова - Детство 2:57(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9073C341B4374711FDA61E76BD31E56609AB0907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083580   (273700) от 16.12.2016
+
+VA - Beatport Winter Sounds (2016) [MP3|320 Kbps] <Electronic, Deep House, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep House
+01. Cubicolor - Fictionalise (Lindstrom & Prins Thomas Remix)
+02. Andhim - German Winter (Original Mix)
+03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: Electronic, Deep House, MinimalПродолжительность: 17:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CCEFC982CE874198BD7BE752AA2D860E7939BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337496   (273699) от 11.11.2019
 
 VA - End Time Vision: Hard Rock And Metal Selection (2019) [MP3|320 Kbps] <Hard Rock, Metal, Alternative>
@@ -542,209 +742,6 @@ VA - Reggae On The Roof Vol. 07 (2019) [MP3|320 Kbps] <Reggae, SKA, Reggaeton>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F07DDF3CF3D03B77D53668B1103EEFD1CBE330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083972   (272485) от 17.12.2016
-
-VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoyum - Tears
-02. Daviddance - Time (Feat. J. Cockburn) (Original Mix)
-03. Steve van gur - Hello
-04. Anne deist - First time(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083975   (272316) от 17.12.2016
-
-VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation Music Zone - Best Meditation Music 3:38
-02. Chakra Healing Music Academy - Zen Garden Ambient 3:54
-03. Mindfulness Meditation Music Spa Maestro - Liberation Of Thoughts 3:22
-04. Meditation Mantras Guru - Calm Sea For Self-Hypnosis 3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 03:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083978   (272238) от 17.12.2016
-
-VA - Лучшие хитовые треки в стиле Chillout, New Age & Ambient от LORDEGRAF (2016) [MP3|32-320 Kbps] <Chillout, New Age, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Arthur Doul - Digital Down [05:22]
-02.	Alex Field - Deep Black Sea (Chillout Mix) [06:16]
-03.	Alex Field - My Life (Original Mix) [03:41]
-04.	Antonymes - Pour Toujours Sans Espoir [04:07](   Читать дальше...   )Жанр: Chillout, New Age, AmbientПродолжительность: 08:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EB1A3F7F3B5785F5C67E2D6EBCAF24B18B01F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189041   (272083) от 04.12.2017
-
-VA - Road Blues: Top 50 Songs (2017) [MP3|320 Kbps] <Rock Blues, Folk Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gina Sicilia - Don't Want To Be In Love
-02. Karen Lovely - Fish Outta Water
-03. Clark, Gary, Jr. - Grinder
-04. The Kate Lush Band - Pack It Up(   Читать дальше...   )Жанр: Rock Blues, Folk RockПродолжительность: 03:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEC81214089F36ED0138A94EA4DF01DE62050AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188969   (272080) от 04.12.2017
-
-VA - The Best Dancing Hits of The 90’s years (2017) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Session – Lucky Number
-02. Missing Heart – Charlene
-03. Music Instructor – Super Fly
-04. Look Twice – Feel The Night(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B9FDB5C50DE48F71BF8E7469CCA4F0FD158C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188926   (272008) от 04.12.2017
-
-VA - Счастливый случай. Сборник хитов от Русского радио (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272008.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Седокова - С Чистого Листа
-002. Hann - Счастливый Случай
-003. Сергей Дубровин & Dima Sirota - Отпусти
-004. Лев Тимашов - Саундтрек Сердца(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C44D390A755734C5993D2A999C126934F73FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265695   (271954) от 30.11.2018
-
-VA - Empire Records - Enigma Alive 4 (2018) [MP3|320 Kbps] <Chillout, Downtempo. Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Smith - Bull Drake (Original Mix)
-02. Richard Bonne - My Tears Of Elements (Artenovum Mystic Chillout Mix)
-03. Frank Borell - Photon (Deep West Cut)
-04. L'Enigme Sacree - Sanctus And Angus Dei (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo. LoungeПродолжительность: 03:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3EB59AF9438FD15D0134BC72DC93FF80FDBF89
 ```
 
 https://mybot314.ru/tekegram_catalog/

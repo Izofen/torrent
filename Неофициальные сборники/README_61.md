@@ -1,3 +1,208 @@
+###  Публикация: 1360605   (959408) от 16.02.2020
+
+VA - The Official UK Top 40 Singles Chart 14.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Roddy Ricch - The Box
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96937A1A7AC7866257DE1CD1B0A2E6D151B8F9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979618   (958434) от 27.01.2016
+
+VA - The Eurodance Evolution 2016 (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free 2 Night - Under the Sun (Eurodance Remix) [04:33]
+02. Real 2 Day Ft B.P. - Change Our Life (Radio Mix) [03:12]
+03. B.P.M - No End No Limit (Radio Mix) [03:27]
+04. Shilton - Don't Stop Your Dreams (Eurodance Radio Mix) [03:00](   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0668CD3F90102E813D953D89FEBF77FBE40D6026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979642   (958202) от 27.01.2016
+
+Ace Of Base - Super Hits Collection (2015) [MP3|320 кб/с] <Disco , Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always Have, Always Will
+02. Wonderful Life
+03. Dr. Sun
+04. All That She Wants(   Читать дальше...   )Жанр: Disco , EurodanceПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2DE72C3CC466BC8B7EF4033B98C33D58BB744D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360849   (958082) от 17.02.2020
+
+VA - Зимняя свежая 30-тка Vol.4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958082.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Anessa Kay - Уходи (3:00)
+2.Elbrus - Я Не Верю (3:07)
+3.Gezweirdo feat. Nomovoln - Цепи (3:18)
+4.HammAli & Navai - Где Ты Была (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D92F62ABCC0318416552ED6FCD5BE1F68F8D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856531   (957579) от 05.01.2015
+
+VA - The Official UK Top 40 Singles Chart (04-01-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую первый в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
+02. Philip George - Wish You Were Mine  (2:58)
+03. Ed Sheeran - Thinking Out Loud  (4:42)
+04. Ben Haenow - Something I Need  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C24ABB9D11C5587701F3841365B9C8C992B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979918   (957459) от 28.01.2016
+
+VA - Colibri Trance Pack (2016) [MP3|320 кб/с] <Progressive, Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957459.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Waas Van Siem - Cold Sun
+002. Blue Dolphin - Dreams
+003. Black Pulsar - Searching 4 Love
+004. ViDs - Passion Spills (DJ Brush vs Darren Tech Remix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 11:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63193418FA958C1AD09C9B2935351C4105511C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980133   (957411) от 28.01.2016
+
+VA - Sexy Deep House Session (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Cage - On Top of the World
+02. Jon Craig - Out of the Blue 2015 - Radio Edit
+03. Just Matte - Rusty Boat
+04. Jonathan Morning - Matter of Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB6D06F6E8E08B5CF344F5EC1D51E76AB68F42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979941   (957409) от 28.01.2016
 
 VA - Atmosphere Bliss: Vocal And Uplifting Trance (2016) [MP3|320 кб/с] <Vocal, Uplifting Trance>
@@ -542,215 +747,6 @@ VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11BAEF8A13B0113B8E65C7924BA20CD7065DEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361397   (955510) от 19.02.2020
-
-VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La Roux - Gullible Fool (Original Mix)
-002. Where Is Maps - Crazy Together
-003. Skif Bazzaty - Solo Tu Y Yo (Original Mix)
-004. Dstrqt - Missions (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361176   (955493) от 19.02.2020
-
-VA - 100 Greatest Dance Anthems (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stardust - Music Sounds Better With You (Radio Edit) 4:21
-002. Donna Summer - I Feel Love 3:45
-003. Daft Punk - One More Time 5:20
-004. Inner City - Good Life (Original 12' Mix) 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CAF170D6AABDC9DC8B9259E886DB29CB190168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360935   (955405) от 19.02.2020
-
-VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neron - Decomposing
-02. Hilaa - Naked
-03. Cassidy Janson - Fairytale
-04. 1Team - Not Afraid(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 04:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361369   (955401) от 19.02.2020
-
-VA - Рок впрок 14 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стёртые Лица - Чтобы жить
-02. Deviltears – Безликие
-03. МИССИЯ - Ранняя весна
-04. Тень Звука – Город(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F6CDB29003AF474094A4F15DD82E1E09F732CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623211   (955349) от 26.02.2013
-
-VA - Gold of Teddy Killerz (2013) [MP3|320 кб/с]<Drum'n'Bass, Dub Step, Glitchhop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Modestep - Evolution Theory (Teddy Killerz Remix)
-2. Modestep feat. Teddy Killerz and Ghetts - Inside My Head
-3. Nishin Verdiano, AK9 – Bitch Please (Teddy Killerz Remix)
-4. Skrillex feat. Damian Marley - Make It Bun Dem (Teddy Killerz Remix)
-5. Teddy Killerz - Bad Taste
-6. Teddy Killerz - Hunger
-7. Teddy Killerz - New Drums
-8. Teddy Killerz - Ravezone Anthem
-9. Teddy Killerz - Samsyka
-10. Teddy Killerz - Scary(   Читать дальше...   )Жанр: Drum'n'Bass, Dub Step, GlitchhopПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA57CFA94547F64B418450FF383766BB0DD035E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360932   (955210) от 19.02.2020
-
-VA - Sentimental Blues (2020) [MP3|204-320 Kbps] <Blues, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955210.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lost Soules - Can't Get Enough Of Her Sweet Stuff
-002. Erja Lyytinen - Stolen Hearts
-003. Sue Foley - Come To Me (Featuring Charlie Sexton)
-004. Gracie Curran & Friends - Ernestine(   Читать дальше...   )Жанр: Blues, LyricПродолжительность: 08:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7DEE3793D57CC210CC8F682F9804C40BA19B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088739   (955150) от 01.01.2017
-
-VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna - Vogue 05:18
-02. En Vogue - Hold On (Hip Hop Remix) 05:50
-03. All Saints - Lady Marmalade (Timbaland Remix) 03:40
-04. Clubland - Hypnotized (Pka Full Philly 7) 04:09(   Читать дальше...   )Жанр: Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage HouseПродолжительность: 01:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
 ```
 
 https://mybot314.ru/tekegram_catalog/

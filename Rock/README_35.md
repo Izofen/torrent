@@ -1,3 +1,61 @@
+###  Публикация: 1032000   (649337) от 05.07.2016
+
+2Cellos - Discover (2016) [MP3|320 Kbps] <Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderstruck (Intro)
+02. Thunderstruck
+03. Smooth Criminal
+04. Highway to Hell(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389084E3D0DD0AA1FCCD82180016D406DEC3E28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905504   (649153) от 06.06.2015
+
+The Rolling Stones - Sticky Fingers (2015) Super Deluxe Edition [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Sugar
+02. Sway
+03. Wild Horses
+04. Can't You Hear Me Knocking(   Читать дальше...   )Жанр: RockПродолжительность: 02:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343DA10B86D886E78C551AA29CA22668E0AAD2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141573   (648703) от 11.06.2017
 
 Leon Paul-Phillips - London's Underground (1972) Remastered, 2016, Paisley Press [MP3|320 Kbps] <Rock>
@@ -711,64 +769,6 @@ Led Zeppelin - Live (Bootleg) (1993) [MP3|320 кб/с]<Сlassic Rock, Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3F3284A0C679FF5A1D14947EE1E8AC16A52621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292772   (643201) от 31.03.2019
-
-Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diggin' the scene (03:09)
-02. A touch of blue (03:46)
-03. Aila (feat. Heidi Kaarto, Esa Pulliainen) (04:21)
-04. Muddy the water (03:36)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C0B9C1EECF608A148403E88474EB1BD79BC748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541102   (642990) от 04.04.2022
-
-Gleb Kolyadin - Gleb Kolyadin (Expanded Edition) (2018) Reissue, 2021, Kscope [MP3|320 Kbps] <Progressive Rock, Neo Classical, Piano Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширенное переиздание выпущенного на британском лейбле Кsсоре одноимённого сольного альбома российского музыканта Глеба Колядина - пианиста, композитора, выпускника Санкт-Петербургской консерватории им. Н.А.Римского-Корсакова, лауреата международных фортепианных конкурсов. Альбом тяготеет к прог-року благодаря вкладу приглашенных именитых музыкантов: Гэвин Харрисон (   Читать дальше...   )01. Insight (instr.)
-02. Аstrаl Аrсhitесturе
-03. Whitе Dаwn (instr.)
-04. Каlеidоsсоре(   Читать дальше...   )Жанр: Progressive Rock, Neo Classical, Piano RockПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4BBFBC6CE711E00EE03CA57DBBFA9DFC440752
 ```
 
 https://mybot314.ru/tekegram_catalog/

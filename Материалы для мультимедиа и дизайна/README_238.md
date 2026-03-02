@@ -1,3 +1,29 @@
+###  Публикация: 1173258   (390465) от 11.10.2017
+
+Растровый клипарт - Set Animals [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_390465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт звери на прозрачном фоне (49 шт)Формат: PNGРазрешение файлов: 529x538-8000x6257
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EA39635A75C78CA0FA12A544A96BCCF371EDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173426   (390414) от 11.10.2017
 
 Экшены - GraphicRiver - Watercolor Animation Photoshop Action - 19708471 [ATN, ABR, PAT]
@@ -666,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F6E16F566AEC1200D70350A54FC611CA1A1F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571937   (386650) от 07.11.2012
-
-3D модели - Evermotion - Archmodels Vol. 117 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник деревьев от Evermotion
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BF3406844131B85DFA254A95A9CF199A05EE47
 ```
 
 https://mybot314.ru/tekegram_catalog/

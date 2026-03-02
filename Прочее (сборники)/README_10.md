@@ -1,3 +1,119 @@
+###  Публикация: 1470165   (1015789) от 16.05.2021
+
+VA - Music News vol.98 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015789.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bebe Rexha - Better Mistakes (02:16)
+ 002. A. G. Cook feat. Charli XCX - Xcxoplex (02:22)
+ 003. Adam Maniac & Eva Maniac - Не Уходи (02:55)
+ 004. Adelen - Safety Light (02:31)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC062BF09CCC0AB5B04F98C2B506E7907DAB3F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470272   (1015769) от 16.05.2021
+
+VA - Music News vol.100 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015769.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ela - Mein Herz (02:48)
+ 002. Alex Sed feat. Darom Dabro & Lukrecia - Мама Говорит (02:44)
+ 003. Amora - Ousadia (02:13)
+ 004. Andreea D & Boyflow - Zuli Zuli (02:51)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3750D93E3719E7527524AC4E90B79486F956BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470416   (1015719) от 16.05.2021
+
+VA - Громкие новинки Мая (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жак-Энтони - Линия (3:54)
+02. VERBEE - Выдыхай (2:17)
+03. Skrillex, Four Tet, Starrah - Butterflies (3:15)
+04. Джаро & Ханза - Емаея (1:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3CEEE6DA37D4981A31984C98B81043B7F1D73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471098   (1015299) от 19.05.2021
+
+VA - Music News vol.101 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cher - Walls (03:32)
+ 002. Aespa - Next Level (03:42)
+ 003. Amorphous & Kehlani - Back Together (04:09)
+ 004. Anton Lacosta - Back (02:05)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F12ECBD9C129B75990C94E07BF177C8D9EA957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471049   (1015263) от 19.05.2021
 
 VA - Зайцев.нет Лучшие новинки Мая (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -629,122 +745,6 @@ VA - Music News vol.108 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036F69501B0B5BCA5BD9491C26AB27382554D7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477977   (1010638) от 17.06.2021
-
-VA - Party Mix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. blackbear - hot girl bummer (3:08)
-02. DJ Khaled, Post Malone, DaBaby, Megan Thee Stallion, Lil Baby - I DID IT (2:45)
-03. Madison Beer - Baby (3:27)
-04. Alan Walker, salem ilese - Fake A Smile (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D46331EFBBC34BB5A9A1C69EE317D1F051B6F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478583   (1010149) от 20.06.2021
-
-VA - Зайцев.нет Лучшие новинки Июня (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grechanik - Просто друг (3:06)
-02. INSTASAMKA - Juicy (2:00)
-03. NLO - Ау Ау (2:04)
-04. OMELONI - Симпл Димпл (1:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD1E63DDB4D5E635CAB878729EADFCA4F550762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478441   (1010107) от 20.06.2021
-
-VA - Music News vol.109 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева - Розовый Дым (03:27)
- 002. Aisha - Выдуманы (03:45)
- 003. Юлия Пушман - Эй, Бой (02:20)
- 004. Alice Change - Никому (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90639832DB9D63F45A533E2BEC9797B0C6DAD78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479534   (1009577) от 24.06.2021
-
-VA - Music News vol.110 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NAO - Messy Love (03:35)
- 02. Adelen - Obsessed (02:41)
- 03. Alex Dattilo feat. Nany & Obvius - Azucar (03:09)
- 04. AMster - По Тебе (03:28)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D83D82AF5EE4C286789609DAE944EAE9365F1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

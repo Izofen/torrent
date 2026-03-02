@@ -1,3 +1,212 @@
+###  Публикация: 903026   (659154) от 30.05.2015
+
+George Kollias - Invictus (2015) /Limited Edition/ [FLAC|Lossless]<Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes Of Divinity
+02. Invictus
+03. The Passage
+04. Aeons Of Burning Galaxies(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80102B1D8C6C1F6201498FBCBB09D1B80DD4F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903129   (659063) от 30.05.2015
+
+DORO - Fight (2002) [FLAC|tracks + .cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fight
+02. Always Live To Win
+03. Descent (Feat. Pete Steele)
+04. Salvaje(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D574B452CAF18899694CCECC1CE8DBB5E811863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514078   (658927) от 23.06.2012
+
+Luca Turilli's Rhapsody - Ascending to Infinity (2012) Limited Edition [FLAC|Lossless]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum X (2:26)
+02. Ascending To Infinity (6:15)
+03. Dante's Inferno (4:57)
+04. Excalibur (8:06)
+05. Tormento E Passione (4:52)
+06. Dark Fate Of Atlantis (6:30)
+07. Luna (4:16)
+08. Clash Of The Titans (4:15)
+09. Of Michael The Archangel And Lucifer's Fall (16:02)
+10. March Of Time (Bonus Track) (5:49)Жанр: Symphonic Power MetalПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903092   (658880) от 30.05.2015
+
+DORO - Calling the Wild (2000) /2001, Soyuz Music/ [FLAC|tracks + .cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Me Like A Cobra
+02. Dedication (I Give My Blood)
+03. Burn It Up
+04. Give Me A Reason(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E641AB218FE9266FCEF5CAF1CCBC4E47F2127E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514215   (658621) от 23.06.2012
+
+Sunn O))) - 21 albums (2000-2011) [FLAC|Lossless] <Drone Doom Metal, Sludge, Drone Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_658621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dysnystaxis (... a Chance Meeting with Somnus) (19:02)
+02. Ra at Dawn Part One (Rapture, at Last) (15:01)
+03. Ash on the Tress (The Sudden Ebb of a Diatribe) (17:09)
+04. Ra at Dawn Part Two (Numbed by Her Light) (14:16)2000-2011Жанр: Drone Doom Metal, Sludge, Drone AmbientПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140003   (658278) от 04.06.2017
+
+Die Entweihung - The Hallucinations (2010) [FLAC|Lossless|image + .cue] <Raw Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Life Has No Right To Be
+02. Reflections About…
+03. A Slumber Did My Spirit Seal
+04. The HallucinationsЖанр: Raw Depressive Black MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE7D4F94C382879F26269D57EA197CFB6B64535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139853   (658039) от 04.06.2017
+
+Liv Sin (ex-Sister Sin) - Follow Me (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall
+02. Hypocrite
+03. Let Me Out
+04. Black Souls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E997026329E7DE89F0DAB52E24E22456AB87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903476   (657983) от 31.05.2015
 
 Thurisaz - The Pulse of Mourning (2015) [FLAC|image+.cue]<Melodic Death/Progressive/Black Metal>
@@ -545,224 +754,6 @@ Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C7468A9C4ADFC1B766D002E0683C60C45325EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539591   (655048) от 28.03.2022
-
-Kvaen - The Great Below (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cauldron of Plagues (00:03:44)
-02 - The Great Below (00:04:28)
-03 - In Silence (00:07:23)
-04 - Damnations Jaw (00:05:00)(   Читать дальше...   )Жанр: Melodic Black, Pagan MetalПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D3AA08E869660DCD6DACB1B7B7D25A54A6AE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226456   (654876) от 21.05.2018
-
-Deceptionist - Initializing Irreversible Procces (2016) [FLAC|Lossless|image + .cue] <Technical Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - It's Just Begun (0:41)
-02 - Trough The Veil (feat. Enrico Di Lorenzo from Hideous Divinity) (3:33)
-03 - Quest For Identity (3:13)
-04 - When Humans Began To Machines (4:29)(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D8DA2E71325A919C280C37DF77ED331DB32087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226448   (654866) от 21.05.2018
-
-Engel - Abandon All Hope (2018) Japan [FLAC|Lossless|image + .cue] <Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Darkest Void
-02. The Legacy Of Nothing
-03. Book Of Lies
-04. As I Fall(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EB49AAF0FEF5E64C407D28B1CB224F860F3331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516064   (654820) от 27.06.2012
-
-Skelator - Agents Of Power (2012) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agents of Power - 04:52
-02. Gates of Thorbardin - 05:30
-03. Dream Dictator - 06:15
-04. Rhythm of the Chain - 04:15
-05. Overture - 04:18 instrumental
-06. Elric: The Dragon Prince - 05:15
-07. Pulsing Cavern - 00:34
-08. Stormbringer and Mournblade - 02:49
-09. The Young Kingdoms - 01:29
-10. The Dark Tower - 03:27(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226624   (654606) от 21.05.2018
-
-Five Finger Death Punch - And Justice For None (2018) Limited Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative, Groove, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble
-02. Fake
-03. Top Of The World
-04. Sham Pain(   Читать дальше...   )Жанр: Alternative, Groove, Nu MetalПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6F348D515720BFCCBF6D948965DF861DF97828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515966   (654591) от 27.06.2012
-
-Eagle Twin - The Unkindness of Crows (2009) [FLAC|Lossless] <Drone Doom / Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning was the Scream (09:13)
-02. Murder of ... (12:11)
-03. 10,000 Birds of Black Hot Fire (09:02)
-04. Storytelling of Ravens (06:23)
-05. Crow Hymn (15:00)
-06. Carry on, King of Carrion (06:26)
-07. And it came to pass that birds fell to earth as black snakes (06:34)Жанр: Drone Doom / Sludge MetalФормат: CD, AlbumПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515999   (654590) от 27.06.2012
-
-Burning Point - The Ignitor [Japanese Edition] (2012) [WavPack|Lossless]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Flame (Salvation By Fire Part II) (03:58)
-02. In The Fires Of My Self-Made Hell (03:08)
-03. In The Night (03:50)
-04. The Ignitor (04:07)
-05. Silent Scream (04:38)
-06. Heaven Is Hell (04:28)
-07. Losing Sleep (04:02)
-08. Demon Inside Of You (03:45)
-09. Everdream (03:40)
-10. Lost Tribe (03:45)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

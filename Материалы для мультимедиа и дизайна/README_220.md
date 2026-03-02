@@ -1,3 +1,29 @@
+###  Публикация: 1247453   (452430) от 15.09.2018
+
+Растровый клипарт - Deeezy - Snow Free 3D Lettering [PNG, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снежный алфавит в 2-х вариациях с дополнениями (паттерны) и официальной документацией.Формат: PNG, PATРазрешение файлов: 3000 × 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B32718E94F68FD8ECC2C44FC2D31873A544D65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551193   (452130) от 24.09.2012
 
 Футажи - Rampant Ultimate Design Elements Sampler Packs  [MOV]
@@ -671,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE544D3E3FAED73AF6AAC2BC2BA433301A3D2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247871   (448326) от 17.09.2018
-
-Растровый клипарт - Fotolia - Carnaval mask [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карнавальные маски с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2000x3000-5616x3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEA9D127E0100474FE49C832CF944C7C2E0A1FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

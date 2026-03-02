@@ -1,3 +1,31 @@
+###  Публикация: 1395667   (753655) от 11.07.2020
+
+Векторный клипарт - Cute cartoon animals and seamless background [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Милые мультяшные животные
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5F60418CECF7F445051F34AC2CFDE29AFB7BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395647   (753651) от 11.07.2020
 
 Векторный клипарт - Funny animals drawing cartoon watercolor illustrations 16 [EPS]
@@ -663,34 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F016C858605F1857908593BFE55680028C3D699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216361   (751234) от 30.03.2018
-
-Векторный клипарт - Happy Easter holiday with eggs and bunny #19 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С праздником Пасхи
-5 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F286C2DB6A9BD5C8C30F7F1E5374168FEEA23945
 ```
 
 https://mybot314.ru/tekegram_catalog/

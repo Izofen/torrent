@@ -1,3 +1,29 @@
+###  Публикация: 1826688   (170960) от 19.10.2025
+
+Сборник - SKTadas - Youtube Thumbnail Essentials [PSD, PNG, JPG, MOGRT, PRFPSET]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ускорьте процесс создания миниатюр с помощью этого пакета премиум-элементов, призванных привлечь внимание и сделать ваши видео яркими. Каждый элемент создан вручную с помощью инструмента «Перо» для обеспечения высочайшего качества. Помимо готовой графики, вы также получите полностью редактируемый файл Photoshop (PSD) с настраиваемыми текстами, сообщениями, графиками, (   Читать дальше...   )Формат: PSD, PNG, JPG, MOGRT, PRFPSET
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C17FF52CFF8C6C2BA4C8A5F7B2112C391186D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826848   (170943) от 19.10.2025
 
 Шрифты - MyFonts - Gum Rally AOE [OTF]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB9576C3C814AED5271BBF1ABA9416B05DF7226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515518   (168970) от 07.12.2021
-
-3D модели - Hum3D - Toyota Vellfire Aero with HQ interior 2015 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168970.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DE84F6EAB3438D8A1E78A8F0D4800D9A499D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

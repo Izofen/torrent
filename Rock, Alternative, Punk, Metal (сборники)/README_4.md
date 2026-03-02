@@ -1,3 +1,32 @@
+###  Публикация: 1357582   (973002) от 04.02.2020
+
+Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die For Me Only (Black Widow)
+02. Hungry
+03. Back To The Cave
+04. Ready, Willing And Able(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE2411DEC8074ACDD1FA966A49763D57FE836C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357941   (970466) от 06.02.2020
 
 VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
@@ -716,38 +745,6 @@ VA - Rock Drive 9  (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12E41680353986BF360D1A1421F94DF85CC4D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932925   (928440) от 15.02.2016
-
-VA - Новый РусРок. То, что не купишь в магазине [40 выпусков] (2008-2016)[MP3|32-320 кб/с]<Русский Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часть 1
-
-01 - Milena - К весне   00:03:29
-02 - Ё - Балтийское счастье  00:06:14(   Читать дальше...   )Жанр: Русский РокПродолжительность: 00:38:36
-
-01 - Как Я провел Лето - Лето...я провел в суете [00:04:10]
-02 - SCULL SHAKER - Сомнение в себе, как точка отсчета [00:04:45](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B95EDEC84A8E7B693A233D77F2E77656A4CB16
 ```
 
 https://mybot314.ru/tekegram_catalog/

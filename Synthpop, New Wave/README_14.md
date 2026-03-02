@@ -1,3 +1,32 @@
+###  Публикация: 1772932   (71760) от 12.01.2025
+
+Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just A Dream
+02. Paranoid
+03. Twin Sun (Novan K's Club Mix)
+04. Cloudy Perfume In The Wind(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9932C7179E0AD94F3C5B902C91DE244CF5BE58BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772894   (71757) от 12.01.2025
 
 Black - Wonderful Life (1987) [MP3|320 Kbps] <Pop, New Wave>
@@ -716,35 +745,6 @@ Yuri Sosnin - Travel into Space (2024) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9635FF40EE8A2D95B7F361BC1F988C645F08DD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586054   (31736) от 07.01.2025
-
-Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices Of Jupiter
-02. Just Blue
-03. Magic Fly
-04. Running In The City(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACDB3BABE1148F29DCDA6E6CAFB2EF41B83BC8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

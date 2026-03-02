@@ -1,3 +1,206 @@
+###  Публикация: 1268883   (223626) от 12.12.2018
+
+VA - Deep House Collection Vol.192 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crystal Waters - Merry Christmas All (John J-C Carr Radio Mix) 3:01
+002. DJ Artak feat. Sone Silver - Searching (VetLove & Mike Drozdov Remix) 6:32
+003. 21 Room - Hey Hey (Techno Red Remix) 7:02
+004. TC Fresh - Guitar Feelings (Original Mix) 4:56(   Читать дальше...   )Жанр: House, Deep House, Progressive, Vocal House, Club House, Tech HouseПродолжительность: 14:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F2668E0237834C7F5B106CA0410DDBDC5BA0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494303   (223595) от 12.12.2018
+
+Ария - Лучшая Коллекция (2012) [MP3|320 кб/с]<Heavy Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей
+ 02. Волонтёр
+ 03. Тореро
+ 04. Воля И Разум(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 03:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A893801B9B9C3507623D316A537B05B25254FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269098   (223471) от 13.12.2018
+
+VA - Selfish Desire: Assembly Of Electro House (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cally Dj - What You Thinking
+002. Miki Farra - Get Low Now
+003. The Deepshackerz - Sourn
+004. Alfredo Arruti - Macahuitl (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 08:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765FC0F27364328E43E42F5733AC6DBE521293C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565592   (223468) от 02.12.2019
+
+VA - Песни о ФК "Динамо" (Киев) (1986-2017) [MP3|112-320 kbps] <Rock, Pop, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Гимн ФК ДИНАМО (Киев) (04:06)
+02. 5 угол - Динамо Киев (03:37)
+03. DJ Y.TeR feat Tarada - Динамо Киев 2010 (03:56)
+04. EsKeL Mc - Наше Динамо (02:34)(   Читать дальше...   )Жанр: Rock, Pop, RapПродолжительность: 01:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9825BD57672D68222DDD300BE4808215BE5B3929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269133   (223454) от 13.12.2018
+
+VA - Dance Empire Vol.13 (2018) [MP3|320 Kbps] <Dance, Club, Progressive, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Hills - Break (Radio Mix)
+02. Nick Le Funk - Potato (Radio Edit)
+03. Max Roven - Gate (Radio Edit)
+04. Alpha - X - Set This Place On Fire (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Progressive, HouseПродолжительность: 02:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32101C707874FDE73922C2C301DD87C03FCCFA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269093   (223310) от 13.12.2018
+
+VA - Dissolution: Deep Space Electronic (2018) [MP3|320 Kbps] <Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trans Atlantic Crush - In the Name of Love
+02. Cajama - Exemption
+03. Claude Monnet - Iguana
+04. Common Information Model - Phop(   Читать дальше...   )Жанр: SyntheticПродолжительность: 04:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE98B9BE9C1617958534EF58BE1D398468172248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269162   (223304) от 13.12.2018
+
+VA - Interlude Music For Comfort (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223304.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ganga - Carry You Home
+002. David Arkenstone - Garden Of Eve
+003. AeTopus - This Is Our Home
+004. Kymaera - Ain't No Sunshine(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D573F678B9A20B7547636D8F1F61C0C04259BB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269036   (223295) от 13.12.2018
 
 VA - Let There Be Dance Music (2018) [MP3|320 Kbps] <Pop, Dance, House>
@@ -542,209 +745,6 @@ VA - не Громкие новинки недели 45 (2019) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1574FD61C90792F6D0475E8BB6B44AD22D9421EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585304   (222104) от 21.10.2022
-
-VA - В машине с музыкой Vol.312 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Loop - 80's On My Brain (03:46) 2022
-02. Gromee Feat. & Wac Toja & Sara Chmiel - Sztuka Latania (02:25) 2022
-03. Sevenrose - Туда, Где Ты (04:08) 2022
-04. Ali Gatie - Mmm (R3hab Remix) (02:36) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FF676C7630282576928548AEE38FCC5DDA30C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343145   (221903) от 30.11.2021
-
-VA - Понемногу отовсюду by Yuridar #T (1957-2021) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221903.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taj Mahal - Dust My Broom
-002. Taj Mahal - Oh Mama Don't You Know
-003. Taj Mahal - The Celebrated Walkin' Blues
-004. Taj Mahal feat... - Dolly's Arrival(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 11:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0114858B82EA83BF74EF3446A60CE9C161766111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585366   (221892) от 21.10.2022
-
-VA - Дискотека 2022 Dance Club Vol. 213 (2022) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INNA feat. Melon & Dance Fruits Music - Hello Hello 2:43
-02. Butch U - Night Drive 3:21
-03. Loi - Gold 2:50
-04. Armin Van Buuren feat. Husky - Shot At Love 3:23(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DB92769EC174362D6DC0567536534BCE24CECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342450   (221723) от 03.12.2019
-
-VA - Hard Dance Electro Extra Mixes (2019) [MP3|320 Kbps] <Hardstyle, Hard Edm>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221723.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robbie Teeze - Only Imaginary (Original Mix)
-002. Psyko Punkz - The Apex (Radio Version)
-003. Heraw - Take It Back (Original Mix)
-004. Badlxck - Bad Lxck (Original Mix)(   Читать дальше...   )Жанр: Hardstyle, Hard EdmПродолжительность: 09:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E19E4E5662A30639CF73450A0B37E22545227B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342417   (221712) от 03.12.2019
-
-VA - Новинки с разных популярных MP3 сайтов Ver.90 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-1.Andrea Belli & Julian Moss feat. Elle - One More Time (2:51)
-2.Arash - Tiki Tiki Kardi (Robby Mond & Kelme Remix) (3:04)
-3.Audioboy - All Of Me (Radio Edit) (3:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8E52B7C3FD637AC6A0180DFBC0BEF0DC79668C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269081   (221497) от 14.12.2018
-
-VA - Exclusive Offer Christmas Approach (2018) [MP3|320 Kbps] <Big Room, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Bunny Ft. Drake - MIA (Dj Rukus 85-97 Transition) (QuickHitter) (Clean)
-02. Shawn Mendes - Lost In Japan (PeteDown NuDisco Mix) (Clean)
-03. Bassjackers and Ralvero - Get Down (CloudNine Short Edit) (Clean)
-04. Bassjackers - Let It Bang (CloudNine Short Edit) (Clean)(   Читать дальше...   )Жанр: Big Room, Dance, ElectroПродолжительность: 05:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40969D8E6B2BF0A3AA4E0EAC2E0EBDB7857A9252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269266   (221490) от 14.12.2018
-
-VA - Happiness In The Air (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chung Ha - Bb
-002. Patryk Kumor - Skok Na Bank
-003. Ptakova - Czar
-004. Alice On The Roof - Malade(   Читать дальше...   )Жанр: PopПродолжительность: 08:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1269C1CAB957C0C5A712367FC74F8DEBCA3A84AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

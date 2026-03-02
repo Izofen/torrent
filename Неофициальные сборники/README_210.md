@@ -1,3 +1,206 @@
+###  Публикация: 1214955   (761696) от 24.03.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 23.03.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+02. Jax Jones - Breathe (Ina Wroldsen)
+03. Zayn Malik feat. Sia - Dusk Till Dawn
+04. G-Eazy & Halsey - Him & I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A967F53DCA6EE3727E6B7C2BA71631637B5833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214920   (761683) от 24.03.2018
+
+VA - 100 Moombahton Real Steps Peace (2018) [MP3|320 Kbps] <Future Bass, Trap, Reggae Fusion, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Rose - Infiel (Dirty) 4:05
+02. El Chevo - Flow De Africa (Djdx) (Intro Dirty) 2:05
+03. El Boy C, Kelmitt Y Menor Menor Ft Lary Over - Por Ahi (Dirty) 4:07
+04. Anitta Y J Balvin - Downtown (Quick Hit Clean) 2:07(   Читать дальше...   )Жанр: Future Bass, Trap, Reggae Fusion, OtherПродолжительность: 05:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F61A6203C98B227AA45E029E0B31445B4F83C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214944   (761663) от 24.03.2018
+
+VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761663.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne Macklemore Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625CCA83D077BBAD8A838262D6E70422257856BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215091   (761550) от 24.03.2018
+
+VA - Sky Радио: SKY Парад Top 20/Март (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kendrick Lamar feat. SZA  -  All The Stars  3:55
+02.  MARUV & BOOSIN  -  Drunk Groove  3:47
+03.  Marshmello & Anne-Marie  -  Friends  3:23
+04.  Sean Paul & David Guetta  -  Mad Love  3:20(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B049205458398665C1F694886FAD56BF50D9C150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214971   (761531) от 24.03.2018
+
+VA - Europa Plus: ЕвроХит Топ 40 / 23.03 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CamelPhat & Elderbrook  -  Cola (Robin Schulz Remix)  5:15
+02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
+03.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
+04.  G-Eazy & Halsey  -  Him & I  4:29(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231B40C47E68875F4422EDD17FE9EA2416160890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214984   (761456) от 24.03.2018
+
+VA - DFM Top 30: D-Chart / Март (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Steve Aoki feat. Daddy Yankee, Play-N-Skillz & Elvis Crespo  -  Azukita  3:46
+02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
+03.  Sherrie Sherrie & The Ware feat. Nina  -  Nana Song  3:14
+04.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer  5:05(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3086E972DD33EBD2E39DCF2DAD59898BB33D01F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214926   (761452) от 24.03.2018
+
+VA - De Top 100 Aller Tijden 1985 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761452.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Usa For Africa - We Are The World (6:23)
+002. Bruce Springsteen - Dancing In The Dark (4:05)
+003. Commodores - Nightshift (4:19)
+004. Madonna - Into The Groove (4:45)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6A365A47972B5B3462FE4A033A9FCBDDDA23A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017368   (761231) от 17.05.2016
 
 VA - Late Night Lounge: Sexy Spring and Buddha Cafe Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -542,209 +745,6 @@ VA - Beatport Electro House: Sound Pack #391 (2021) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:640AE275E15B154E450F21EE2006C9A2B9297C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522171   (760358) от 06.01.2022
-
-VA - The Techno Streaming Sound (Vol.1) (2021) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непредсказуемый музыкальный стиль! Все композиции сборника электронной музыки "The Techno Streaming Sound" характеризуются синтезом коротких и длительных периодов, неожиданным замедлением и ускорением ритма. Еще занятнее посмотреть танцы исполняемые под музыку этого стиля, это ритм и энергетика переданная языком движений. Такие выступления запоминаются (   Читать дальше...   )001. Donato Dozzy - Wooden Dolls Don't Cry
-002. Gonzalo Md - Valkyr Uv
-003. Astronomical Telegram - Ahora Ii
-004. Psyko Punkz - Embody Love(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 10:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADC9F4DE4399EF00B7997CA2407A36C9FA4F2AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522077   (760354) от 06.01.2022
-
-Ysa Ferrer - Compilation (2019) [MP3|320 Kbps] <Pop, Pop-rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tant qu'on s'aime
-02. Les Yeux Dans Les Yeux
-03. Imaginaire Pur
-04. Made In Japan(   Читать дальше...   )Жанр: Pop, Pop-rockПродолжительность: 01:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049B85E12781E9D750B7D8D8680BB0F52499D30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522157   (760352) от 06.01.2022
-
-VA - Beatport Tech House: Sound Pack #390 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такая музыка не "пишется на коленке", чтобы получить приемлемый результат авторам этого направления электроники приходится приложить усилия своего творческого потенциала. Чего только стоит запись вокала, сведение и живой аккомпанемент, без кропотливой работы в студии не обойтись, что однозначно вызывает уважение001. Lilly Noise - The Bike Day
-002. Makloud - King
-003. Murley Rune - Dub Substation
-004. Lappo DJ - Afterhall(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 07:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784D4A13EF909A35608652FBE7FF6021D79E309E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522167   (760348) от 06.01.2022
-
-VA - NYE Trance December Set (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Транс - это мелодии чувств, от прослушивания которых испытываешь удовольствие. Немногим удаётся понять и осознать данный стиль музыки, но однозначно повезло тем, кто способен проникнуться чудесными мелодиями и звуками, которые приносит с собой транс музыка.001. Alvaro Santis - Silent Punch
-002. Dan Thompson - Atlas (Radio Edit)
-003. Paul Todd - La Graciosa
-004. Corrado Baggieri - Exciderunt(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9ED2689FE02D4ADF8F0D035650D90DAE8FFDB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522250   (760343) от 06.01.2022
-
-Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Gipsy Wanderer
-02. It's Goodbye
-03. No Tears Anymore
-04. Lonely is the Night(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D00C07F53EF89C5E4B3E57CE74681ABD0999C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522163   (760245) от 06.01.2022
-
-VA - DC Radio: EDM Artist Of The Month (2021) [MP3|320 Kbps] <EDM, Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прожигаем новогодние праздники по полной программе под звуки лучшей и свежей танцевальной музыки. Делаем звук громче, веселимся до утра, наслаждаемся позитивной музыкой, дарим друг другу улыбки и летим на встречу своей мечте!001. The Pet Detectives - Molehill
-002. Perfect Pitch - Outa Space!
-003. Schizoofr3nik - Find Me
-004. David Enguix - Espace Project(   Читать дальше...   )Жанр: EDM, Dance, Club HouseПродолжительность: 26:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261D202BF478B31ADFD3BD30654CC1F04D075707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522160   (760241) от 06.01.2022
-
-VA - National Pop Dance Music (Vol.30) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие помимо музыки родной нации предпочитают слушать композиции и других народов, в том числе и зарубежных. И если Вы именно тот меломан, которому нравятся зарубежные песни, предлагаем Вам обширный сборник популярно - танцевального жанра представляющий песни со всего мира.001. Gebrueder Doof - Tanzen
-002. Kevin Johnson - You Light My Fire
-003. Niemann - Im Osten
-004. Jagermeister DJ Alex - Auffe Aufn Berg(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 09:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79467F78D16A884D28E079E63E1C285C0BE893C
 ```
 
 https://mybot314.ru/tekegram_catalog/

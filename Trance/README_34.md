@@ -1,3 +1,177 @@
+###  Публикация: 1074618   (338427) от 19.11.2016
+
+VA - Armin van Buuren Presents: Armind Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren presents: Rising Star feat. Betsie Larkin - Again (Armin van Buuren Remix) (3:11)
+02. Super8 & Tab - Mega (3:04)
+03. MaRLo feat. Chloe - You And Me (3:02)
+04. Gaia - Inyathi (2:56)(   Читать дальше...   )Производство: ArmindЖанр: Trance, Vocal TranceПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44BC14D40EF97FDB2161AA707C4F784EB217536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330716   (338351) от 11.10.2019
+
+Airwave - Believe Remastered (Deluxe Edition) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Want To Believe (Remastered Dolphin Mix)
+02.Musings Of A Lifetime (Remastered Album Mix)
+03.Save Me (Remastered Album Mix)
+04.Another Dimension (Remastered Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B30BF67D245D6BC8115F341365157E59F108FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258570   (336649) от 30.10.2018
+
+VA - Trance Autumn Essentials (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Quelle - Badoor (Extended Mix)
+02. Lessov - Kami (Original Mix)
+03. Johan Vilborg - Swetro (Original Mix)
+04. Mango & Astroleaf - We Tried (Talamanca Dub Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760493E73FCB7C371C173A68EFF0A48E9B298DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258439   (336642) от 30.10.2018
+
+VA - Equilibrium In The Cosmos (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aeroplanet - We Will Always Remember Them (Original Mix)
+02.Alexander K - Shining Moment (Original Mix)
+03.Alexandr Morugin - Lift (Original Mix)
+04.Allan Dark - Escape From You (Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262A87CAAFE55F0C84D59DA455FF3BEBA764C13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579415   (336496) от 27.09.2022
+
+VA - Redux Selection Vol.10 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KBK & Agata Pasternak - In My Dreams (Extended Mix)
+02. Mark van Rijswijk - Nothing (Extended Mix)
+03. 2passion - Stranger @ Night (Extended Mix)
+04. Claas Inc. - Hamwoofer (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013D66363F7CFBA77E2AF4BD6AA4D822CECDF005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579505   (336495) от 27.09.2022
+
+VA - Silent Shore Trance - Autumn (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluespark - Magic Solstice (Extended Mix)
+02. Redchild - Alertness (Extended Mix)
+03. Db Mokk - Millennium (Extended Mix)
+04. District 5 - Heartless (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB085EF2C008B6087626A6036226B73FB2F6DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579508   (336483) от 27.09.2022
 
 VA - Uplifting Trance Top 25 (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -568,180 +742,6 @@ VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E5C17E2C7985B559FCFFA725566AAF588E549C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181511   (323836) от 07.11.2017
-
-VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Physical Phase - Magma (Original Mix)
-02 Mike Spinner - Momentum (Original Mix)
-03 Casey Rasch - Through London (Original Mix)
-04 Manuel Le Saux & Astuni - Team Deathmatch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7D90BF44D732E10F2D722149ABD1F24ECF9B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259098   (323409) от 02.11.2018
-
-VA - Ronski Speed - Evolve (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronski Speed - Room 346 (Evolve Album Version)
-02. Ronski Speed & Ciaran Mcauley - Corellia (Evolve Album Version)
-03. Ronski Speed & Alan Morris - Night Time (Evolve Album Version)
-04. Ronski Speed - Sea U (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C626CB87B2B03D538548F71F09B43BA382D3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181597   (322021) от 08.11.2017
-
-VA - EPIC Ibiza - Trance Anthems Vol.3 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Carlos De La Garza - Atardecer (Original Mix)  7:54
-02.  Derek The Bandit - Joburg Sunrise (Original Mix)  8:00
-03.  Matthias Springer - The Art Of Dissociation (Original Mix)  7:45
-04.  Hanney Mackoll - Rave (Original Mix)  3:06(   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DCE5992D79D5E23FC479FA26F0431F23FC15CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331875   (320316) от 17.10.2019
-
-VA - Beautiful Vocal Trance Chapter 4 (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Cathy Burton & AxelPolo - Loving Overflow (Radio Edit)
-02. Costa & Sarah Lynn - The Water's Edge (Original Mix)
-03. 4 Strings & Maria Nayler - Remember You As Mine (Original Mix)
-04. Tenishia & Ana Criado - Ever True (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295B538053DB45A2FDA415C450ABF5501DB1282F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182091   (319440) от 09.11.2017
-
-VA - Trance Favorites Episode #009 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychoman - Unknown World (Original Mix)
-02. Chasing Butterflies - Digital Shade (Original Mix)
-03. Aynix - Planetarium (Original Mix)
-04. Mirrors - Echoes (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C1745088E25C8DE1EDCF9D4B9FBB1ED5DA9861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182230   (319327) от 09.11.2017
-
-VA - Vocal Trance Classics Top 40 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Ana Diaz - Nothing Without Me (Beat Service Radio Edit)
-02. Cosmic Gate - Calm Down (Omnia Radio Edit)
-03. OceanLab - Miracle (Above & Beyond Club Edit)
-04. Sarah Lynn - At The End of Every Journey (Jorn van Deynhoven Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25550AA9FB090F3540D34F24AB72919D51BD5334
 ```
 
 https://mybot314.ru/tekegram_catalog/

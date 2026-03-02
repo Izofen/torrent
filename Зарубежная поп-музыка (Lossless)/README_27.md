@@ -1,3 +1,119 @@
+###  Публикация: 1209290   (779452) от 25.02.2018
+
+ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando [04:14]
+02. I Let the Music Speak [05:21]
+03. Chiquitita [05:27]
+04. Eagle [05:52](   Читать дальше...   )Жанр: PopПродолжительность: 05:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997A745DEDF1D7900EB51FE1DA2B30B79CC2EF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209322   (779403) от 26.02.2018
+
+Shenandoah Davis - Souvenirs (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Wings 03:18
+2. Supernatural Powers 04:02
+3. Seventeen 03:23
+4. Gold Coast 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485E74810AEF16F9A8CF4316BBDD87A4F02FAF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209490   (779227) от 27.02.2018
+
+VA - Acoustic 70s (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Maggie May
+02. Paul Simon - Me and Julio Down By The Schoolyard
+03. Cat Stevens – Wild World
+04. Bob Dylan - Knockin’ on Heaven’s Door(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AF1B026624A744E83CCAE2579E6FFF00A0B9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210060   (778992) от 01.03.2018
+
+Patricia Kaas - Sexe Fort (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Chanson, Smooth Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ou sont les hommes (3:49)
+ 02. L'abbe Caillou (4:39)
+ 03. Je ne veux plus te pardonner (3:25)
+ 04. La nuit est mauve (4:19)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, Smooth JazzПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDD62E5CF407F828498CF557398ADE3D0B0B176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210796   (778563) от 04.03.2018
 
 Анi Лорак - Анi Лорак (2004) [FLAC|Lossless|image + .cue]<Pop>
@@ -629,122 +745,6 @@ VA - 538 Hitzone 69 (2014) 2CD [FLAC|Lossless]<Top 40, Pop Compilation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F773F1A6470441A585CDEB5EFBC96D67DBFACEFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392131   (769845) от 24.06.2020
-
-Carly Rae Jepsen - Dedicated Side B (2020) Japan Exclusive [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Love Isn't Crazy (03:53)
-02. Window (03:18)
-03. Felt This Way (03:37)
-04. Stay Away (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694991712B38887581B2DC18E3B7A0070C7FAF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017050   (769510) от 15.05.2016
-
-Бумбокс - Люди (2016) EP [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люди
-02. Мала
-03. Выход
-04. Рок-н-рол(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAF3DE2DCBFB3D3B3B4C6265F3990E6CC20A500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016659   (769500) от 15.05.2016
-
-Bee Gees - In The Mood Of Love (2015) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769500.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Love Somebody (3:01)
-2. Massachusetts (2:24)
-3. Words (3:16)
-4. I've Gotta Get A Message To You (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock, DiscoПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690C646FB4EC07CD2049F96CE54CDCF8A86BC31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392420   (769232) от 26.06.2020
-
-VA - Wedding Party 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool & The Gang - Celebration (Album Version)
-02. Technotronic, FELLY - Pump Up The Jam (Edit)
-03. Black Eyed Peas - I Gotta Feeling (Album Version)
-04. Bryan Adams - Summer Of '69(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E8423E1BBFF3F77A88E3072D3C0DF0A714745E
 ```
 
 https://mybot314.ru/tekegram_catalog/

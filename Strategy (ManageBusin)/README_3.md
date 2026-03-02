@@ -1,3 +1,29 @@
+###  Публикация: 1200149   (712489) от 02.03.2019
+
+Offworld Trading Company (2016) [Ru/Multi] (1.21.26998/dlc) License RELOADED
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий дизайнер игры Civilization IV создал новую стратегию Offworld TRADING COMPANY. На этот раз экономическую. Марс колонизирован, и вам предлагают протянуть руку помощи новой колонии и обеспечить ей процветание.Тип издания: LicenseРазработчик: Mohawk GamesЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB9FA5061AA3128184847C49652CFADCB1D2E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233969   (712396) от 02.03.2019
 
 The Sims 4 (2014) [Ru/Multi] (1.50.67.1020/dlc) Unofficial R.G. Origins [Deluxe Edition]
@@ -643,32 +669,6 @@ Lethis - Path of Progress – двухмерный «олдскульный» г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CBE02C935BBEC4715836500CDF9E3D656BAE342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036162   (622147) от 19.07.2016
-
-SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая игра из серии градостроительных симуляторов. Серия SimCity стала хитом продаж сразу после выхода первой игры в 1989, но прошло десять лет, прежде чем игра SimCity 3000 довела ее главную идею до совершенства, объединив сложность с доступностью, и добавила игре неповторимое обаяние.Тип издания: LicenseРазработчик: MaxisЖанр: Strategy (God Sim, Manage, Busin., Real-time), IsometricЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEE95ADD607C0E4016037B39C847DC213FDD151
 ```
 
 https://mybot314.ru/tekegram_catalog/

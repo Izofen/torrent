@@ -1,22 +1,74 @@
-###  Публикация: 1446521   (1032753) от 09.02.2021
+###  Публикация: 1605437   (1033068) от 15.03.2023
 
-Hype 4 Pro v4.1.5 [Multi]
+Одни из нас / The Last of Us (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) NewComers, Jaskier, Dubbing-Pro, HDRezka, Lostfilm
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала развивается спустя двадцать лет после уничтожения современной цивилизации из-за пандемии. Контрабандист Джоэл нанимается вывезти Элли — 14-летнюю девочку — из карантинной зоны. То, что начинается как непыльная работёнка, вскоре превращается в жестокое и душераздирающее путешествие, в течение которого Джоэлу и Элли придется научиться доверять друг (   Читать дальше...   )Производство: США, Канада / Naughty Dog, Sony Pictures Television, The Mighty Mint, Word GamesЖанр: ужасы, фантастика, боевик, драмаРежиссер: Джереми Уэбб, Али Аббаси, Нил Дракманн, Питер ХорАктеры: Педро Паскаль, Белла Рэмси, Гэбриел Луна, Ник Офферман, Мерл Дэндридж, Джеффри Пирс, Анна Торв, Мюррэй Бартлетт, Марли Грэйс Бекер, Брендан ФлетчерПеревод: Многоголосый профессиональный (NewComers, Jaskier, Dubbing-Pro, HDRezka Studio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (SDH)Продолжительность: ~01:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ACAA3C4F569E636F03E4318E4B01EFC1A2155A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446173   (1033067) от 08.02.2021
+
+Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. am i the only one (feat. Seven) (02:36)Жанр: AmbientПродолжительность: 00:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446309   (1033066) от 08.02.2021
+
+Notability 4.4.2 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032753.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2021Разработчик: Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac. Notability – мощное средство для ведения заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA15D73A5FF3DE507D87E2C6B0F7769D65092941
+magnet:?xt=urn:btih:B797A56EE323FB12846626B0720746E60D0241EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,83 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446486   (1032752) от 09.02.2021
+###  Публикация: 1446074   (1033065) от 08.02.2021
 
-Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Crossover Prog. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open My Eyes (03:27)
- 02. International Feel (03:07)
- 03. Can We Still Be Friends (04:39)
- 04. Collide O Scope (04:59)(   Читать дальше...   )Жанр: Crossover Prog. RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC73B05DE939A71F9919265BC324353EECDA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446212   (1032751) от 09.02.2021
-
-Сто к одному (07.02.2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B07B7937E9A2A59E39A5022DB1E95A1291FB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446581   (1032750) от 09.02.2021
-
-Fuerte & Daveepa - EDM Rewind Mashup Mix 2020 (2021-01-28) [MP3|320 Kbps] <Electro House, Big Room, Bass House>
+Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032750.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fuerte played:
-01. MEDUZA ft. Dermot Kennedy - Paradise (Instrumental) w/Topic ft. A7S - Breaking Me (Acappella) w/Robin Schulz ft. Alida - In Your Eyes (Acappella)
-02. David Guetta & MORTEN - Nothing w/BROHUG - Shatter
-03. Sixth Sense - Cyberpunk(   Читать дальше...   )Жанр: Electro House, Big Room, Bass HouseПродолжительность: 00:28:22
+01. Footprints (03:12)Жанр: AmbientПродолжительность: 00:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:583C042BB158F11D9F34F2BC44EBB2C1721129CA
+magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,83 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446511   (1032749) от 09.02.2021
+###  Публикация: 1446202   (1033064) от 08.02.2021
 
-Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open My Eyes (03:27)
-02. International Feel (03:07)
-03. Can We Still Be Friends (04:39)
-04. Collide O Scope (04:59)(   Читать дальше...   )Жанр: Crossover Prog. RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6041EF2875EE34E4A18930BD7CB8B6E93955D58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446605   (1032748) от 09.02.2021
-
-Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (5:48)
-02. Amsterdam (2:51)
-03. RS6 (3:19)
-04. Donker & Regen (2:51)(   Читать дальше...   )Производство: Hella CashЖанр: Hip-Hop, Abstract Hip-HopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E148F6C0E24BECA56A4CFD5CD7FD28EE8599B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446539   (1032747) от 09.02.2021
-
-TinkerTool System 7 v7.12 [En]
+Timeless: Alarm Clock 1.92 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032747.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2021Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+Timeless - самый лучший, самый великолепный будильник и приложение для напоминаний. Благодаря красивому и простому в использовании интерфейсу, с Timeless Вы получите удовольствие в использовании с утра до ночи.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51228BD819B5D5AF1995F82E1D18EF0AACB81716
+magnet:?xt=urn:btih:CCF4A6470C42EB3D97C2A8ECF5D8421A478DD735
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +128,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446501   (1032746) от 09.02.2021
+###  Публикация: 1446362   (1033063) от 08.02.2021
 
-Олег Баянов - Воркута - Amsterdam (2009) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
+iToolab FixGo 1.3.3 [En]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032746.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Авторитет
-02. Амстердам
-03. Воркута
-04. Воркута (ремикс)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:49
+При помощи приложения iToolab FixGo устраняйте проблемы с iPhone дома как профессионал.
+• Предотвратите потерю данных на вашем iPhone или iPad, когда ваше устройство не работает должным образом
+• Устраните 200+ проблем системы iOS самостоятельно, например, iPhone застрял на логотипе Apple, пустой экран или зацикливание режима восстановления
+• Легко устраняйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C92D044249C0FAB718D6A529F71C4346B7AFA42D
+magnet:?xt=urn:btih:E4C4B145AB07B59A8304373CB0693E1DAD3A48FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +157,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446527   (1032745) от 09.02.2021
+###  Публикация: 1446233   (1033062) от 08.02.2021
 
-VA - Espectrum II, EP2 (2021) AvantRoots [FLAC|Lossless|tracks|Vinyl] <Dub Techno>
+Kenny James Miller Band - Tear in My Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinkham Jelly (4:11)
+02. Meet Your Maker (5:25)
+03. Tear in My Eye (4:40)
+04. Cup of Joe (5:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDEC55CE1CC9AA2B94AB0914ADFCA15E8724A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446281   (1033061) от 08.02.2021
+
+TunePat Amazon Video Downloader 1.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите скачать видео с Amazon на Mac для автономного воспроизведения? Просто используйте TunePat Amazon Video Downloader для Mac. Это мощный инструмент для загрузки видео с ресурса Amazon Prime Video, который может загружать любые фильмы и телешоу с Prime Video на ваши компьютеры Mac в формате MP4. С помощью этого интеллектуального инструмента вы можете легко загрузить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2021Разработчик: TunePat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E57F69AAF44D81AAF6F0E10524D4F46A66FEA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446174   (1033060) от 08.02.2021
+
+Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032745.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pulshar - Accept Fate (05:47)
- 02. Biodub - Unterfluss (08:04)
- 03. Heavenchord - Spacechord (07:32)
- 04. Julian Perez - Wolframio (06:27)Жанр: Dub TechnoПродолжительность: 00:27:50
+01. Once Moved Too Slow (feat. Yosie) (03:34)Жанр: AmbientПродолжительность: 00:03:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0484B885476A552615D6610B503B381613556543
+magnet:?xt=urn:btih:DD1EDCCC289E9C41F7C87B353D2D8D77BF312B35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +238,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446611   (1032744) от 09.02.2021
+###  Публикация: 1446179   (1033059) от 08.02.2021
 
-Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop>
+Tim Schaufert - Under You (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032744.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LTBA Intro (0:30)
-02. Riot (2:50)
-03. 1994 (2:23)
-04. GPT (4:35)(   Читать дальше...   )Производство: Beatrock MusicЖанр: Hip-Hop, Underground Hip-HopПродолжительность: 00:21:56
+01. Under You (03:17)Жанр: AmbientПродолжительность: 00:03:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:488E464D0B054C6C636E8E6BFE570737FC3E0067
+magnet:?xt=urn:btih:EBCE530A57B4A51DDB21986734C4B7C27B69579F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,80 +264,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446584   (1032743) от 09.02.2021
+###  Публикация: 1446353   (1033058) от 08.02.2021
 
-Клайв Гриффорд | Космос за 30 секунд (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032743.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказано о том, как образовалась вселенная и какое будущее ее может ожидать. Что такое звезды, и какие бывают типы звезд, что представляет собой солнце, и какие планеты входят в солнечную систему, какие бывают галактики, и как люди получают новые сведения о космосе.Жанр: Познавательная литература для детейПеревод: О. ПерфильевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB70CCF552A7A86E0E55952FBE93E084EA859560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446607   (1032742) от 09.02.2021
-
-Людмила Доманская | Каждый малыш хочет знать. Большие и маленькие машины (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш ребёнок живёт в особом мире, где есть большие — любящие его взрослые — и маленькие — такие же малыши, как и он сам. Если машинка стала одной из его любимых игрушек, эта книга окажется для крохи прекрасным подарком. На её страницах представлены машины всех видов и размеров. Пора познакомиться с ними поближе, узнать, где они работают, как помогают людям, и, самое (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E8001482BEFB8B6F602D8C8EB3CB705A932D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446429   (1032741) от 09.02.2021
-
-VA - DNBB Recap 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Gunmen - The Sound / Messed Up (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032741.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. R-Vee - Let It Go (05:28)
-02. Simplification - Sunset (04:29)
-03. Jungie, Mystific - Dare (06:48)
-04. Mystific - The Sun (System & Wise Remix) (04:58)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:46
+01. Messed Up (04:32)
+02. The Sound (04:17)Жанр: Drum & Bass, JungleПродолжительность: 00:08:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6BAFFB0D7B1AFD5D481CFED4A8CACB54314950D
+magnet:?xt=urn:btih:F4D717B4E108BA29D1030B94802C2B544DC15CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,135 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446490   (1032740) от 09.02.2021
+###  Публикация: 1446385   (1033057) от 08.02.2021
 
-iA Writer 5.6.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2021Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BD1CA23E7496CB898113885B28811B0BEB2F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446572   (1032739) от 09.02.2021
-
-Екатерина Рождественская | Балкон на Кутузовском (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адрес – это маленькая жизнь. Ограниченная не только географией и временем, но и любимыми вещами, видом из окна во двор, милыми домашними запахами и звуками, присущими только этому месту, но главное, родными, этот дом наполняющими.
-Перед вами новый роман про мой следующий адрес – Кутузовский, 17 и про памятное для многих время – шестидесятые годы. Он про детство, (   Читать дальше...   )Жанр: Современная отечественная прозаПродолжительность: 08:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DCD28FCAA1D280B3C49161D9F2ED7FE26763B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446558   (1032738) от 09.02.2021
-
-Роско Арбакл. Семейная жизнь Мейбл и Фатти / Mabel and Fatty's Married Life (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбежавшая обезьяна забралась в дом Мейбл и Фатти. А Мейбл кажется, что их дом хотят ограбить.Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Мэйбл Норманд, Роско Арбакл, Дэн Альбертс, Джо Бордо, Джимми Брайант, Мэй Буш, Глен Кэвендер, Элис Девенпорт, Фрэнк Хэйес, Элис ХауэллПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F5B810E3E3D6D0448F1FEC13DFF2E415B5FBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446613   (1032737) от 09.02.2021
-
-Карин Фоссум | Инспектор Конрад Сейер (Книга 2). Не оглядывайся! (2019) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пропала шестилетняя девочка. Какой-то подозрительный тип увез ее в автомобиле, и читатель замер в ожидании ужасного преступления.
-Но события принимают неожиданный оборот: у маленького лесного озера полиция находит тело другой — пятнадцатилетней девочки.
-В небольшом городке, где все друг друга знают, в нормальных, на первый взгляд, семьях скрываются страшные тайны. (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E95A4BA5E7DE68FA1A2C58AF3E39C4CA7E23C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446623   (1032736) от 09.02.2021
-
-Nas - King's Disease (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+Mariana Bo - Live @ Campus, Sunburn Festival, India (2021-01-18) [MP3|320 Kbps] <Hardstyle, Big Room>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032736.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. King's Disease (1:51)
-02. Blue Benz (2:21)
-03. Car #85 (feat. Charlie Wilson) (3:28)
-04. Ultra Black (feat. Hit-Boy) (3:18)(   Читать дальше...   )Производство: Mass Appeal – MSAP0094CDЖанр: Hip-HopПродолжительность: 00:38:13
+01. Mariana Bo & 22Bullets - Queen Of The Desert
+02. Yves V & Mariana Bo - Durga
+03. Protocol 143 - Arise
+04. Mariana Bo - Mantra(   Читать дальше...   )Жанр: Hardstyle, Big RoomПродолжительность: 00:59:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5DA37896B51444D7B632270D2644ECC81972799
+magnet:?xt=urn:btih:6439E8B653DE0832CE1C6B8296AB01BF7242A174
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,28 +320,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446610   (1032735) от 09.02.2021
+###  Публикация: 1446304   (1033056) от 08.02.2021
 
-J.J. Mack - You Can Make It Dancin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Battery Health 3 v1.0.26 [En]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032735.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Street Dancin' (5:02)
-02. Hang On Sloopy (5:34)
-03. You Can Make It Dancin' (5:01)
-04. Na, Na, Hey, Hey, Kiss Him Goodbye (5:01)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:20:37
+Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
+Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39AADE04907E3F75F10023F3BD30039467B72996
+magnet:?xt=urn:btih:35F70D177F18299EF9E49C831C725B36F944DFC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,25 +347,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446573   (1032734) от 09.02.2021
+###  Публикация: 1446410   (1033055) от 08.02.2021
 
-Национальный лес Бриджер-Титон / Bridger-Teton National Forest (2018) WEBRip [H.264/2160p]
+Movist 2.5.4 [Multi/Ru]
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032734.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Исследуйте высокие горные вершины, скалистую и красивую пустыню, кристально чистые альпийские озёра. Изобилие дикой природы и безграничные возможности для отдыха - это Бриджер-Тетон.Производство: СШАЖанр: Документальный, видовойРежиссер: Братья ПаттисПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:24
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудио выход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2021Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85F9D7110C2D1DA5D074541772E3153BD38CF5E7
+magnet:?xt=urn:btih:82DA2D0E538DE7390EAF0FDE64348B97B96E3662
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,27 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446597   (1032733) от 09.02.2021
+###  Публикация: 1446341   (1033054) от 08.02.2021
 
-Андрей Мерников, Ирина Попова | 200 любимых страниц для почемучек. Что? Когда? Зачем? Почему? (2017) [PDF]
+Энид Блайтон | Тайна затерянной горы (2020) [EPUB]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032733.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В твоей голове то и дело возникают миллионы вопросов и тебе, конечно же,хочется знать ответ на каждый из них? Прочитай эту книгу — и ты восполнишь все пробелы в своих знаниях, изучив такие темы, как Вселенная и космос, человек и его здоровье, животные, наука и техника, окружающий мир!
-
-Ты будешь в курсе абсолютно всего: что такое йодль, когда появился список чудес (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Очередное приключение привело пятёрку верных друзей – Джека, Майка, Пегги, Нору и Поля – в далёкую Африку. Здесь всё было ужасно интересно, особенно захватывали рассказы местных жителей о таинственной горе, в недрах которой обитало племя, поклоняющееся солнцу. Да это просто фантастика! Но ребята поняли, что это жестокая реальность, когда попали к ним в плен…Жанр: Повести и рассказы, Приключения для детейПеревод: Евгения ГончароваФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E2F569CDD0EB65809BD08AE89964B336F494E5E
+magnet:?xt=urn:btih:F669C8340AEAB70D34959637767933EA5093BBDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,25 +400,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446488   (1032732) от 09.02.2021
+###  Публикация: 1446176   (1033053) от 08.02.2021
 
-KPlayer 2.1.0 [En]
+Tim Schaufert - Over This (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032732.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-KPlayer - простой и надежный видеоплеер для Mac OS с поддержкой субтитров и аппаратного ускорения H.264/HEVC, для более гладкого воспроизведения видео в формате 1080p и 4K.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: BoHoon KimПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. Over This (feat. Yosie) (03:53)Жанр: AmbientПродолжительность: 00:03:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10F8A67127C3D45C1211BFFA9466F82A98EA0091
+magnet:?xt=urn:btih:EEE678DB06BA67395D30AF76D8C3F5D0A1F36F38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +426,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446548   (1032731) от 09.02.2021
+###  Публикация: 1446236   (1033052) от 08.02.2021
 
-W.E.T. - 5 Studio Albums (2009-2021) 6xCD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Kevin Galway - Canadiana Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling King Snake (4:10)
+02. Gallows Pole (4:56)
+03. House of the Rising Sun Blues (5:04)
+04. I Ain't Been That Good (4:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:102B3477E1B8F22EA8FCDE7BF25698045855034A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446083   (1033051) от 08.02.2021
+
+Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lass Mich Gehn
+02. Nackt Und Kalt
+03. Wer Wir Waren
+04. Du & Ich(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC569C7BDBE08E7A9D511541924124946FF7C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446330   (1033050) от 08.02.2021
+
+The Norseman Company - The Coming Of The Chord (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock & Roll>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032731.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2009 - W.E.T
-2013 - Rise Up
-2014 - 2014 - One Live-In Stockholm
-2018 - Earthrage(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:55:37
+1. Here Comes Rock and Roll [4:19]
+ 2. Master of the Dark [2:55]
+ 3. When the Hammer Falls [3:43]
+ 4. Since You`ve Been Gone [4:10](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Rock & RollПродолжительность: 00:40:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1644E5D737BBCC354A253499EC243B2A2D5EED4A
+magnet:?xt=urn:btih:8E1D2F2C555134B9BCED7F30818CDEED6DD8A4B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,83 +513,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446489   (1032730) от 09.02.2021
+###  Публикация: 1445883   (1033049) от 08.02.2021
 
-Advanced Installer 17.9 RePack (& Portable) by xetrin [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - приложение, с помощью которого, разработчики и системные администраторы смогут без труда создавать инсталляционные пакеты в формате MSI. Программа функционирует под управлением ОС Windows 7/8/8.1/10, а создаваемые с ее помощью пакеты могут использоваться для развертывания приложений на платформах Microsoft Windows XP/2003/2008/2012 Server/Vista/7/8/8.1/10.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304637435A3633C9AA4A9C228DFD99FE2FFEA7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937624   (1032729) от 09.02.2021
-
-Anthony Braxton - Five Compositions (1986)1993, Black Saint [APE|image+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Composition - No. 131 [07:10]
-02. Composition - No. 88 (+ 108C) [05:56]
-03. Composition - No. 124 (+ 108D + 96) [09:08]
-04. Composition - No. 122 (+ 108 + 96) [09:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADF1761A1BC61D206F7B557969231D0373E2EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446498   (1032728) от 09.02.2021
-
-Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
+VA - Dream Pop (2012) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032728.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Wanna Have Some Fun (5:03)
-02. Love House (4:36)
-03. Your House or My House (3:56)
-04. Next to Me (5:26)(   Читать дальше...   )Жанр: Synth-pop, Pop, DanceПродолжительность: 00:51:25
+01. Raphael Lake - Turn It Up (3:20)
+02. Jason Tarver, Lucy Underhill & Mark Williams - Just Drive (2:57)
+03. Lee Richardson, Richard Macklin & Tom Ford - Said and Done (3:23)
+04. Raphael Lake - Forever Young (3:28)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:43:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:676FA6530496E69D90E01B2C9ABA7675257C9F01
+magnet:?xt=urn:btih:94356F6157F59D771F6FEFE0B61A03F6FFD0D635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446376   (1033048) от 08.02.2021
+
+TurboMosaic Pro 3.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033048.jpg" />
+</div>
+
+
+###  Подробнее
+
+TurboMosaic — утилита, позволяющая легко и быстро строить превосходные фото мозаики из выбранных Вами изображений. Удивите друзей плакатом или постером, созданными своими руками из Ваших фотографийТип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7684AA0607FB35AE5ED2863BF9958BD8FA148943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446282   (1033047) от 08.02.2021
+
+Харлан Кобен | Майрон Болитар (Книга 4). Подкрутка (2019) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет назад известный гольфист Джек Колдрен проиграл Открытый чемпионат США – и теперь мечтает взять реванш за былое поражение. Но в разгар соревнований, когда победа уже близка, неожиданно похищают его сына. Полиция предполагает, что преступники рассчитывают не только получить выкуп, но и устроить публичный скандал. Однако известный спортивный агент и талантливый (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864C9D3AC876C29D56164BED0340F7B02B4798F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446278   (1033046) от 08.02.2021
+
+oneSafe 2.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаетесь помнить все эти имена пользователей и пароли к банковским счетам, электронным почтам и социальным сетям? Расслабьтесь. oneSafe позаботиться об этом.
+На самом деле, oneSafe не только надежно хранит все ваши пароли и другую конфиденциальную информацию, но и синхронизирует все данные между вашими Mac, iPhone и iPad, так что вы можете иметь их под рукой, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Lunabee Pte. Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F6D79EB5142E016AB983F3627914281077BBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445885   (1033045) от 08.02.2021
+
+VA - Dream Pop 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Pope, Giles Palmer & Lucy Underhill - All Comes True (3:51)
+02. Raphael Lake - Cruise (3:05)
+03. Rupert Pope, John Robertson & Eller - Foolish Path (3:52)
+04. Extreme Music - Passing Love (4:16)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE385415E0A2D59DB3F9D4C68C9BA44F90E228B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446386   (1033044) от 08.02.2021
+
+Елена Хомич | Моя копилка тайн. Книга секретов для супердевочек (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты думаешь, что такие домашние заботы, как уборка, стирка, готовка, - это скучные и однообразные занятия? В этой книге мы откроем тебе множество секретов, как превратить рутинную домашнюю работу в увлекательный процесс?
+
+Здесь ты найдешь уникальные и полезные советы, которые необходимо знать каждой девчонке.
+(   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DCDBD0F3B7C9A64E9ADF175434D098851089C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446346   (1033043) от 08.02.2021
+
+Ruutu Poiss - Palav Aed (2021) Wake Dream [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiirend (02:00)
+ 02. Enne (04:29)
+ 03. Murded (06:03)
+ 04. August (05:57)(   Читать дальше...   )Жанр: Leftfield, Ambient, ExperimentalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BA5A3CB3A12603271020114C1F044ACD267F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1732406   (52016) от 25.06.2024
+
+Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Way (Single Version) [00:03:42]
+02. Like an Angel [00:04:47]
+03. My Own Way (Night Version) [00:06:36]
+04. My Own Way (Carnival Remix; 2009 Remaster) [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DCA9CEDDAEC8D801576D4CF2A9AC276307B818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737568   (49613) от 18.07.2024
+
+Marc Almond - I'm Not Anyone (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m the Light
+02. Reflections of My Life
+03. Gone with the Wind (Is My Love)
+04. I Talk to the Wind (feat. Ian Anderson)(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D5E1E351D8ACC73CB7FD03C81591ADEB67C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738616   (49085) от 23.07.2024
+
+VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lipps Inc. - Funkytown (Single Version) (3:55)
+02. ABBA - Dancing Queen (3:52)
+03. Donna Summer - Bad Girls (Gigamesh Remix) (5:20)
+04. Jessie Ware - Pearls (4:04)(   Читать дальше...   )Жанр: PopПродолжительность: 04:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738854   (48875) от 25.07.2024
+
+VA - Mega Hits Sommer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OneRepublic, Leony & Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
+02. David Guetta, Billen Ted & Girl On Couch - Man In Finance (1:53)
+03. Post Malone Feat. Blake Shelton - Pour Me A Drink (3:15)
+04. Civo - Mach die Augen auf (1:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C805617CAC56924A45556D48BB0CB57A7B1E0A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741065   (47844) от 04.08.2024
 
 VA - 80's Emotion: Electro Pop and Italodisco Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Pop>
@@ -629,122 +745,6 @@ VA - Let's Party (1988) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, Disco, Funk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:810AC842A43D4B7ADEAF7B7D533E1896B4E57CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752943   (41567) от 03.10.2024
-
-VA - RetroFutur (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atmoss (SP) - You Like the Sun (6:24)
-02. Bizzarro Universe - Kosmos (6:51)
-03. DJ Wedding - Dance of the Lonely Shepherd (6:09)
-04. Dog.Ma - Italodisco (6:10)(   Читать дальше...   )Жанр: Indie Dance, Nu-Disco, RaveПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D216309A808F2A3B312C16625F900FB5C64F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752944   (41558) от 03.10.2024
-
-VA - RetroFutur 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mal Femmé - Quantum (5:31)
-02. Flight Status - Black Trans Am (7:04)
-03. Hoochie Coochie Papa - Ygam (6:06)
-04. Alberto Melloni - Instant Rodeo (4:50)(   Читать дальше...   )Жанр: Indie Dance, Nu-Disco, RaveПродолжительность: 02:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86821F89D4BCEE74F368073197FE8F2A7E72C19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753913   (41196) от 07.10.2024
-
-Chris De Burgh - 50 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Simple Truth
-02. Here For You
-03. The Grace of a Dancer (Re-Recording)
-04. Greater Love(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538A523F2C737188CBCFFACF0A43DD00BF2E5791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754366   (40866) от 09.10.2024
-
-Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mumbo
-02. Bip Bop
-03. Love Is Strange
-04. Wild Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CC151918D9559425050EFFA2727ECC6469B4FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

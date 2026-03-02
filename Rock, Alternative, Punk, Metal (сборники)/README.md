@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1856485   (1058796) от 28.02.2026
+
+VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058796.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:41]. 001-7Б - Майская звезда
+[3:51]. 002-Стереозвук - Без тебя
+[3:29]. 003-Инкогнито - Воздух
+[3:31]. 004-Ночные снайперы - Рим(   Читать дальше...   )Жанр: rockПродолжительность: 08:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8182C6AE938614A4ABF7C72F9909379EF33AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854607   (1057663) от 20.02.2026
 
 Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena rock>
@@ -717,35 +746,6 @@ VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609741   (1043140) от 04.02.2023
-
-VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043140.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Black Keys - Lonely Boy
-002. Frank Turner - The Work
-003. The Relentless - Lost In Control
-004. Jeff Lynne's Elo - Losing You(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

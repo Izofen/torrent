@@ -1,3 +1,131 @@
+###  Публикация: 974453   (975683) от 12.01.2016
+
+Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever We Started
+02. Suddenly
+03. Inside
+04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616734   (974916) от 10.02.2013
+
+Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Loop (Mm-Ma-Ma) (3:35)
+02. Johanna (Shut Up!) (3:40)
+03. Love Is A Simple Thing (3:09)
+04. Uh-Ahh-Yeah (3:26)
+05. Famikon (2:34)
+06. Tango (3:28)
+07. Take Me Higher (3:38)
+08. Despre Tine Cant (Partea 2) (4:05)
+09. The 24th Letter (4:43)
+10. Crazy Loop (Mm-Ma-Ma) (DJ Ross Radio Club Edit) (3:54)(   Читать дальше...   )Жанр: Pop, Dance, BalladПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616583   (974738) от 10.02.2013
+
+Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle a dit (3:52)
+02. À l'ombre (4:51)
+03. Monkey Me (4:14)
+04. Tu ne le dis pas (4:22)
+05. Love Dance (4:06)
+06. Quand (4:08)
+07. J'Ai Essayé De Vivre... (4:40)
+08. Ici-bas (4:33)
+09. A-t-on jamais (3:47)
+10. Nuit d'hiver (5:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974852   (973357) от 14.01.2016
+
+Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detonator
+02. I Spy
+03. The Devil's Radio
+04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975069   (973297) от 14.01.2016
 
 Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -632,122 +760,6 @@ Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358567   (968752) от 08.02.2020
-
-Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures                                                              [03:58]
-02. Youth                                                                 [03:30]
-03. Breathe                                                               [03:15]
-04. Eventide                                                              [03:48](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358451   (968569) от 08.02.2020
-
-Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968569.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1:
-01.A Thing About You (3:49)
-02.It Must Have Been Love (4:19)
-03.Listen to Your Heart (5:14)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76A88CEFC93B302AD84E8DED74123B8562A9B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976993   (967828) от 19.01.2016
-
-Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - O' Happy Day (06:01)
- 02. - Shine (feat. Heavenly Joy) (05:00)
- 03. - Conquer (04:11)
- 04. - Hallelujah (04:26)(   Читать дальше...   )Жанр: Pop, Folk, CCMПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13ED441359B09087A6D0908D29340527C47CE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976948   (967798) от 19.01.2016
-
-VA - 2006 Grammy Nominees (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorillaz feat. De la Soul - Feel Good Inc. (3:28)
-02. Green Day - Boulevard of Broken Dreams (4:21)
-03. Mariah Carey - It’s Like That (3:23)
-04. Paul McCartney - Fine Line (3:06)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4F102663287A4A3EB5ACFC56555D7639D9274
 ```
 
 https://mybot314.ru/tekegram_catalog/

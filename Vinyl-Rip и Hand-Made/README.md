@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1856260   (1058677) от 
+###  Публикация: 1856260   (1058677) от 27.02.2026
 
 Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Progressive/Thrash Metal>
 
@@ -28,7 +28,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856251   (1058676) от 
+###  Публикация: 1856251   (1058676) от 27.02.2026
 
 Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
 
@@ -56,7 +56,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856227   (1058675) от 
+###  Публикация: 1856227   (1058675) от 27.02.2026
 
 Cleo Laine - The Platinum Collection Of Cleo Laine (1981) Series The Platinum Collection, 24 Tracks Double Album [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856309   (1058640) от 
+###  Публикация: 1856309   (1058640) от 27.02.2026
 
 VA - Country Dreams (1983) [FLAC|Lossless|image + .cue] <Folk, Country>
 

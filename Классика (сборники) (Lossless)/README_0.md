@@ -1,177 +1,3 @@
-###  Публикация: 987342   (927592) от 16.02.2016
-
-Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaze no densetsu  03:33
-02. Tani he no michi  02:41
-03. Tori no hito  03:54
-04. Dream  03:02(   Читать дальше...   )Жанр: Score, ClassicalПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F792ED8535591D101D4FF176FC6FBE7983D203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987785   (924331) от 18.02.2016
-
-Russian National Orchestra, Mikhail Pletnev - Russian Overtures (1994) [FLAC|Lossless|tracks + .cue] <Romantic, Contemporary, Neo-Romantic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glinka, Mikhail - Ruslan and Ludmilla - Overture (4:47)
-02. Borodin, Alexnader - Prince Igor - Overture (10:16)
-03. Shostakovich, Dmitri - Festival Overture, Op.96 (5:37)
-04. Prokofiev, Sergey Sergeyevich - Semyon Kotko, Suite, Op.81a - Introduction (3:37)(   Читать дальше...   )Жанр: Romantic, Contemporary, Neo-RomanticПродолжительность: 00:62:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820814DC0DC119F027D950D2BEBA5E693764EFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992247   (902424) от 01.03.2016
-
-Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caballe / Je Veux vivre dans le reve (3:51)
-02. Caballe / Questo cor ben lo comprende (3:08)
-03. Caballe, Carreras / Ah, quegli occhi... Mia gelosa! (5:55)
-04. Caballe / Spargi d'amore pianto (4:30)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992288   (902418) от 01.03.2016
-
-VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Classic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902418.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1: 
-01. Sarah Brightman -  Time To Say Goodbye (Quarantotto) (4:07)
-02. Il Divo -  You Raise Me Up (Lovland) (4:02)
-03. Nigel Kennedy -  Czardas ((Monti) (5:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: СD1: 01:14:49; CD2: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992342   (902391) от 01.03.2016
-
-VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ф.Шуберт - Ave Maria (5:50)
-02. Ф.Куперен - 'Любимая' (чакона) (5:34)
-03. Т.Альбиони - Адажио (2:48)
-04. Ф.Шопен - Фантазия-экспромт (4:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990847   (902255) от 01.03.2016
-
-Mozart - Very Best Of Mozart (2005) 2CDs [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade No.13 'Eine kleine Nachtmusik': Allegro (6:06)
-02. Horn Concerto No.4: Rondo: Allegro vivace (3:38)
-03. Cosi fan tutte: Soave sia il vento (3:14)
-04. Violin Sonata K.378: Andantino (6:39)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850C71C5F79BB18112821266393013E2668CB8E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992307   (902253) от 01.03.2016
 
 VA - Избранная Классика (2000) S&V #02/2000 [FLAC|Lossless|tracks + .cue] <Classical>
@@ -743,6 +569,180 @@ Simone Kermes - Love (2016) [FLAC|Lossless|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BB0B88248F2B7784F887B9BED780B70FC3598F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500928   (839823) от 07.10.2021
+
+VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glorious Symphony Orchestra - Symphony in E flat major, No 5, Op 82: I (31:46)
+02. Tatjana Franova - Etude in C sharp minor, Op 2: I (04:13)
+03. Great Baltic Symphony Orchestra - The Symphony's Song, Op. 57: I (17:13)
+04. Kaunas Symphony Orchestra - Da Requiem, Op 20: I (18:00)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005691   (830648) от 10.04.2016
+
+Carlo Maria Giulini - Rossini: Stabat Mater (2006) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduzione. Andantino moderato. Stabat mater dolorosa 09:59
+02. Aria (Tenore). Allegretto maestoso. Cujus animam gementem 06:50
+03. Duetto (Soprano I/II). Largo. Quis est homo 07:20
+04. Aria (Basso). Allegretto maestoso. Pro peccatis sue gentis 05:08(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27290E4A750035692961E383FD992FD1D11BA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198539   (806179) от 12.01.2018
+
+VA - Great Romantic Piano Favorites (The World's Most Beautiful Melodies) (1997) [FLAC|Lossless|image + .cue] <Classical, Easy Listening>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earl Wild and Royal Philharmonic Orchestra - Piano Concerto No. 2 In C Minor (Rachmaninoff) (13:25)
+02. The Virtuoso Piano Quartet - Malaguena (Lecuona) (4:02)
+03. Michael Reeves and National Philharmonic Orchestra - Theme From Sonata In C (Mozart) (2:26)
+04. Earl Wild and Royal Philharmonic Orchestra - Nocturne In A Flat (Chopin) (4:02)(   Читать дальше...   )Жанр: Classical, Easy ListeningПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A371E93D399C7DD9221B8AF3A3932B9E466E14DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506366   (800892) от 30.10.2021
+
+Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million Stars (3:51)
+02. Ave Maria (4:30)
+03. Sacred Night (4:08)
+04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506102   (800830) от 30.10.2021
+
+VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Philharmonic Choir - Carmina Burana, Fortuna Imperatrix Mundi No. 1, O Fortuna (2:42)
+02. London Philharmonic Orchestra - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air (4:14)
+03. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)
+04. SWR Symphony Orchestra - Symphony No. 41 in C Major, K. 551 (   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 08:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199761   (800142) от 17.01.2018
+
+Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Orchestral>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freikugeln, Polka schnell, op. 326 (2:48)
+ 02. Geschichten aus dem Wienerwald, Walzer, op. 325 (12:29)
+ 03. Festmarsch, op. 452 (4:10)
+ 04. Stadt und Land, Polka Mazurka, op. 322 (4:23)(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 01:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473F470FDAB6C2BBFC0F28F3D7642BB0CA0B4D75
 ```
 
 https://mybot314.ru/tekegram_catalog/

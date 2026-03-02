@@ -1,3 +1,203 @@
+###  Публикация: 1030982   (670141) от 02.07.2016
+
+VA - Русская Дискотека ХХ Века - 20 (Юбилейный) (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мираж - Электричество ( 1988 )
+02. Жуков Рома - Первый Снег ( 1988 )
+03. Анонс ( Александр Касимов ) - СССР ( 1991 )
+04. Планета Икс ( Агафонов Владислав ) - Лебеди ( 1988 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08D35E82AF444D4F9E66842A4241137253FE008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030978   (670056) от 02.07.2016
+
+VA - 50 оттенков музыки 18+ (06.2016) [MP3|112-320 Kbps] <Pop, Dance, Electronic, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB Feat. Sean Ryan - All I Need Is You
+02. Kaskade feat. Rae Morris - Call My Name
+03. Kito and Reija Lee - Sweet Talk
+04. Eli and Fur - You're so High (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, RockПродолжительность: 07:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8407A28CCB94EE57B9BE800930B9A414689B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291492   (670030) от 24.03.2019
+
+DJ Mixx - Everybody Dance (Free Ends Guest Mix) (2014) unmixed [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Paige - Crush (David Morales Club Mix) (1998)
+02. Mya - Movin' On (Ralphi's Vox Club) (1998)
+03. Deep Dish Pres. Prana - The Dream (Sharam's Deep Dish Dreamscape) (1994)
+04. Fire Island Feat. Mark Anthoni - If You Should Need A Friend (Fire Island Club Mix) (1995)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB55291BCC39E891D16CAFC7005BAF4C0D0D8F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291463   (670028) от 24.03.2019
+
+Corona - Rhythm Of The Night (2017) Remix [MP3|256 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Corona - Rhythm Of The Night (Ext.M.D.Project Remix By Marc Eliow)Жанр: Club, DanceПродолжительность: 00:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34406465C8B793BCAA868C6C31C2E1B3F75AD9DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291271   (670027) от 24.03.2019
+
+VA - Дискотека 2019 Dance Club Vol. 189 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka 2019!):
+01. Dani Corbalan - Back to Love (Original Mix) (4:54)
+02. Housefly feat. Elaine Winter - In My Mind (5:35)
+03. Nadi - Dance (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC5900FFA4DEF36C1B77B6667EBCB7424224FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223968   (669875) от 07.05.2018
+
+VA - Deep House Collection Vol.168 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669875.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrien Kepler - Following The Girl  (Extended Mix)
+002. AfroSoil, Xolisile Buthelezi - Buya Dali  (Original Mix)
+003. al l bo & Hopeful Peace - Queen Of Women (Original Mix)
+004. Alberth - Resilience  (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D8285152E1E175440B8407375542B730B87051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223934   (669778) от 07.05.2018
+
+VA - Eurodance Syndicate (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soundstream - Back Once Again
+002. Axwell /\ Ingrosso - Dreamer
+003. Active Surfers - Everyday In My Lie
+004. Justin Bieber, BloodPop® - Friends(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A35EA064F43766B97A502D62694CE251C6FA240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223975   (669769) от 07.05.2018
 
 VA - Progressive Electro House: 99 DJ Remix (2018) [MP3|320 Kbps] <Progressive, Electro, House>
@@ -538,206 +738,6 @@ VA - Зарубежная Дискотека ХХ Века - 48 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A730AB73C9DF9DCBD2D42197AD5E9D6BBAF882D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031377   (668660) от 03.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 49 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atrium - Hey Tonight ( 1985 )
-02. Denise & Baby's Gang - Disco Maniac ( 1988 )
-03. A La Carte - Dong Dong Diki Diki Dong ( 1983 )
-04. Chris Norman - Too Many Hearts Have Been Broken ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF1D4250C3E96B2C799361AC5C65F16A04C0185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031383   (668654) от 03.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 50 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Pozzoli - Love Is Alive ( 1987 )
-02. Savage - Computerized Love ( 1985 )
-03. Bommbastic - 99 Luftballons ( Club Dance Mix 1994 )
-04. Exotica - Can You Imagine ( Extended Version 1995 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12920F0B89B2B619706B290866D62CCF417C0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031279   (668597) от 03.07.2016
-
-VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Rihanna -  This Is What You Came For (Nejtrino & Baur Remix) 3:32
-002. Armand Van Helden -  I Want Your Soul (Underground Dude Remix) 3:11
-003. Ummet Ozcan -  Spacecats (SilverBlack Remix) 5:02
-004. Francesco Diaz & Jay Frog -  Arabian Nights (Melsen Edit) 4:57(   Читать дальше...   )Жанр: House, Electro House, Club HouseПродолжительность: 07:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031320   (668580) от 03.07.2016
-
-VA - Relax to House Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3SE - Adio (Pascal Junior Remix)
-02. Abraham Ruiz & Tewax - Fuck Du Follow (Original Mix)
-03. Affkt feat. Haptic - Fixate (Original Mix)
-04. Alan Walker - Sing Me To Sleep (PARKX Extended Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 11:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686A2DB97FDA4948C3084E4C57E6EE278E9807B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031301   (668518) от 03.07.2016
-
-VA - Summer Club Music Promo - Bestfriend Party (2016) [MP3|234-320 Kbps] <Dance, Eurodance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Sun Goes Down (Savi x Lema Remix) 05:20
-02. SAINT WKND feat. INGLSH - Lost (Runaway) (Fabich Remix) 04:01
-03. Italobrothers - Kings. Queens (Video Edit) 03:22
-04. Kago Pengchi - Yeowoobii (Radio Edit) 03:38(   Читать дальше...   )Жанр: Dance, Eurodance, ClubПродолжительность: 15:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7228830CA9A02BC82CB652E0C41B63365450BB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031333   (668435) от 03.07.2016
-
-VA - Отражение - Трибьют Led Zeppelin (2014) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Gotthard - Immigrant Song
-03. Led R and Narva Symphonic Orchestra - The Rover
-04. Vanilla Fudge - Dazed And Confused(   Читать дальше...   )Жанр: RockПродолжительность: 06:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81EBCEAB6826B1D7311BE442E4B3E51F0147E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291662   (668407) от 25.03.2019
-
-Bloodhound Gang - Uhn Tiss Uhn Tiss Uhn Tiss (2019) Radio Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668407.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bloodhound Gang - Uhn Tiss Uhn Tiss Uhn Tiss (G-Love Remix) Radio EditЖанр: Club, DanceПродолжительность: 00:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE680C51C2CD3616A9E5B463E21A4431D2E715A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

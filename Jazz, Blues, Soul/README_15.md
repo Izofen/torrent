@@ -1,32 +1,3 @@
-###  Публикация: 1438537   (1040816) от 09.01.2021
-
-John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingsnake Love (03:38)
- 02. Champion of Fools (04:39)
- 03. Human Race (03:23)
- 04. Crossroads (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A298EB1C21B0B764135C7CAD47E2AEFD429AA6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438486   (1040815) от 09.01.2021
 
 Layla Zoe - Nowhere Left to Go (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -744,6 +715,35 @@ Curtis Fuller Quintet - Blues-ette (1959) 2003, Savoy Jazz [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D23B2744D050C131F29B905277B2E968DD9C71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439521   (1039522) от 14.01.2021
+
+Shaun Murphy - Flame Still Burns (2020) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In The Palace Of The King (3:52)
+02. Sweet Little Angel (4:39)
+03. Love Me Like A Man (4:09)
+04. Am I Losing You (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC567655EFFCEF15201AAEC04D5F9462034F227
 ```
 
 https://mybot314.ru/tekegram_catalog/

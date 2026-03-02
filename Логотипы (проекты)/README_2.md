@@ -1,3 +1,30 @@
+###  Публикация: 985170   (935141) от 11.02.2016
+
+Проекты - Motion Array - 3D Metallic Stone Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A502E355FBEEF1A18939B5EA5C87E7DF019093A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985247   (934985) от 11.02.2016
 
 Проекты - VideoHive - Sea Water Logo Intro [AEP]
@@ -656,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F9402A0D012DC1385DBF1C981AE16781363634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367730   (913416) от 17.03.2020
-
-Проекты - VideoHive - Page Flip Logo - After Effects Template - 22090263 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это проект с быстрой демонстрацией ваших фотографий и логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1895D78F3D3F65480E90DB096A81EAD9A394BB1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

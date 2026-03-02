@@ -1,3 +1,177 @@
+###  Публикация: 1775607   (71405) от 27.01.2025
+
+VA - Redux Selection, Vol. 2 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toyax - Heavens Tears (STNX Extended Remix) [6:31]
+02. Michael Exkay - That Feeling (Extended Mix) [5:23]
+03. Victor Special - Down The Lost River (Extended Mix) [6:45]
+04. Alima - Enter Euphoria (Extended Mix) [7:10](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C19461A98F99D5B423FE0B1D739E0AC394026CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775659   (71375) от 28.01.2025
+
+VA - Keep It Trance Vol. 25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Le Mutant - Reflexions (Original Mix) [3:52]
+02. Inner Heart - Don't Want To Love You (Original Mix) [8:01]
+03. Bryan Kearney - You Will Never Be Forgotten (Lostly Remix) [7:25]
+04. Alexey Ryasnyansky - Open Space (Dub Mix) [6:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE494E6779F507FBAF98914FA530428ED29AC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776164   (71329) от 30.01.2025
+
+VA - Nothing But... Trancetopia Vol. 22 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Romero - The Light (Original Mix) [3:31]
+02. Harlam - Venus Proyect (Sam Fletcher Remix) [6:42]
+03. CO1N & Fros7novA - Purifaction (Extended Mix) [6:14]
+04. FAWZY - Breaking Boundaries (W!SS Extended Remix) [6:58](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284F585C4379A0BE2D35ADDC9E08DE10DDC75264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776189   (71324) от 30.01.2025
+
+VA - The Sound of 2025, Chapter 1: Milan (Day Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aviia - Omni (Original Mix - Mixed) (07:39)
+02. Tom Sommerson - Time Is Frozen (Original Mix - Mixed) (05:07)
+03. Arni - Look Around (Original Mix - Mixed) (04:05)
+04. Cosmonoise - Becoming (Original Mix - Mixed) (04:55)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC60412307B2502B5417FD0ECA5342C7E25DC87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776284   (71319) от 31.01.2025
+
+VA - Damaged Records Presents Frost (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordan Suckley - Power Surge (Extended Mix) (04:14)
+02. Jackob Roenald & Tymo White - Emergency Call (Extended Mix) (06:33)
+03. Jamie Walker - Good Time (Extended Mix) (06:15)
+04. Jordan Suckley - We Are Free (Extended Mix) (04:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3989C44E56401ADEDE1FD57A81A9914068F8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776277   (71316) от 31.01.2025
+
+VA - Top 20 January 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arsen & Cyan - Fall Again (Extended Mix) [6:44]
+02. Mata - Tree (Extended Mix) [6:14]
+03. Jacoob - Fiction (Extended Mix) [5:39]
+04. MORZO - Time Keeps Moving (Extended Mix) [4:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D7A13DF57044171817BC14097A2A490DC1BBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776389   (71228) от 01.02.2025
 
 VA - Nothing But... Trancetopia, Vol. 23 (2025) [MP3|320 Kbps] <Trance>
@@ -571,180 +745,6 @@ VA - D.Trance 109 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782642   (69956) от 02.03.2025
-
-VA - Trance Top 100, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rene Ablaze - Red Sea 2030 (Original Mix) [6:53]
-002. Christopher Corrigan - Delectation (Original Mix) [3:28]
-003. Carl Daylim feat. T'eira - Hand In Hand (Original Mix) [3:20]
-004. Daniel Cesana - Phoenix (Original Mix) [3:32](   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782664   (69904) от 02.03.2025
-
-VA - Progressive Trance Awakening, Vol. 03 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundtoys - Around You (Original Mix) [6:22]
-02. John Grand - Four4 (Extended Mix) [5:53]
-03. AaYmin - By Your Light (For Saylee) (Original Mix) [3:00]
-04. A.L.Y.S. - Bounty (Extended Mix) [5:48](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D310D80A1FEEBBF9AFB1F05685A3A3B0C9710F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783288   (69833) от 05.03.2025
-
-VA - SaberWave Best Of 4 Years (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladislav Vasilchuk - The direction of trance (Original Mix) [7:17]
-02. Alex Fibonacci - Damaged (Original Mix) [6:01]
-03. Feali & Alënushka - Time (Original Mix) [6:54]
-04. MLiFe - Reflection (Original Mix) [6:12](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3EB9FCC24336A56A0D4EAFDD4D179777B28754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783290   (69818) от 05.03.2025
-
-VA - Elliptical Sun Miami Sampler 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D&Z - Organica (Extended Mix) [5:16]
-02. Mayank - Skying Higher (Extended Mix) [7:31]
-03. Borena - This Is The Way (Extended Mix) [5:53]
-04. Rospy - Nostalgia For The Future (Original Mix) [3:28](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09B3B29368B5BE78829D82FA4AFEE36F8DC54CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783804   (69780) от 07.03.2025
-
-VA - Vocal Trance Collection Vol. 3 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AFTERUS - Embrace The Night (DJKrissB Remix) [7:26]
-02. TroniKol - It Hurts (Extended Mix) [5:57]
-03. Master Beat Projekt - Free (Extended Mix) [7:02]
-04. Edplacid Patiño - The Phoenix (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4376DE1621DD7CA71FA3796DB088A88C9213BA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783545   (69756) от 07.03.2025
-
-VA - The Sound of 2025, Chapter 2: Madrid (Night Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miami Techno - The Truth (Nicolas Muller Remix - Mixed) (06:14)
-02. F4T4L3RR0R - Get What You Deserve (Original Mix - Mixed) (04:16)
-03. Carlo Camargo - Beyond Affliction Road (Original Mix - Mixed) (05:53)
-04. Thian - Slow Undressing (Original Mix - Mixed) (05:15)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51C216F06F821164DEC6E932814761DD76A3132
 ```
 
 https://mybot314.ru/tekegram_catalog/

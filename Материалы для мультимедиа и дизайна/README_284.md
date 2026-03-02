@@ -1,3 +1,31 @@
+###  Публикация: 1339191   (265953) от 19.11.2019
+
+3D модели - Evermotion - Archmodels vol.183 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 183 содержит 54 профессиональных, высокодетализированных 3d моделей для архитектурных визуализаций. В эту коллекцию вошли высококачественные 3d модели садовых растений со всеми текстурами и метериалами. Все объекты готовы к использованию.
+Все модели и сцены были отрендерены в V-ray с 3ds max.
+Сцены не входят в состав коллекции.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3BDFA9CD7F5208AA79091C3FBC7C6B68DAECBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191059   (265930) от 11.12.2017
 
 Векторный клипарт - Vector Woman Accessories Collection #5 [AI]
@@ -650,32 +678,6 @@ Design Cuts - Vintage Floral Gold Foil Monograms [PNG, JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A03B72606BB2F446F4AE92866F6B605D64AECE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339897   (264578) от 21.11.2019
-
-Hum3D - Honda Valkyrie GL1800C 2015 [Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, MB]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264578.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки HondaФормат: Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, LWO, MB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E95304ADDFD691E137B950813653971946D2C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

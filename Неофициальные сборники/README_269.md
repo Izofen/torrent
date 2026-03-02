@@ -1,3 +1,218 @@
+###  Публикация: 1135725   (679322) от 20.05.2017
+
+VA - Музыкальный адреналин хорошего настроения. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679322.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Oleynik & Виктория Дайнеко - Сердца Стук 3:31
+002. Неангелы - Точки 3:31
+003. Александр Шоуа - Москва-Абхазия 3:51
+004. Пальчики Оближешь - Нецветные Розы 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD09854F76B41D8BE50E5F76D93EB1A3C1C8610C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222915   (679302) от 02.05.2018
+
+VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шёлковый песок, тёплое море, шум волн накатывающихся на берег, крики чаек и приятное одиночество на морском пляже - всё это в новом сборнике релакс музыки под названием "The Real Silent Mode".001. Remundo - Soupire
+002. The Ghetto Project - The Ghetto (Alternative Mix)
+003. Enrico Donner - Through Your Eyes
+004. Don Coppens - Bizzy Trent (Original Chill Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A580EA3A2AA78E01F511A62E71C6A1B0D24028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135732   (679296) от 20.05.2017
+
+VA - Весенняя 100-ка популярных треков выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679296.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mainstream One - Нам Солнце Светит Ярче 3:00
+002. Моника - Корпоратив 3:08
+003. Доминика Feat. Suncreepers - Океаны 3:04
+004. Егор Диких - Дикие Племена 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244F984D5D1376EFC02FF29DABAAD1DAEF7A542C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135738   (679283) от 20.05.2017
+
+VA - Русский отрыв на Русском радио. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679283.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бордо - Будем 3:37
+002. Weel - Под Мой Пульс 3:03
+003. Kristina Si - Гасим Свет 3:58
+004. Андрей Леницкий - Она 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0CBA49A97190259A642693B4C073AE4E4CDF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135729   (679238) от 20.05.2017
+
+VA - Хитовая весна на Europa Plus. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Ирис - Солнце Мое 3:16
+002. Надежда Тэра - Птица 3:17
+003. Play - Виновата Сама 3:18
+004. Stereopulse - Зачем Ты Накачала Губы 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29659F8F0B30F12A4FF911D1A8DD00F54F949B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508701   (679124) от 10.06.2012
+
+VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gipsy Kings - Bamboleo (3:25)
+2. Simply Red - The Right Thing (4:23)
+3. Mungo Jerry - In The Summertime (3:30)
+4. Sean Kingston - Beautiful Girls (3:47)
+5. DJ Jazzy Jeff & The Fresh Prince - Ring My Bell (3:47)
+6. R.I.O. - Miss Sunshine (5:24)
+7. The Sunclub - Fiesta (4:14)
+8. Skee-Lo - I Wish (4:13)
+9. Righeira - Vamos A La Playa (3:40)
+10. Elvis Presley - Mexico (2:00)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508041   (679093) от 10.06.2012
+
+VA - Сборник Родной музыки - "Авега" (2012) [MP3|192 кб/с]<Rock, Folk, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Дар Ветер - Вечность
+02 Банды Москвы - Живи Россия Моя
+03 Николай Емелин - Княжий остров
+04 Алевтина - Мокошь
+05 Мельница - На Север
+06 Алиса - Небо славян
+07 Светлаяна - Птицы
+08 Ария - Свобода
+09 Контрреволюция - Это значит, что скоро война
+10 Сокира Перуна - Дорога в Вальхаллу(   Читать дальше...   )2012Жанр: Rock, Folk, PopПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCA6DACA298B1B8EE96648F8D5598231B94534E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223004   (678977) от 02.05.2018
 
 VA - Super Disco Party (2018) [MP3|320 Kbps] <Pop, Disco, Dance>
@@ -536,213 +751,6 @@ VA - 150 Underground Hits Check Story (2016) [MP3|237-320 Kbps] <Funky, Club, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848E4CC3B141E6FF8E47B64D52DF8452F9A0E64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029563   (678601) от 28.06.2016
-
-VA - Hot Party Summer (2016) [MP3|320 Kbps] <Latin, Electronic, Dancehall>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678601.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Пpодолжительность: 01:15:53
-
-01. Alvaro Soler - Sofia 03:31(   Читать дальше...   )Жанр: Latin, Electronic, DancehallПродолжительность: 02:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E412B6E938F1087DFDE63848F5C2A792F322D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029858   (678597) от 28.06.2016
-
-VA - 150 In Style Trance Melodic Showing (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren presents Rising Star feat. Betsie Larkin -  Safe Inside You 7:03
-002. Aly & Fila with Ferry Tayle -  Nubia (Extended Mix) 7:41
-003. Bobina -  Invisible Touch (Aly & Fila Remix) 8:23
-004. A.R.D.I. & Dennis Pedersen -  Forgotten (Original Mix) 7:03(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 17:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6521861586BE424BA928498A2508F9C2FAB79DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029149   (678596) от 28.06.2016
-
-Dj DAN62 - Унц Унц Микс Июнь Часть 1 (2016) [MP3|320 кб/с] <Dance Pop, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мот - 92 (Eugene Star Remix)
-2. Pink – Just Like Fire (Denis First Remix)
-3. David Guetta ft. Zara Larsson - This One's For You (Kolya Funk & Eddie G Remix)
-5. Willy William - Ego (Alexx Slam & Kolya Dark Remix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C071D77A89EDC7249A88C89C37F4D687110CB0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029780   (678595) от 28.06.2016
-
-VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678595.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Degree - Hunny Bunny
-2. Bad Booty Brothers - Worth It (Radio Edit)
-3. Barby G - What’s Up (Radio Edit)
-4. Aura - Love Somebody(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64B280668E9D03BB26E777E7DD2456E32CA94DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135662   (678591) от 20.05.2017
-
-VA - Зайцев.Нет: Топ Новинки За Май (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Khaled Feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm the One 4:49
-02.  ЛСП - Конец света 5:48
-03.  Katy Perry - Bon Appetit (feat. Migos) 3:47
-04.  Afrojack & David Guetta ft. Ester Dean - Another Life 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AABBBC9A4804C57D2B11E498874DBE40D73110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506623   (678517) от 10.06.2012
-
-VA - Club Music for DJ's Summer 9CD (2012) [MP3|320 кб/с] [Обновляемый] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Tasty - Music For A Fashion Generation (Original Mix) (7:37)
-2. Alfonso Padilla - Happy Friday (Superskank Remix)Жанр: Dance, ClubПродолжительность: 04:53:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508538   (678509) от 10.06.2012
-
-VA - MAXI. 80 Величайших Хитов Всех Времён (2012) [MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gene Vincent - Be-Bop-A-Lula
-02. Carl Perkins - Blue Suede Shoes
-03. Bill Withers - Ain't No Sunshine
-04. Queen - Bohemian Rhapsody
-05. Little Richard - Tutti Frutti
-06. Roy Orbison - Only The Lonely
-07. The Beatles - Norwegian Wood (This Bird Has Flown)
-08. Gloria Gaynor - I Will Survive
-09. The Beatles - Help!
-10. Metallica - Enter Sandman(   Читать дальше...   )2012Жанр: Pop, RockПродолжительность: 04:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDA515FA1C4BE4FE8087EE9E5CE633FE654CAA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

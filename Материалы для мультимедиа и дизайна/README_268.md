@@ -1,3 +1,29 @@
+###  Публикация: 1183725   (307398) от 14.11.2017
+
+Растровый клипарт - Fotolia - Elegant beautiful woman [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантная красивая женщинаФормат: JPGРазрешение файлов: 2644x2621-5510x3503
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAAC7EBEFF35C4E8E1920EBD0238FDBDCD1786E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183803   (307397) от 14.11.2017
 
 Векторный клипарт - Gold decorative vector frame [EPS]
@@ -654,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D1170876FB421D9AF1216E780D39A210463D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183818   (305273) от 15.11.2017
-
-Векторный клипарт - Vector vintage designer cards for invitations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Векторные старинные дизайнерские открытки для приглашений
-14 files EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70843D6D0450CABE15AE8215BF4CCCF8225BCAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

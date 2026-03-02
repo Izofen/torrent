@@ -1,3 +1,206 @@
+###  Публикация: 1201680   (791989) от 25.01.2018
+
+VA - German Top 100 Single Charts 26.01.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Camila Cabello - Havana (feat. Young Thug)
+004. Eminem - River (feat. Ed Sheeran)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CB71F8CF77A1429D14310B8B004FA2F0DB9C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201687   (791986) от 25.01.2018
+
+VA - Музыка, с которой мы выросли (зарубежная). Выпуск 2 (1969-1993) [MP3|320 Kbps] <Rock, pop, disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - It Came Out Of The Sky (1969) 02:57
+02. Creedence Clearwater Revival - Travelin' Band (1970) 02:11
+03. Led Zeppelin - Bron-Y-Aur Stomp (1970) 04:18
+04. The Sweet - Santa Monica Sunshine (1971) 03:28(   Читать дальше...   )Жанр: Rock, pop, discoПродолжительность: 06:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634F21A7B6C0BF3910842B2F3465BA656030A69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201601   (791982) от 25.01.2018
+
+Boris Brejcha - Best of (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Minimal, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Gum [8:56]
+02. Welcome Stranger [9:07]
+03. Monster In The Box [7:15]
+04. Die Lustgrotte [7:07](   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 05:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D503535E1A898E96E57770EB87CBEDF7B21F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200131   (791978) от 25.01.2018
+
+Владимир Высоцкий - Высоцкий & Co. Песни и стихи-посвящения (2CD) к 80-летию поэта (1962-1980) (Бутлег) [MP3|192-320 Kbps] <Авторская песня, стихи>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник приурочен к 80-летию со дня рождения В.С.Высоцкого (25 января 1938 г.) и содержит его песни (42) и стихи (4), которые он посвятил свои друзьям, близким людям и известным личностям того времени.CD1
+01-Лежит камень в степи (Артуру Макарову) (1962) (01:08)
+02-Большой Каретный (Левону Кочаряну) (1962) (01:15)
+03-В этом доме большом раньше пьянка была (Георгию Епифанцеву) (1964) (01:04)(   Читать дальше...   )Жанр: Авторская песня, стихиПродолжительность: 02:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802E6E2D119067245E76A79B8230D7459531E56E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090058   (791906) от 25.01.2018
+
+Владимир Высоцкий - Народно любимые песни (2017) [MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.- Аисты 4:09
+002.- Бал-маскарад 1:30
+003.- Баллада о борьбе 4:01
+004.- Баллада о брошенном корабле 4:17(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 09:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E40C5B3681A6FA16EA3857308F207869879C6F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387326   (791825) от 01.06.2020
+
+VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echopraxia - 3s Without 4 (03:51)
+ 02. Jason Becker - Air (05:40)
+ 03. Arch Echo - Tempest (05:18)
+ 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387426   (791817) от 01.06.2020
+
+VA - не Громкие новинки недели 69 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791817.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alina - Больно, Но Весело (3:02)
+2. Anivar - Новый Рассвет (Dmitry Air Remix) (4:03)
+3. BELTY - Море (4:26)
+4. Dante - Пряными Травами (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4013C231B67C04A6D1C4D319B4871AF434E290DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387467   (791814) от 01.06.2020
 
 VA - Music News vol.13 (2020) [MP3|320 Kbps] <Pop, Hip - Hop>
@@ -542,209 +745,6 @@ VA - Progressive Winter Sounds (2019) [MP3|320 Kbps] <Trance, Progressive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7310F5C596C5014E1C4B186A81AE219483FE97F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387491   (791093) от 02.06.2020
-
-VA - Hits of My Soul Vol. 56 (2020) [MP3|256-320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791093.jpg" />
-</div>
-
-
-###  Подробнее
-
-|08:44| 01. The Cloudy Day - Way Of The Sun (Original Mix)
-|09:31| 02. The Cloudy Day & Andrey R. - Wings (Original Mix)
-|09:42| 03. The Cloudy Day - Aurora (Original Mix)
-|08:16| 04. The Cloudy Day - Over Emotion (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 19:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9253FD377C304DE6B155385F6E47DE6FED713A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275112   (791088) от 10.01.2019
-
-VA - Jazz From Monday On (2019) [MP3|320 Kbps] <Jazz, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Chain - All We've Got
-02. Duke Robillard - From Monday On
-03. Aretha Franklin - I Don't Know You Any More
-04. Beath - Waves(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 05:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB4F0EC6B3D08044DC0042C45091F6B8CD52C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201711   (791053) от 27.01.2018
-
-VA - DMC Seasons Winter: Trance Uplifting Party (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791053.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Van Dyk & Farhad Mahdavi feat. Sue Mclaren - Together Again
-002. Ram & Darren Porter - The Calling (Grotesque 300 Anthem)
-003. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery)
-004. DJ T.H. & Athema feat. Elyse G. Rogers - Strong Enough(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75522121F0872BAB3778E3D68051E130CB1FA3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275142   (791030) от 10.01.2019
-
-VA - Melodic Soft Rock (2019) [MP3|320 Kbps] <Melodic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 10cc - The Things We Do For Love
-002. Belinda Carlisle - Heaven Is A Place On Earth
-003. Eric Carmen - Hungry Eyes
-004. Kenny Loggins - Danger Zone(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 07:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0492BFC43356EB2D81506B0C3506D3E6F3D0A2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202122   (791028) от 27.01.2018
-
-VA - The Official UK Top 40 Singles Chart 26.01.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan (03:19)
-02. Ramz - Barking (03:21)
-03. Eminem - River (feat. Ed Sheeran) (03:42)
-04. Dua Lipa - IDGAF (03:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA920C43120C6C09715A6F5D27D625FE94D1F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201972   (791012) от 27.01.2018
-
-VA - Дискотека 2018: Зимнее Настроение (Compiled by ZeByte) (2018) [MP3|320 Kbps] <House, Trapical, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ed Caspian feat. Redrama & Sandra  -  Bad To The Bone  3:23
-02.  Akcent feat. Reea  -  My Lady  3:19
-03.  LVNDscape feat. Cathrine Lassen  -  Dive With Me  4:00
-04.  Volkan Uca feat. Ersin Ersavas & Semih Celikel  -  Ameno  4:29(   Читать дальше...   )Жанр: House, Trapical, DanceПродолжительность: 02:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACF3A552BFB4CF180B3CF9347339CB23505BB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201706   (790984) от 27.01.2018
-
-VA - Популярный бикини микс (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Маши - Время 3:24
-02. 7hills - Танцы 3:46
-03. 140 Ударов В Минуту - Катажина 3:46
-04. Alex Opium - Не Обижу 3:45(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBE7F0234909BCD3AF7829DB017197E5D2DA342
 ```
 
 https://mybot314.ru/tekegram_catalog/

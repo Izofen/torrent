@@ -1,3 +1,148 @@
+###  Публикация: 1451924   (1027863) от 05.03.2021
+
+VA - CarMusic for man (2021) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soda - Pullin Up (1:55)
+02. Giorgio Gee - Car Party (2:06)
+03. Darrell Story - Bella Ciao (2:07)
+04. MNEX - Sad (2:12)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 04:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0570F25DBD38AA115F0C53F0A89F35EDC67D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452415   (1027717) от 06.03.2021
+
+VA - Music News vol.78 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lidia Buble - Intens (03:19)
+ 02. Alex Parker feat. Bastien - I Need You (Fullpoy Remix) (02:18)
+ 03. Alle Farben & Fools Garden - Lemon Tree (Alle Farben & FRDY VIP Mix) (03:09)
+ 04. Alvaro Soler - Magia (03:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83BB7B6CF34512DBFC8162698E31C3D77D538B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452432   (1027715) от 06.03.2021
+
+VA - Music News vol.79 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NK - Девочки Рулят (02:32)
+ 02. Andre TAY - Потанцуй Со Мной (04:37)
+ 03. Ben & Tan - Iron Heart (02:59)
+ 04. Bruno Mars & Anderson .Paak feat. Silk Sonic - Leave The Door Open (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BF36141F5420A9D0F4AC9DC3C04C7A97F6B4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452793   (1027356) от 08.03.2021
+
+VA - Музыка на 8 марта (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alyosha - Sweet People (3:00)
+02. Chuck Loeb - The Girl From Ipanema (4:55)
+03. Esther Phillips - I'm A Bad, Bad Girl (2:55)
+04. Manizha - Мама (5:48)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39901526957448B4E4750B28DDA0904181421F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452689   (1027346) от 08.03.2021
+
+VA - Love Songs 80s 90s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura Poles - Thank You (3:10)
+02. Shania Twain - You're Still The One (3:14)
+03. Tamara & Diego Grande - Up Where We Belong (3:24)
+04. Simply Red - If You Don't Know Me by Now - 2008 Remaster (3:26)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 04:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F4C020A057997A88158FC90C599E56B6415425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453502   (1026928) от 11.03.2021
 
 VA - Music News vol.80 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -597,151 +742,6 @@ VA - Music News vol.86 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:861D97760923AC9A63BE6E507A76D306DA29CE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457623   (1024223) от 27.03.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 26.03.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB & Topic & A7S - Your Love (9 PM) (2:30)
-02. Travis Scott, HVME - Goosebumps (Remix) (2:42)
-03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-04. Billie Eilish - Therefore I Am (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEE57A3F3DC87700C1A2DE8BE7DF2771D1C800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458428   (1023769) от 29.03.2021
-
-VA - Dance Party+ (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza feat. Dermot Kennedy - Paradise (Vintage Culture Remix) (3:36)
-02. Sheeqo Beat - Turn On the Bass (3:40)
-03. Galantis, Ship Wrek, Pink Sweat$, David Solomon - Only A Fool (DJ D-Sol Remix) (3:03)
-04. R3HAB, Quintino, Joe Stone - Freak (Joe Stone 2K18 Edit) (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664889F9F80F360D91470661DA32427870BA35AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458586   (1023714) от 29.03.2021
-
-VA - Дискотека 2021 Dance Club Vol. 208 от NNNB (2021) [MP3|320 Kbps] <Dance, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01. Tury - I Need U (2:59)
-02. Bastard! - You Lose (3:05)
-03. Carmen DeLeon feat. Cali Y El Dandee - Pasado (2:23)(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 24:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C93D491F6AEE330B89F0336F146B54093AEB90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459200   (1023303) от 01.04.2021
-
-VA - Chill Pop (2021) [MP3|320 Kbps] <Pop, Chillout, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charli Adams, Nightly - Maybe Could Have Loved (3:41)
-02. Magsy - unimpressed (2:46)
-03. Tiffany Day - HOMESICK (3:37)
-04. JORDY, OSTON - Tomorrow (3:00)(   Читать дальше...   )Жанр: Pop, Chillout, LoungeПродолжительность: 05:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70EDCCBBD454FDCE66127C279BC6DD8D694F825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459163   (1023302) от 01.04.2021
-
-VA - Music News vol.87 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryze - Девчонка Влюблена (02:42)
- 02. Alex Pizzuti feat. Krulez - Oh My My (02:30)
- 03. Anna Green - Надышаться Тобой (03:27)
- 04. Anna Green - Я По-прежнему Жду (03:20)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE18EF4E0A9267CFEF9693A6F2A0EDB8F8A97A81
 ```
 
 https://mybot314.ru/tekegram_catalog/

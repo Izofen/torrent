@@ -1,3 +1,177 @@
+###  Публикация: 1844360   (1049992) от 26.12.2025
+
+Chris Rea - This is Chris Rea (2025) [MP3|320 Kbps] <Blues, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing to Fear (9:05)
+02. It's All Gone (7:27)
+03. Auberge (7:17)
+04. Curse of the Traveller (6:23)(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 03:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D41B3F4BD2244B1907DA7DBA5E85052793081C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844451   (1049948) от 26.12.2025
+
+VA - Music News For Forum vol.153 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049948.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AILygoria - Надо танцевать (03:35)
+ 002. 4k - Раскатали-закатал (03:15)
+ 003. 5opka - Слава Боссу (03:06)
+ 004. 6adman - 6 am in iran (01:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22CBE80E96E94E7DA283F1FCF3B3B4BC8EC83EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843891   (1049779) от 23.12.2025
+
+VA - Муз. 2025 by Yuridar [MP3|320 Kbps] <Rock, Pop, Blues, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alibi Music - A Perfect Night
+02. Brent Amaker & The Rodeo - Man in Charge
+03. Charley Crockett - Run Horse Run
+04. Downriver - A Sad Story(   Читать дальше...   )Жанр: Rock, Pop, Country, OtherПродолжительность: 02:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AC5D30AAEE0ACE7FF2E90324A06A4812A8A342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844089   (1049745) от 24.12.2025
+
+VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simona Nae - De Craciun (02:53)
+ 002. ADDA - Flori In Decembrie (02:49)
+ 003. AGAV - Avis De Tempete (02:30)
+ 004. AGAYAN - Механизм (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D871D95B6BB3F944CB844DAA22C6DCF66ADE3F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843691   (1049545) от 21.12.2025
+
+Dakota Lane - Favorites Collection part 3 country music (2025) [MP3|320 Kbps] <country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Yeehaw Shenanigans
+02 - Country Nights Alive
+03 - Backroads and Memories
+04 - Hometown Heartbeat(   Читать дальше...   )Жанр: country, AiПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28299F1CA52927CCAA0E2FA0534F23AE2374E62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843301   (1049543) от 21.12.2025
+
+Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Time of My Life
+02 - The Present of the Past Dub (Version)
+03 - Sensual Flare Dub (Version)
+04 - Tease Me Even More(   Читать дальше...   )Жанр: Reggae, AiПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BCBC25CBCCF7DBABBF5BCDAEC9C8CBB04322EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843294   (1049541) от 21.12.2025
 
 VA - No name compilation part 30 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
@@ -571,180 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 28.11.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB21FB8104F840561A8184670FACCC9A84F0D1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603433   (1045743) от 09.01.2023
-
-VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive, Afro House, Groove>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Gunning - Uncertain Sky (Mimo Remix)
-02. Saintrop - Back in My Life
-03. D Seven - Pianodance (South Blast Showtime Mix)
-04. Q-Busta - This Feels Like(   Читать дальше...   )Жанр: Club, Progressive, Afro House, GrooveПродолжительность: 01:48:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A976EAAC31803F8C3D61473D653842BFA04B399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604110   (1045476) от 12.01.2023
-
-VA - Music News vol.237 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alessandra - Queen Of Kings (02:28)
- 002. Alexandra Ungureanu feat. Paul Ananie - Cea Mai Frumoasa Iarna (02:31)
- 003. Allnity - По Барабану (02:31)
- 004. Almost Weekend feat. Michael Shynes - Nice Face (Konn Remix) (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B1876238906E1625F83B975EDEBF3D61B4747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604762   (1045125) от 15.01.2023
-
-VA - Свежаки Зимы 2023 Remix NNM (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Винтаж - Ева (DMC COX Extended Mix) (4:44)
-02. Зомб - Baby Tonight (Kalatsky Remix) (Radio Edit) (3:01)
-03. Yes17 - Мама (Alexandr Zarva Remix) (4:00)
-04. Мари Краймбрери - По городам (DJ Alex Ezhov Remix) (Radiio Edit) (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113AD8D7AD4E54358E91DBE0BC893CB6515A23E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605001   (1045054) от 16.01.2023
-
-VA - Music News vol.238 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chany Dakota feat. Thomas Sykes & Mark F. Angelo - In The Middle (02:28)
- 002. All Time Low - Tell Me I’m Alive (02:36)
- 003. Aluna feat. MK - Kiss It Better (MJ Cole Remix) (04:04)
- 004. American Authors - Best Night Of My Life (02:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6129D94EA7C6704CE8D40C2C22CFACD566949687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599678   (1044941) от 17.01.2023
-
-VA - В машине с музыкой Vol.325 (2022) MP3 (320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ислам Итляшев - Ресторан (03:40) 2022
-02. Rasa Feat. & Dashi - Не Хочу Домой (03:08) 2022
-03. Nifiant - Never Let Me Go (03:23) 2022
-04. Александр Чурей - Застольно-Хулиганское (04:10) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2F3B42BA6A0CD3A31CB2A58653632B3E864E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604480   (1044937) от 17.01.2023
-
-VA - Старый Новый год Vol.01 (2022-2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kylie Minogue - Only You
-002. Никита Хазановский - Новый Год
-003. Paul Potts - Ave Maria
-004. Сергей Одинцов - Новый Год(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDA36032C4F5143C266F465970F512851930232
 ```
 
 https://mybot314.ru/tekegram_catalog/

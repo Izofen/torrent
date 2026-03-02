@@ -1,25 +1,54 @@
-###  Публикация: 1694642   (120797) от 26.01.2024
+###  Публикация: 1694256   (121114) от 24.01.2024
 
-Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка этих парней представляет из себя забойный и агрессивный трэш-дэт-метал с грохочущим слэп-басом и яростным ревущим вокалом, но поскольку тексты песен основаны на cредневековой японской истории и самурайской культуре, сами участники 兀突骨 предпочитают называть стиль, в котором они играют, «самурай-метал».2009 - 魍魎 (Mouryou)
+2013 - 影ノ伝説 (Legend Of Shadow)
+2015 - 因果応報 (Retributive Justice)
+2016 - 兵ドモガ夢ノ跡 (Where Warriors Once Dreamed A Dream)(   Читать дальше...   )Жанр: Thrash/Death MetalПродолжительность: 06:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D117CA506D858DA1C45EEDE60ADCC2D61E77E36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694232   (121113) от 24.01.2024
+
+Luca Quattrocchi - Saxophone Bliss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120797.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overdrive [00:03:58]
-02. Stone Heart [00:04:42]
-03. Blame It on Me [00:03:33]
-04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
+01. Daydreaming in Rain (2:08)
+02. The Bossa Nova Experience (2:43)
+03. Ethereal Elegance (2:06)
+04. The Panic Prelude (1:50)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
+magnet:?xt=urn:btih:1F42CF7CA80EE0E1877C019C563A58D52FB14EF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694733   (120796) от 26.01.2024
+###  Публикация: 1694014   (121112) от 24.01.2024
 
-Виктор Драгунский | Денискины рассказы. Надо иметь чувство юмора (сборник) (2008) [MP3, Владислав Галкин, Ольга Будина, Мария Голубкина, Татьяна Веселкина]
+Omega - Az Arc (1981) Reissue, Remastered, 2004, Hungaroton [APE|Lossless|image + .cue] <Progressive Rock>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120796.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Виктор Драгунский писал для детей, создавая удивительный мир солнечных зайчиков, искрящихся глаз и звонкого детского смеха. Светлый, радостный и неповторимый мир, где нет места для скуки и уныния. В рассказах Виктора Драгунского - чудеса обыденной жизни, не замечаемые нами в каждодневной суете, и едва уловимое ощущение счастья при взгляде в наивные и такие мудрые (   Читать дальше...   )Жанр: приключения, детская прозаЯзык озвучки: русскийИздательство: ВимбоПродолжительность: 01:20:33
+01. Életfogytig rock and roll (6:28)
+02. Kemény játék (3:45)
+03. Az arc (3:51)
+04. A nagy folyó (3:37)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9FD3DB5BB61AD433E983893C580B84D3419C0EA
+magnet:?xt=urn:btih:A9809B407B863489809573F06111AFBE7AC4178E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,135 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694727   (120795) от 26.01.2024
+###  Публикация: 1694198   (121111) от 24.01.2024
 
-VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tones And I - Dance Monkey
-02.  DJ Snake & J Balvin &Tyga - Loco Contigo
-03.  Lena X Nico Santos - Better
-04.  Ava Max - Torn(   Читать дальше...   )Жанр: Electronic, Hip Hop, Pop, RockПродолжительность: 02:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694655   (120794) от 26.01.2024
-
-Timo Gross - Black Dawg Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train of Mercy (4:04)
-02. Devils Class (5:27)
-03. Wicked Game (3:37)
-04. Heaven Will Be Mine (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0456473F81B810CDA7493AC97988F67DF7E924A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694793   (120792) от 26.01.2024
-
-Ура! На постой! / Hurra! Einquartierung! (1913) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120792.jpg" />
-</div>
-
-
-###  Подробнее
-
-К сожалению, не нашел приличную копию фильма. А фильмец славный. Совершенно водевильная история. Классика. Военные маневры. Офицеров располагают на постой у местных обывателей (раньше была такая гражданская обязанность). И этим, конечно же, вызывают невероятный ажиотаж среди местных барышень и чрезвычайную озабоченность у отцов этих барышень. Одно слово - водевиль!Производство: Германия,  Luna-FilmЖанр: короткометражный, комедия, немое киноРежиссер: Франц ХоферАктеры: Мэнни Цинер, Franz Schwaiger, Rudolf Del Zopp, Карл ХарбахерПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF3A7EA246C1C04E1B5F7D790B29ECE08A5F667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694804   (120791) от 26.01.2024
-
-Cheetah3D for Mac 8.0 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cheetah3D — это мощное и простое в освоении приложение для 3D-моделирования, рендеринга и анимации, которое было разработано с нуля для Mac. Так что погрузитесь прямо в мир компьютерных изображений. Создайте 3D-иллюстрацию для своей следующей игры для iPhone или создайте своего первого анимированного персонажа.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2001-2024 MW3D-SolutionsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9007FFE1384DFE5452972E1009132FDC6A85885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694698   (120790) от 26.01.2024
-
-А. С. Пушкин | Дубровский. Капитанская дочка. Повести Белкина (2002) [MP3, Владимир Самойлов]
+Чингиз Абдуллаев | Фархад Сеидов (Книга 1). Одноразовое использование (2024) [MP3, Татьяна Некрасова]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120790.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Пушкин есть явление чрезвычайное, и, может быть, единственное явление русского духа: это русский человек в его развитии, в каком он, может быть, явится через двести лет. В нём русская природа, русская душа, русский язык, русский характер отразились в той же чистоте, в такой очищенной красоте, в какой отражается ландшафт на выпуклой поверхности оптического стекла». (   Читать дальше...   )Жанр: классическая проза, рассказыЯзык озвучки: русскийИздательство: АРДИСПродолжительность: 11:08:15
+Никто, кроме самого Фархада Сеидова, вице-президента крупной нефтяной компании, не знает, что в перстне на его руке находится мощный радиомаяк. Как заверили Фархада представители российской Службы внешней разведки, маяк поможет отыскать его в любой точке земного шара. А в воюющем Ираке, куда его командируют, это необходимо – ведь, кроме официальной миссии, Фархад (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 05:16:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69F6B9C90F514C0ABAD6C4953A8159EE055F382C
+magnet:?xt=urn:btih:EFACDCE07F17779CDCB505FA65C8C3F6E3DF38EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694648   (120789) от 26.01.2024
+###  Публикация: 1694252   (121110) от 24.01.2024
 
-Журнал | Наша история №2 (56) (февраль 2024) [PDF]
+Хелена Хейл | Сердце лета (2023) [MP3, Ксения Большакова]
 
->>Журналы
->>Другие журналы
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120789.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+Книга, которая напомнит вам о детстве на даче или в деревне, о лете и первой любви. «Сердце лета» — это история о любви, но она поднимает вопросы домашнего насилия, жизни в маленьких деревнях и проблемы самоопределения.Жанр: современные любовные романы, романтическая эротикаИздательство: CLEVERПродолжительность: 09:10:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54D0534E28015C614BC670766F43CF7384BC0752
+magnet:?xt=urn:btih:1C80CEF538BB5351867631DB823D42C0A899F31F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,57 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694659   (120788) от 26.01.2024
+###  Публикация: 1694277   (121109) от 24.01.2024
 
-LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop rock, alternative rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden (3:27)
-02. Wild (3:01)
-03. Dayglow (3:31)
-04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop rock, alternative rockПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694661   (120787) от 26.01.2024
-
-VA - Trance 2024 [MP3|320 Kbps] <Uplifting Trance>
+VA - Melodically Trance 02 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120787.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eximinds & Costa & Sue McLaren - Into The Unknown (Original Mix) (3:44)
-02. Two&One & Sarah Russell - One More Sunrise (Original Mix) (3:29)
-03. Sarah Lynn & Raz Nitzan & Trance Classics - Safe In Your Arms (Original Mix) (3:29)
-04. Eddie Lung - Run Away (Original Mix) (3:44)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:09:17
+01. Alpha Frequency - Northern Lights (Atmospherika Remix) [6:51]
+02. Adam Sein - Winter Tales (Mind Of One Remix) [5:12]
+03. Virgil Hill & Tudor Wolf - Constanta (ReLoaded Mix 2021) [7:02]
+04. The Husky - Loba (Mark Digital Remix) [5:48](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:08:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE60725C57607B2F08CD0BE93B8BDE928FDB4C1
+magnet:?xt=urn:btih:6FAFB709E43153DE25F13F21029C837D3A211536
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694630   (120786) от 26.01.2024
+###  Публикация: 1694276   (121108) от 24.01.2024
 
-The Luna Sequence - I Only Remember Falling (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Industrial Metal, Drum'n'bass>
+VA - Melodically Trance 01 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120786.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Opposite Shore [05:02]
-02. There, at the Roots [04:43]
-03. Bloom in the Shadows [04:40]
-04. Resonance [04:56](   Читать дальше...   )Жанр: Electronic, Industrial Metal, Drum'n'bassПродолжительность: 00:41:01
+01. L_DG - Summerlust (Tom Bro Remix) [8:29]
+02. Dim Val Pol - Light Breeze (Wavelounger Remix) [8:13]
+03. Miguel Angel Castellini - If You Live In Me (Original Mix) [7:02]
+04. Borena - Alive (Original Mix) [6:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA28ED3005CB74CD18A394DB3F44654377268D53
+magnet:?xt=urn:btih:15C55F731DB00E8EA6092FD91DE45B272C393255
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,28 +195,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694574   (120785) от 26.01.2024
+###  Публикация: 1694317   (121107) от 24.01.2024
 
-Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industrial Metal>
+Журнал | Садовод и огородник №2 (517) (январь 2024) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120785.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Stay Alive [00:03:46]
-02 Z0mbie [00:03:11]
-03 Jic Boi [00:02:58]
-04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82E94B6A253F26BA2780DF5B76E60C795249FC3F
+magnet:?xt=urn:btih:BD94B5F2209F4F4CF467C0745CD43EAC07BFBBF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,275 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694085   (120784) от 26.01.2024
+###  Публикация: 1694241   (121106) от 24.01.2024
 
-Для начинающих любить (2010) HDTVRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм о нелюбви, точнее о неумении любить. Герои картины как будто бы любят друг друга. Все правильно, все как у всех, но вот за этим «как будто» и кроется подмена, исчезает самое главное - подлинность чувств, ответственность, готовность жертвовать. И тогда любовь становится «как бы любовью». И только Ирина, юная героиня фильма, будучи существом поэтичным и (   Читать дальше...   )Производство: Россия / ДебютЖанр: мелодрамаРежиссер: Людмила ГладункоАктеры: Дмитрий Миллер, Александр Власов, Анна Казючиц, Дарья Михайлова, Ирина Климова, Наталья Пярн, Мария Радькова, Мария Шамшина, Екатерина Радченко, Алексей ЦокурСубтитры: отсутствуютПродолжительность: 01:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BD7F33968730F6B2C8CA11DCCD4DCC40DAD0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694764   (120782) от 26.01.2024
-
-Text Workflow 1.8.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA73F609D841322036D53736ACBD35C100D4D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694497   (120781) от 26.01.2024
-
-Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [3:04]
-02. Blue Skies [3:53]
-03. Let's Fall in Love [3:59]
-04. What Are You Doing the Rest of Your Life? [4:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1947BD684FAD26F60F5E6CB6AAEEAC07C39F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694745   (120780) от 26.01.2024
-
-Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India [9:00]
-02. Nunca Mas [5:30]
-03. Marissea [7:43]
-04. Para Nosotros [8:03](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1574A6F11D2333AD16E516E74E69D27D68A07F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694746   (120779) от 26.01.2024
-
-Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Because of You [2:41]
-02. Swinging on the Moon [2:21]
-03. Blues in the Night [3:38]
-04. You Oughta Be in Pictures [1:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3961B08E6C817A894ABD06A6822CE5F157989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694824   (120778) от 26.01.2024
-
-uDock 4.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120778.jpg" />
-</div>
-
-
-###  Подробнее
-
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: © 2024 Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D00A759CA024F5817929BD85D3155919045284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694842   (120776) от 26.01.2024
-
-Fork 2.39 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FB814715C30936FB453F0758673172EF81A8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694496   (120775) от 26.01.2024
-
-Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [1:37]
-02. The Song Is You [4:33]
-03. Street of Dreams [4:13]
-04. On a Clear Day (You Can See Forever) [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA22DA36492E36F41469C511F99DD33FFFADCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694806   (120773) от 26.01.2024
-
-Tipard Screen Capture 1.1.26 [Multi/Rus]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screen Capture — это популярное и простое в использовании программное обеспечение, которое может помочь вам записывать видео и аудио, а также делать снимки экрана для пользователей Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7BD9892162E13A2F51A0B321A7252DD7647ECB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694658   (120770) от 26.01.2024
-
-The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+VA - Cherry on Top Smooth Late Night Saxophone Jazz for Delightful Moments and Pleasant Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120770.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurora - Interlude (1:34)
-02. Queens (3:12)
-03. Send Me To The Wolves (3:10)
-04. Domino (3:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:17
+01. Smooth Jazz Sax Instrumentals -- Relaxing Chill BGM (3:41)
+02. Music for Quiet Moments -- Summer Jazz (3:27)
+03. Jazz Lounge -- Stars are Falling (3:18)
+04. Smooth Jazz Sax Instrumentals -- Light my Soul (3:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1150679ECC9E8959B7C63C72850EA9AB130008B1
+magnet:?xt=urn:btih:AD076C0A2A0F594664B8B6BA952E89742309C6D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +250,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694570   (120769) от 26.01.2024
+###  Публикация: 1694297   (121105) от 24.01.2024
 
-Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Александр Беляев | Голова профессора Доуэля (2019) [MP3, Александр Хорлин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможна ли жизнь человеческого разума вне тела? И, если да, то что ждёт этот разум под властью морально нечистоплотного человека? Ставя свои дерзкие эксперименты, профессор Доуэль и не предполагал, что однажды в роли подопытного животного окажется он сам, а его бывший ученик получит в полную собственность голову своего учителя, чтобы безнаказанно распоряжаться его (   Читать дальше...   )Жанр: научная фантастика, повестиИздательство: Литрес ПаблишингПродолжительность: 07:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FA0B4FBFCF84ABF84FC29D5C6AC8D479C1FA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694399   (121104) от 24.01.2024
+
+4K YouTube to MP3 Pro for Mac 5.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121104.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382A33127313C070ECDDFFFA8A3437E1614339D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694364   (121103) от 24.01.2024
+
+Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Thrash Metal, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121103.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jack Daniel's And Pizza
+A2 Angry Neurotic Catholics
+A3 S.M.D.
+A4 Ground Zero Brooklyn(   Читать дальше...   )Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CA29A734E49334A40D6BE2319A9AB39A3F5CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694328   (121102) от 24.01.2024
+
+Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120769.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wind Dancer (4:14)
-02. Bum In The Sun (3:36)
-03. Larger Than Life (4:12)
-04. Seven Mountain High (5:05)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:41
+01. Friday Night (2:37)
+02. Get On Top (3:34)
+03. Happy Anyway (5:13)
+04. Don't Call Me Up (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB6EAF8B96F920E6F6582072FB9804A8B01C2F3C
+magnet:?xt=urn:btih:B3E21C7804AB1CDB5FE52527E466F9C5D9FF16CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +360,300 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694653   (120767) от 26.01.2024
+###  Публикация: 1694351   (121101) от 24.01.2024
 
-Rob Tognoni - Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal, Crossover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121101.jpg" />
+</div>
+
+
+###  Подробнее
+
+A01. Predator {04:31}
+A02. Carnivore {03:22}
+A03. Male Supremacy {07:31}
+A04. Armageddon {04:13}(   Читать дальше...   )Жанр: Speed, Thrash Metal, CrossoverПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA458C00D10AD82E5DC37E425FAC9FB0A0C4648B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694208   (121100) от 24.01.2024
+
+Erik Andresen's Quartet - GIP (1971) 2018, Jazzaggression Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Gospel [5:08]
+02. Ode a Jean Louis [8:20]
+03. GIP [3:00]
+04. Cordon Bleu [6:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D28C89BE576BFD84A11A8B065F1646C999B7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694393   (121097) от 24.01.2024
+
+Notebooks – Write and Organize 3.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2012-2024 Alfons SchmidПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5CA1BCB39667B2B3FA29EBA66D2B6BC3868E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694207   (121095) от 24.01.2024
+
+Toshiyuki Miyama & New Herd - Misty (1982) 1985, SMS Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round About Midnight [3:05]
+02. Summertime [5:43]
+03. In a Sentimental Mood [5:11]
+04. Aranjuez Concerto [6:21](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F652819C53A351126E29153559DAA225E6776A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694358   (121094) от 24.01.2024
+
+Принцесса Елена / Prinsesse Elena (1913) WEBRip  [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принцесса председательствует на приеме, который устраивают в старом замке во время отсутствия ее почтенного отца. Премьер-министр объявляет, что старый солдат снова одолел своих враждующих соседей. Принцесса, похоже, не слишком радуется, поскольку вспоминает, что среди убитых или раненых мог оказаться молодой капитан, которого она когда-то встречала в мирное время. (   Читать дальше...   )Производство: Дания, Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Хольгер-МадсенАктеры: Бетти Нансен, Svend Aggerholm, Николай Йохансон, Franz Skondrup, Ингеборг Брюн Бертелсен, Занни Петерсен, Кристиан Ланж, Birger von Cotta-Schønberg, Alma Hinding, Олуф БиллесборгПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB1E148454EA0AE104E6DBE21297D0CE0F8060A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694273   (121093) от 24.01.2024
+
+Наталья Щерба | Часодеи (Книга 2). Часовое сердце (2019) [MP3, Юлия Яблонская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121093.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Часовое сердце» - вторая книга знаменитой серии молодёжного фэнтези «Часодеи». Главной героиней серии является юная волшебница Василиса Огнева, попавшая в особый мир, где все умеют управлять временем. В этой книге двенадцать ключников оказываются на Земле, в мире Василисы, и их цель - любой ценой спасти Осталу и Эфлару от столкновения. Увеличить Временной Разрыв (   Читать дальше...   )Жанр: детская фантастика, книги про волшебниковИздательство: ВимбоПродолжительность: 12:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEDB9EE1A2CFF736A95FFC14CC9946972F65B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694350   (121092) от 24.01.2024
+
+File Juicer 4.99 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121092.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2005-2022 Echo OneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576B4E3468F3BF19CEB1BC933D10AC86FA20C78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694329   (121091) от 24.01.2024
+
+Unclutter 2.2.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
+Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2024 Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B50C0192EBB98EAC193874B8113BA06CB46C566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694286   (121089) от 24.01.2024
+
+Викентий Вересаев | Рассказы (2006) [MP3, Вера Васильева, Виктор Татарский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театральный фонограф.
+Викентий Викентьевич Вересаев (1867–1945) – прозаик, поэт-переводчик, критик, литературовед. Родился в городе Туле. В 1894 г. получил диплом врача и несколько лет практиковал в больницах Тулы и Петербурга. В 1904 г. участвовал в войне с Японией. Благодаря своему богатому жизненному опыту и хорошему знанию человеческой психологии, (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вокс Рекордс, 1С-Паблишинг, «Радио России»Продолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA83283371CE2AF296323916E26B0E07ABC58FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694271   (121088) от 24.01.2024
+
+Журнал | Домашний №2 (640) (январь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашний - это журнал для всей семьи! В каждом номере — секреты красоты и здоровья, домашнего уюта, кулинарные советы, рекомендации астролога, уход за домашними питомцами, семейная психология, юридическая консультация, житейские истории и многое-многое другое. Также на страницах журнала вас ждут интересные интервью с любимыми звездами шоу-бизнеса и кино, где они (   Читать дальше...   )Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EBF9D55C9B6783D05DCD65060E1FB3C2C2A0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694335   (121087) от 24.01.2024
+
+Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120767.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rebel And A Gamble (3:37)
-02. Eyes Wide Open (3:42)
-03. Primeval Baby (Tribal) (2:55)
-04. Whisky In The Jar (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:08
+01. All Over Me (5:06)
+02. She Knows (3:34)
+03. 19:20 (3:33)
+04. Destiny (3:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1765E67A0A8F104AB42AE8243FC4B7CAE924EAA0
+magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +661,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694587   (120766) от 26.01.2024
+###  Публикация: 1694204   (121086) от 24.01.2024
 
-Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
+Cyrus Chestnut - My Father's Hands (2022) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120766.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get That Done
-02. Unbreakable
-03. Limitless
-04. Come Whatever May(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:55
+01. Nippon Soul Connection [7:29]
+02. Thinking About You [5:22]
+03. Cubano Chant [4:09]
+04. Baubles, Bangles and Beads [4:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DEDC7BD87A8E65F392011F79215D8DE00310F75
+magnet:?xt=urn:btih:234FFCAD5E7F744929BF8651075D60079E3FCA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +690,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694656   (120765) от 26.01.2024
+###  Публикация: 1694278   (121085) от 24.01.2024
 
-Nubian Rose - Amen (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Журнал | Сваты на даче №1 (109) (январь 2024) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120765.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Memorial (2:29)
-02. Dramatic Day (5:02)
-03. Break Down The Walls (5:43)
-04. Running (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:31
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8DD178116E3BE655E1DF7B920A2BBC4A5598D2F
+magnet:?xt=urn:btih:44E2843F9B1E48A581A4357B2701A25BD761FDC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

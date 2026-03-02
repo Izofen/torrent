@@ -1,3 +1,29 @@
+###  Публикация: 1312731   (530616) от 05.07.2019
+
+3D модели - SQUIR - Audi RS6 sedan 2015 [Mental Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530616.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  AudiФормат: Mental Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5727D644EB999D280C868681FB86AE7BAB0E45B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051907   (530588) от 12.09.2016
 
 Экшены - GraphicRiver - Splash Photoshop Action [ATN]
@@ -644,32 +670,6 @@ Abstract 2.0 - экшен для Вашего творчества.Формат:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD557110A7CEEE302CF473EB314A31391D8C78C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052838   (527271) от 15.09.2016
-
-Экшены - MixArt Vol.1 - Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527271.jpg" />
-</div>
-
-
-###  Подробнее
-
-MixArt - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301B55CB53147EEB368ABF669D24EA7E662E1FB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

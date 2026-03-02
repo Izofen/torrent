@@ -1,25 +1,25 @@
-###  Публикация: 1780029   (70508) от 16.02.2025
+###  Публикация: 1778643   (70813) от 09.02.2025
 
-The Phil Woods Quintet - Mile High Jazz: Live In Denver (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+Max Greger - Super Tanzmusik (1985) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Big Band, Latin Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70508.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues for K.B. [10:40]
-02. Song for Sass [12:30]
-03. Harlem Nocturne [10:27]
-04. Godchild [7:12](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:03:53
+01. Playa Blanca [3:00]
+02. Jenseits von Eden/Abschied ist ein scharfes Schwert [3:19]
+03. Black and White Holiday [3:05]
+04. Time After Time/Send Me an Angel [2:49](   Читать дальше...   )Жанр: Jazz-Pop, Big Band, Latin JazzПродолжительность: 00:40:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8CF40EBE14BB05835F31E84331F1AE5C563B3EC
+magnet:?xt=urn:btih:A202B6BFC16DA959786F4E8CC680EF346730962E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780292   (70507) от 17.02.2025
+###  Публикация: 1778702   (70812) от 09.02.2025
 
-Джейн Остин | Сэндитон (2022) [MP3, Дарья Павлова]
+Футбол. Winline Зимний Кубок РПЛ. Группа B. Зенит (Санкт-Петербург) - ЦСКА (Москва) (04.02.2025) IPTVRip [H.264]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-Несправедливо забытые, незавершенные произведения, опубликованные уже после смерти. Несмотря на незаконченность, «Сэндитон» был успешно экранизирован. Последний, написанный за несколько (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ирина ГуроваИздательство: Аудиокнига (АСТ)Продолжительность: 02:44:59
+Амбиции обоих клубов по статусу превращают эту игру больше, чем в товарищескую или сугубо контрольную. К тому же, новичкам и там, и там необходимо завоёвывать место составе. А не очень довольный собой на этот момент «Зенит», вероятно, постарается перевернуть ход событий последнего времени и большими силами пойдёт вперёд, рискуя нарваться на быструю контратаку.
+Футбол: (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 02:10:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0598ABE58729DB80D7732C7B0A376414E84A1A3
+magnet:?xt=urn:btih:512575D046B581F074EA5C330844A4BEA10125CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,57 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780204   (70506) от 17.02.2025
+###  Публикация: 1778639   (70811) от 09.02.2025
 
-El Leyton & los Cerrucos - Aires de Lornillo (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Macacos (5:03)
-02.  Micro Pa'l Parque Inglés (6:50)
-03.  Lornillo Blues (7:15)
-04.  Chuleta`s Swing (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57B795EC333959A16BAC28D6BD9F11992C89BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780300   (70505) от 17.02.2025
-
-Avatarium - Between You, God, The Devil And The Dead (2025) [FLAC|Lossless|image + .cue] <Doom Metal>
+Mad Parish - The Dust Of Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70505.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Long Black Waves
-2. I See You Better In The Dark
-3. My Hair Is On Fire (But I'll Take Your Hand)
-4. Lovers Give A Kingdom To Each Other(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:42:39
+01 - Prophecy (01:31)
+ 02 - Defecther (04:33)
+ 03 - Possess The Child (04:46)
+ 04 - Outerest In Irisius (01:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B67EE0F672B8D689C7EB383A3873A1F383A17AA4
+magnet:?xt=urn:btih:8851EEE800D7A1DD021144132F71C5AEE721030E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,57 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780207   (70504) от 17.02.2025
+###  Публикация: 1778366   (70810) от 09.02.2025
 
-Kulhu & the Vigilantes - Solace In The Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Catch the Devil (4:48)
-02.  Solace in the Blues (5:54)
-03.  Nobody's Alone (5:25)
-04.  Air / Despair (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AADAD9E543D4768830051F6B24060FAD4165C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780209   (70503) от 17.02.2025
-
-Glass Hearts Harmony Club - Misfit Love Letter (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Ebonheart - Face our Fear (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Progressive-Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70503.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dizzy Parade (5:58)
-02.  Bit By A Black Cat (4:48)
-03.  When The Daylight Ends (4:09)
-04.  Misfit Blues (5:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:16
+01. Face our Fear [00:04:02]
+02. The Bringer of Light [00:03:28]
+03. Hold me Now [00:04:30]
+04. Entity [00:03:38](   Читать дальше...   )Жанр: Power, Progressive-MetalПродолжительность: 00:37:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6443B54EB9F31BA9F499E8177C1F01A2B953CFB
+magnet:?xt=urn:btih:CBFD8D647EAAFF5C689934C38964F4094F4F25DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,27 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780284   (70502) от 17.02.2025
+###  Публикация: 1778655   (70809) от 09.02.2025
 
-Джейн Остин | Гордость и предубеждение (Радиопостановка) (2013) [MP3, Ирина Киреева, Евгения Добровольская и др.]
+Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautrock, Post-Punk>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70502.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Английская классика.
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-Как правильно строить отношения? Как разобраться, кто заслуживает вашего внимания, а кто его не достоин? Можно ли судить по внешнему красивому облику? (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИП Сергей ГригорянПродолжительность: 02:26:32
+1. Crispy Skin (06:19)
+2. Building 650 (03:51)
+3. Blood on the Boulders (05:46)
+4. Fieldworks I (02:23)(   Читать дальше...   )Жанр: Indie Rock, Krautrock, Post-PunkПродолжительность: 00:44:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9224F2DD1EB52B1CFD432F646A744353927DB929
+magnet:?xt=urn:btih:A3565F68CEA0700720CF649693FDDDF219D39D94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,144 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780190   (70501) от 17.02.2025
+###  Публикация: 1778669   (70808) от 09.02.2025
 
-Big Al and the Heavyweights - Blues Power (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Big Freight Train (4:54)
-02.  Blues Power (3:36)
-03.  IF (3:40)
-04.  Red Line (5:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5868262BAD7307B686CC27FB30089541CC45B0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780233   (70500) от 17.02.2025
-
-The Heavy Souls - Have You Got Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Have You Got Soul (4:01)
-02.  She Devil (3:47)
-03.  Rise And Fall (5:07)
-04.  Sleepwalking (4:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C680AF1BBC9B70AFE74AE700161BCE744E2165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780206   (70499) от 17.02.2025
-
-Flickering Alley - Midnight Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Distant Ember (2:22)
-02.  Vivid Paradox (2:01)
-03.  Drifted Silhouettes (2:32)
-04.  Veiled Sundown (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE21B5DC7737DAB97533B47D2AE0C6C3243768C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780203   (70498) от 17.02.2025
-
-Bubba Coon - Dream Weaver Studio the First 100 Years (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  oh susanna dave corcoran (3:15)
-02.  afternoons alone hank morris (2:25)
-03.  inside a jukebox roger lynam (4:43)
-04.  the lottery mark pelletier (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BA5C2EA8F54E63676CCBD490D494272FFBCED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780201   (70497) от 17.02.2025
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 08 (2025) [MP3|320 Kbps] <Trance, Progressive>
+VA - Redux Selection, Vol. 3 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70497.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ILYIN & Darix - Tesseract (Radio Edit) [3:11]
-02. Rene Ablaze - Red Sea 2030 (Ron with Leeds Remix) [4:47]
-03. L1mixe - Unknown Region (Original Mix) [3:59]
-04. Luciano Amaya - Todo A Su Ritmo (Original Mix) [6:54](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:59:58
+01. Kiyoi & Eky vs. Atragun - Heritage (Matthew Dreamer Extended Remix) [7:24]
+02. Brian McCalla - One Way Trip (Extended Mix) [6:10]
+03. Wesley Verstegen - Universe (Extended Mix) [6:08]
+04. Mark Hide - S.E.T.I. (Extended Mix) [6:58](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:556383BE9606C9B2C598919B7BFBBC0B895EF025
+magnet:?xt=urn:btih:88BB702AD8FFADC62A5EF52681D839312734D080
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +170,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780275   (70496) от 17.02.2025
+###  Публикация: 1778670   (70807) от 09.02.2025
 
-Эмили Бронте | Грозовой перевал (2020) [MP3, Григорий Перель, Наталья Казначеева]
+Первая передача на НТВ. Автомобильная передача (09.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автокатастрофа в райцентре Благодарный: кто был за рулем, в курсе даже судья и прокурор. Но судят совершенно другого. Что произошло на дороге?
+ Виновник ДТП установлен и наказан. Почему же потерпевший должен возмещать ему вред?
+ «SOS!» — кричит указатель уровня топлива. Что делать, если нет возможности залить рекомендуемый бензин?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF02176C162601F5724A06EB6AB02FC41801CEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778584   (70806) от 09.02.2025
+
+Делия Росси | Лёд твоих объятий (2022) [MP3, Екатерина Пермякова]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70496.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Литература 19 века
-Эмили Бронте (1818–1848) – английская писательница и поэтесса, автор романа «Грозовой перевал», а также многочисленных талантливых стихотворений.
-«Грозовой Перевал» (1847) – единственный роман, написанный Эмили Бронте без участия сестер. Эта книга принесла писательнице славу.
-На вересковых пустошах Йоркшира «Грозовой Перевал» скрывает (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталия РоговаИздательство: ООО «Эвербук», StorySide ABПродолжительность: 14:56:22
+Когда отец отправил меня в древний замок, я и представить не могла, во что выльется эта поездка. Ночь, проведённая в древнем склепе, портрет Истинного Ледяного, вечеринка в старинном стиле — думаете, это всё мелочи? Как бы не так! Оказалось, что это лишь звенья цепи, накрепко связавшей меня с человеком, имя которого было предано забвению много лет назад, а в душе (   Читать дальше...   )Жанр: любовно-фантастические романы, романтическое фэнтезиИздательство: АСТПродолжительность: 13:26:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD5FDEE4F5B174EE93EA30D0CE42C4DE08BFFF80
+magnet:?xt=urn:btih:69CC5A8077694152DF50379B87DF179955DAF096
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +224,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780130   (70495) от 17.02.2025
+###  Публикация: 1778739   (70805) от 09.02.2025
 
-Rosetta Stone - Nothing Is Sacred (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+Своя игра (09.02.2025) WEBRip [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70495.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-✧ 01 - Don't Fear The Reaper (00:03:40)
-✧ 02 - The White Room (00:04:58)
-✧ 03 - Black Hole Sun (00:04:52)
-✧ 04 - In The Light (00:06:33)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:46:02
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E312DFDDF6D79F9B86BE4A671F584617327225F
+magnet:?xt=urn:btih:DED43C780C931D082880AC49D7490BA1E89FEA74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780182   (70494) от 17.02.2025
+###  Публикация: 1778647   (70804) от 09.02.2025
 
-The Smoothies - The Last Goodbye (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70494.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Losing My Head (3:09)
-02.  I Need You Baby You're My Northern Star (2:55)
-03.  Gone Like the Wind (2:55)
-04.  Family Man Blues (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:53
+01 4AM
+02 Ponytail
+03 Cynical
+04 Favourite Girl(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:29:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C6459B203017128399C625CA90EB13884120522
+magnet:?xt=urn:btih:332285D177EC2A17D98D26180082EA87C96262A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780344   (70493) от 17.02.2025
+###  Публикация: 1778657   (70803) от 09.02.2025
 
-Striker - Ultrapower (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+Inhaler - Open Wide (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70493.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Circle Of Evil 3:44
-02. Best Of The Best Of The Best 3:20
-03. Give It All 4:15
-04. Blood Magic 4:36(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:45
+✧ 01 - Eddie In The Darkness (00:03:35)
+✧ 02 - Billy (Yeah Yeah Yeah) (00:04:05)
+✧ 03 - Your House (00:03:47)
+✧ 04 - A Question of You (00:03:42)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EADFEB39E5EAE01ADC9825D89A5751094E60814D
+magnet:?xt=urn:btih:2A43A46E05BB33BE0EE63A28D6D1A2F63055FCAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,173 +308,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780224   (70492) от 17.02.2025
+###  Публикация: 1778764   (70802) от 09.02.2025
 
-Joe Pass - Live At Elder Hall, Adelaide (1990) 1995, ABC [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends [3:05]
-02. Nature Boy [4:42]
-03. Blues in A [5:04]
-04. Tarde [6:51](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD7C6816718D1B985902993305FE0AEAD584E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780227   (70491) от 17.02.2025
-
-Art Farmer - The Best Of Art Farmer (1990) Epic Associated [FLAC|Lossless|tracks + .cue] <Bop, Cool, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawl Space [8:59]
-02. Chanson [8:39]
-03. Something You Got [6:19]
-04. Flute Song [8:11](   Читать дальше...   )Жанр: Bop, Cool, Jazz-FunkПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF2361025ECB6EC3442C4BD977759013B9B3CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780218   (70490) от 17.02.2025
-
-Joe Pass - Virtuoso #3 (1977) 1992, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offbeat [4:50]
-02. Trinidad [6:14]
-03. Nina's Blues [5:19]
-04. Sevenths [4:15](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0872E021A49BE45BDAA3818035776F837EC44142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780216   (70489) от 17.02.2025
-
-Stolen Lives - Luciferův Efekt (2019) [FLAC|Lossless|image + .cue] <Thrash, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Háček 02:35
-02. Nevyhnutelně 01:15
-03. Luciferův efekt 02:32
-04. V zapomnění 02:19(   Читать дальше...   )Жанр: Thrash, HardcoreПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A8E416AE6D33803E1D44AB0F9B28FCA7ECEE40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780222   (70488) от 17.02.2025
-
-Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here and Now (feat. Bill Evans) [5:02]
-02. Silent World (feat. Mitchel Forman) [4:47]
-03. La Casa [5:23]
-04. The Peace Inside (feat. Till Bronner) [4:54](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD110E0C43D7E5219749FD2FA8D4C5725613D51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780287   (70487) от 17.02.2025
-
-Джейн Остин | Доводы рассудка (2024) [MP3, Александр Бордуков]
+Матильда Старр, Мира Славная | Спорим, ты влюбишься? (2019) [MP3, Наталия Штин]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70487.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Классика на все времена (Английская литература).
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-Чем же руководствоваться молодой девушке: велением сердца или доводами рассудка?
-Сюжет романа несложен – встреча Энн (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Елена СурицИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 09:32:13
+В первый же день на новой работе в должности администратора я попала в передрягу: владелец нашего отеля заключил пари, связанное со мной. И теперь либо я ему подыграю, либо он останется без отеля. Правильно было бы отказаться от этой авантюры. Но мне тоже кое-что от него нужно…Жанр: остросюжетные любовные романы, современные любовные романы, юмористическая прозаИздательство: АрдисПродолжительность: 05:54:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD4CA97F2BF1438A52E80A4E243C500BE7F4E658
+magnet:?xt=urn:btih:9DC00FD37FF49F71A25667A685380B3A750EA803
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,26 +334,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780291   (70486) от 17.02.2025
+###  Публикация: 1778616   (70801) от 09.02.2025
 
-Джейн Остин | Любовь и дружба. Леди Сьюзен. Замок Лесли (2024) [MP3, Дарья Павлова]
+Дэвид Симандз | Исцеление чувств (2015) [MP3, Неизвестен]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70486.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джейн (Остен) Остин (1775–1817) автор известных во всем мире книг «Гордость и предубеждение», «Эмма», «Доводы рассудка», родоначальница жанра классического женского романа.
-Небольшой по объему роман «Любовь и дружба», написанный Остин в пятнадцатилетнем возрасте, представляет собой пародию на многословные романтические сочинения, столь популярные в XVIII веке. Лаура, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Александр ЛивергантИздательство: Аудиокнига (АСТ)Продолжительность: 05:47:00
+Многие из нас никак не могут примириться со своими эмоциями. Эмоциональные расстройства выражаются в депрессиях, отсутствии самоуважения, болезненном стремлении к совершенству. Боль прошлого остается с нами, несмотря на то, что вызвавшие ее причины давно забыты. Доктор Симандз написал книгу, в которой органично соединились четкое библейское богословие, глубинная (   Читать дальше...   )Жанр: ПсихологияИздательство: ТриадаПродолжительность: 05:16:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895006A1612E433E38A8AB759DF0CE145B9388B0
+magnet:?xt=urn:btih:7676670A3A18846C9F45E17DFD0618F0C4955C45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +360,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780178   (70485) от 17.02.2025
+###  Публикация: 1778805   (70800) от 10.02.2025
 
-Murray Kinsley - Eye Of The Storm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Шрифты - MyFonts - Arboria™ [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт назван в честь столицы планеты Монго, футуристического города с влиянием ар-деко в зданиях.
+
+Кириллица не поддерживается.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B85BA203EDBB6EB44D42F343D575CFE012BA90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778959   (70799) от 10.02.2025
+
+VA - Electro Swing Back to Old School (Jazzy Electro and Vintage Swing Reloaded) (2013) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70485.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Snake Farm (5:13)
-02.  Dance With Me (4:54)
-03.  Dressed In Black (4:28)
-04.  Hold On (5:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:02
+01.  Réseau - Caravan (4:35)
+02.  Emsy Prank - Backside (Original Mix) (3:20)
+03.  Cristian Stolfi - Escucha la Musica (Original Mix) (6:00)
+04.  Sugarpie And The Candymen - Tell Me Boy (2:45)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 01:20:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566AFE9E786CD9B3535509B110D2C72BA024895B
+magnet:?xt=urn:btih:EB0AC97961D020066781E66A1D2A67C42127AAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,28 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780179   (70484) от 17.02.2025
+###  Публикация: 1778915   (70798) от 10.02.2025
 
-Ping Rose - Conjure Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Журнал | Просто, вкусно и полезно! №2 (февраль 2025) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Cloverhill Stomp (3:42)
-02.  Don't Drink Me Dry (4:52)
-03.  Conjure Man (4:35)
-04.  Darkness (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:09
+Журнал кулинарных рецептов. Все рецепты в этом журнале от читателей, они проверены ими не раз, из доступных продуктов и с простым способом приготовления. А чтобы довести их до совершенства - сделать еще вкуснее и полезнее, то тут вам помогут комментарии специалистов: шеф-повара и врача-диетолога.Жанр: КулинарияИздательство: Александр ИоффеФормат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:273BD1AF74FD1DF041C47E22D09CD436819A77BF
+magnet:?xt=urn:btih:9DE587291CE598192C286FFB11F567128D275164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,28 +443,275 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780200   (70483) от 17.02.2025
+###  Публикация: 1778686   (70797) от 10.02.2025
 
-Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Роман Рябцев - Слушай воздух (2025) [MP3|320 Kbps] <Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Say Hey Now Baby (3:58)
-02.  Fly Me Home (3:52)
-03.  Whiskey and Women (2:52)
-04.  Open the Door (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:36
+01 - Нажми на кнопку [00:03:25]
+02 - Странные танцы [00:05:18]
+03 - Песни ни о чём [00:04:19]
+04 - Рано или поздно [00:04:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D86184BB933ED45DF50FBA566D583E87114338A4
+magnet:?xt=urn:btih:6BC2E7EA91660968316CA4012121627834051FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778842   (70796) от 10.02.2025
+
+Журнал | Монокль №7 (1375) (10-16 февраля 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7A1DBA2A4FE10149B3E02EFD5A095B0D05B487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778955   (70795) от 10.02.2025
+
+Шрифты - MyFonts - Revia [TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revia — семейство шрифтов display sans serif, доступное в 6 весах. Щедро сжатое с высококонтрастными штрихами, Revia представляет собой элегантное, компактное и универсальное семейство шрифтов с высокими строчными буквами (высокая высота x). В то время как более тонкие веса полагаются на элегантность, более толстые — темнее, особенно черный, который выглядит как (   Читать дальше...   )Формат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34A34996E9E3B9E952F0B774DA580B9B11D4131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778964   (70794) от 10.02.2025
+
+VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alban Chela - Vida Loca (2:20)
+02. Barış Çakır - Sunshine (3:00)
+03. Deepest - Bastanna (I'll Wait) (3:00)
+04. MIRAC SARI - My Focus Is You (2:02)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B92E020DBC291B3F768F7B8F354D07A76D35FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778894   (70793) от 10.02.2025
+
+Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lonely Boy (02:33)
+ 02 - Put Your Head on My Shoulder (02:40)
+ 03 - Puppy Love (02:44)
+ 04 - Hello, Young Lovers (02:37)(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81AEC0FA9B99E6863D6951B16CC6FE128D02657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778905   (70792) от 10.02.2025
+
+На Греческой улице / The House on Sorority Row (1983) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь девушек из женского общества — Кэти, Вики, Лиз, Джини, Дайан, Морган и Стиви — празднуют выпускную церемонию в своём женском доме, расположенном в дальнем конце ряда домов женских обществ. Их празднование прерывается властной воспитательницей миссис Слейтер, которой не нравится план девочек устроить выпускной вечер. Те решают проучить хозяйку. Невинная шалость (   Читать дальше...   )Производство: США / Artists Releasing Corporation (ARC), Film Ventures International (FVI), VAEЖанр: ужасыРежиссер: Марк РосманАктеры: Эйлин Дэвидсон, Кейт Макнил, Лоис Келсо Хант, Харли Джейн Козак, Майкл Кун, Кристофер ЛоуренсПеревод: профессиональный двухголосый закадровыйЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: Качество видео: BDRip AVC || Исходник
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39098CE925924AC8B4225B0E56E351688DC118DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778923   (70791) от 10.02.2025
+
+Sante DICOM Editor 10.1.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
+Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF680F03A8ED7142E48E6842EEB55D146EEB7A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778829   (70790) от 10.02.2025
+
+Райли  Блэк | Как умирали динозавры (2024) [MP3, Елена Солодилина]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта аудиокнига уникальна. Райли Блэк воспроизводит картину событий массового вымирания мелового периода на примерах конкретных животных так, словно присутствовала там и тогда сама.
+Все начинается в преддверии катастрофы, а затем, глава за главой, мы следуем по пути героев Райли Блэк в разные дни их жизни: через час, через день, месяц, год, столетие, вплоть до миллиона (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 09:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE12EA51E2B0BEBDC5CD5C1BAF53AC0AA8FB160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778922   (70789) от 10.02.2025
+
+Sante DICOM Viewer Pro 14.1.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sante DICOM Viewer Pro — это профессиональная программа для просмотра DICOM, анонимайзер, конвертер, клиент PACS, мини-сервер PACS, программа для записи CD/DVD пациента (со средством просмотра) и многое другое.
+Sante DICOM Viewer Pro не является «еще одним средством просмотра DICOM» , созданным с использованием свободно доступных библиотек, таких как dcmtk, itk и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC21B529A0E85659D76372D656C40DD143A9A706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778673   (70788) от 10.02.2025
+
+Ефрем Амирамов - Вся жизнь куда-то катится (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_70788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белый аист
+02. Молодая
+03. Соловей и ворона
+04. Неслучайная песня(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC33E4FCEB4B46D157704AFE6FA58BEA6653E6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

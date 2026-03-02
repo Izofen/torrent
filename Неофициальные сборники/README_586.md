@@ -1,3 +1,206 @@
+###  Публикация: 1590753   (187704) от 16.11.2022
+
+George Kopaliani - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So This is Love
+02. In a Heavy Body (Original Mix)
+03. Sunset
+04. Distant(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 03:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E55DD16F667FB72CCCC47DDAAF5D512695C8A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591033   (187694) от 16.11.2022
+
+VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - After Hours (6:01)
+02. Ezhel - Küvet (5:01)
+03. Rihanna - Loveeeeeee Song (4:56)
+04. Cigarettes After Sex - Apocalypse (4:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662415   (187419) от 19.09.2023
+
+Kerala Dust - Compilation (2023) [MP3|320 Kbps] <Experimental, Blues House, Deep House, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187419.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Kylie
+03. Maria
+04. Moonbeam, Midnight, Howl
+05. Night Bell (Arizona)(   Читать дальше...   )Жанр: Experimental, Blues House, Deep House, DowntempoПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D00C4906097188B207DFBAB0639941733FFDF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661929   (187039) от 20.09.2023
+
+Paul Mauriat - World Love Sounds (1998) Box Set: 5 CD [OGG Vorbis|480 Kbps] <Funk / Soul, Pop, Classical>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Blue
+02. I Like Chopin
+03. El Bimbo
+04. Pearl Fisher(   Читать дальше...   )Жанр: Funk / Soul, Pop, ClassicalПродолжительность: 04:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E482D1C3B5469696A561EF0ADDCB9E019F26BBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591317   (187024) от 18.11.2022
+
+VA - 30(16) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста - Вечно Молодой (4:28)
+02. Леонид Агутин Feat. Jony - Мир Зеленого Цвета (3:52)
+03. Лолита - Марлен (3:38)
+04. Руки Вверх, Hammali & Navai - Последний Поцелуй (Malevich Remix) (3:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C0CEFB41EAB2CBC622881F6C43117A04306919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662612   (187013) от 20.09.2023
+
+Gorky Park - Collection (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_187013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парк Горького, это единственные отечественные музыканты, создававшие творчество на английском языке, которых можно и приятно слушать. Эту команду впервые я услышал ещё до увлечения роком, в далёком 1990 году. По тв в какой то передаче показали клип Bang. И помню как мы с пацанами во дворе обсуждали дружбу с Америкой и думали ну теперь то мы заживём. Занавес железный (   Читать дальше...   )01. Moscow Calling
+02. All Roads
+03. Politics Of Love
+04. Tomorrow(   Читать дальше...   )Жанр: RockПродолжительность: 03:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9576F746B0E6DF3E3884E446FF00B8856444AB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663708   (186399) от 23.09.2023
+
+VA - Music News vol.299 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_186399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alina Baraz - Keep Me In Love (02:36)
+ 002. Adil - Госпожа (Speed Up) (02:19)
+ 003. Alan Walker - The Spectre (Slowed Remix) (03:35)
+ 004. Alena Letova - Без Тебя (Glazur & XM Remix) (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84843D2AE7A4BF49E8DA7F3ACFA1410E72260C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663762   (186382) от 23.09.2023
 
 VA - Music News vol.300 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - Workout Music 2022 [MP3|320 Kbps] <Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A6EC4F9D0E47870A813EBB309D9F24A450CCE86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427304   (183219) от 28.11.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 27.11.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foushee - Deep End (2:21)
-02. Jason Derulo - Take You Dancing (3:10)
-03. Pascal Letoublon & Leony - Friendships (3:02)
-04. Dotan - NUMB (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32CB84986B55EAC4A416A95DA6E6B0B10BE711F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664912   (183049) от 29.09.2023
-
-VA - TOP Non-Stop 2000-2009 - Deep House. Part 3 (2023) [MP3|192-320 Kbps] <Deep House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jori Hulkkonen - We Are Rising Sun (2002) (3:56)
-02. Glance - Caj (2000) (3:14)
-03. Bougie Soliterre - Superficial (dub mix, 2000) (4:40)
-04. Mr. Fuzz - Naleli (Nikkie D 'Wet' remix, 2008) (6:53)(   Читать дальше...   )Жанр: Deep House, Techno HouseПродолжительность: 08:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5110A0438D45BDAD2680E1A4F4AE42D00D3E2320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665085   (183045) от 29.09.2023
-
-VA - Girl of My Dreams (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Smith - I Got a Woman [03:57]
-02. Delvon Lamarr Organ Trio - Al Greenery [03:21]
-03. Hammond Organ Trio - Alligator Bogaloo [04:46]
-04. Booker T. & the M.G.'s - Green Onions [02:55](   Читать дальше...   )Жанр: Hammond, Instrumental, JazzПродолжительность: 06:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78190D42C8B9AB4CF94E2DBE148A9C90ABFEF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427458   (183010) от 28.11.2020
-
-Jimi Hendrix - Greatest Hits (2CD) (2010) Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 01:19:38
-02-01. Stone Free (1967) (03:43)
-02-02. Freedom (1970) (03:27)
-02-03. Valleys of Neptune (1969) (03:57)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8E657B23BA9D2505810FF98F0023B0FF0117C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592331   (182941) от 23.11.2022
-
-VA - Music For You vol. 25 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - No Quarter (07:02)
- 02. Jade Warrior - Three Horned Dragon King (06:10)
- 03. Sebastian Hardie - Openings (13:08)
- 04. Curved Air - Vivaldi (07:33)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC59202C7FBBEC3A6412F0D2D29131DADA4F519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665110   (182906) от 29.09.2023
-
-VA - Dance, Disco, Club (2023) [MP3|320 Kbps] <Dance, Disco, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vision - Heaven (feat. Andreya Triana) (7:37)
-02. Angelo Ferreri - Oh Honey (6:40)
-03. Mark Knight & Beverley Knight - Everything's Gonna Be Alright (Extended Mix) (6:10)
-04. Alex Preston - Love You Better (5:29)(   Читать дальше...   )Жанр: Dance, Disco, ClubПродолжительность: 04:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFB069D2D64E0C69C4640F6661D632A271D0745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427588   (182285) от 29.11.2020
-
-VA - Record Super Chart 664 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-02. Tiesto - The Business (2:43)
-03. Foushee - Deep End (2:21)
-04. Slava Marlow - Снова я напиваюсь (1:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC9ADD6883DDF49A5B180F7EA4D9B63C1806E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

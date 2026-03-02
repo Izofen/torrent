@@ -1,103 +1,22 @@
-###  Публикация: 492484   (247849) от 05.05.2012
+###  Публикация: 493264   (248490) от 07.05.2012
 
-[Wallpapers] Computer Desktop Wallpapers Collection (05.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E19A7FF1B6830F82F164D0D101635ECE8930FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833770   (247848) от 02.11.2025
-
-Джессами Хибберд | Синдром самозванца. Как вырваться из ловушки токсичного мышления (2021) [PDF, MP3, Дмитрий Шабров]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синдром самозванца – это явление, при котором люди считают себя недостойными успеха. Они убеждены, что получили все благодаря удаче или другим не зависящим от них причинам, и боятся, что их некомпетентность и несостоятельность в конечном итоге будут раскрыты. Поэтому у таких людей нет возможности радоваться своим достижениям, а значит, и вообще жизни.Жанр: ПсихологияИздательство: БиблосФормат: PDFПродолжительность: 07:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3592A4B5389392C13594FAC5F37A542A4E1D14CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833955   (247846) от 02.11.2025
-
-Андрей Шляхов | Сказочная анатомия (2025) [FB2, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Витаминкин из Университета тридевятого царства приглашает юных читателей в удивительное путешествие по человеческому организму!
-
-«Сказочная анатомия» Андрея Шляхова – это волшебный учебник, в котором наука встречается со сказкой!
-(   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураИздательство: АСТФормат: FB2, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FCF61B910CE1A9F3979DAC9723BEDC2FE39B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492486   (247845) от 05.05.2012
-
-[Wallpapers] Desktop wallpapers (05.05.12)
+Хоккей. Чемпионат мира 2012. Группа B. Россия - Норвегия (2012) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247845.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Россияне уже восемь лет не играли с норвежцами на чемпионатах мира, поэтому новая встреча со скандинавами пройдет, что называется, с "чистого листа". Однако подопечным Зинэтулы Билялетдинова не стоит недооценивать соперников, которые в последние три сезона дважды проходили в плей-офф мирового первенства, обыгрывая, например, сборные Швеции и Швейцарии...Жанр: СпортПродолжительность: 01:40:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2B71588179011E09E640805A431C6E43C073631
+magnet:?xt=urn:btih:1524DF726967D0CCAD50BB3E580392E5FB932ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833973   (247844) от 02.11.2025
+###  Публикация: 492938   (248489) от 07.05.2012
 
-PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
+Происхождение / Creation (2009) BDRip
 
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247844.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+В середине XIX века английский натуралист Чарльз Дарвин публикует свои изыскания «Происхождение видов», способные поставить под сомнение существование Бога. Революционная теория эволюции не только сталкивает учёного с обществом, но и разрушает взаимоотношения с набожной женой.Жанр: Драма, БиографияРежиссер: Джон ЭмиелАктеры: Пол Беттани, Дженнифер Коннелли, Йен Келли, Гай Генри, Марта Уэст, Анаболена Родригез, Пол Кэмпбелл, Зак Дейвис, Тереза Чёрчер, Фрея ПарксПеревод: Профессиональный (многоголосый, закадровый) R5Продолжительность: 01:48:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED396A64221429BB660598AAF839B07F72B95ED
+magnet:?xt=urn:btih:FCB10DB3344572B294B86BD7EF0F6A3C0B27FBAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,490 +50,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 491923   (247843) от 05.05.2012
+###  Публикация: 493262   (248486) от 07.05.2012
 
-VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) [FLAC|Lossless]< House, Future Jazz, Experimental, Downtempo, Electro>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247843.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel & Dresden feat. Molly - Tracking Treasure Down (original mix)
-02. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
-03. Veerus, Maxie Devine - Funky Beats (Original Mix)
-04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
-05. Dave Nadz & Leblanc - Haamiah (Original Mix)
-06. Sheef Lentzki - Lucifer (Teho Remix)
-07. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
-08. Dj Soundlife - Cloudburst (Extended Mix)
-09. HouseEssence - That Before (Original Mix)
-10. South Ground - Let's Rock (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833975   (247842) от 02.11.2025
-
-Своя игра (02.11.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ирина Петрова, Сергей Коновалов, Кристина КораблинаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2F4BC2112F136F46F62CC4DFE46B64AB7E5C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492142   (247841) от 05.05.2012
-
-VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
-002. Sean Tyas feat. David Berkeley - Believe (Original Mix)
-003. Vast Vision - Black Shores (Original Mix)
-004. Trilucid feat. Sophie Tusnelda - Bring You The Sun (Original Mix)
-005. Vada - Fire In The Sky (Original Mix)
-006. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix)
-007. Solid Stone feat. Hanna Finsen - Helpless (Original Mix)
-008. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
-009. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix)
-010. Simon Patterson feat. Lucy Pullin - Keep Quiet (Original Mix)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491971   (247840) от 05.05.2012
-
-De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autistic Savant (06:38)
-02. 44 (06:41)
-03. Maximum Sentence (05:39)
-04. Seppuku (04:20)Жанр: Technical DeathПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492252   (247839) от 05.05.2012
-
-VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
-02. Orbion - Aurora (Sensetive5 Remix)
-03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
-04. Eitan Carmi - New West (Cristian Poow Remix)
-05. S.K.A.M. - Outside The Box (Original Mix)
-06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
-07. Sidney Samson - Get Low (Original Mix)
-08. Freza - La Luna (Original Mix)
-09. Mode B - Phantom (Original Mix)
-10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833977   (247837) от 02.11.2025
-
-Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма недурственное (по утверждению разработчика) приложение для SIP-телефонии. Обширные настройки качества и безопасности подтверждают данное мнение. Ничего лишнего.
-Sipnetic – это бесплатный программный IP-телефон, разработанный на базе протокола SIP. Приложение позволяет подключаться к вашему провайдеру VoIP, облачной АТС или корпоративному серверу телефонии.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: IPTONПоддерживаемая ОС: Android 4.0.1+ (реком. 7.0+)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492018   (247836) от 05.05.2012
-
-VA - Top Club Hits Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mads Arp Feat. Julie Harrington – Alive
-02. DJ Favorite & Вероника Данилова - Бессонница (Radio Edit)
-03. Remady feat. Manu-L - Higher Ground
-04. Aaizu Yazoo - Megaton (AMO + NAVAS Rework)
-05. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
-06. Cathy Burton & Omnia - Hearts Connected (Original Mix)
-07. Pat Farrell feat. Max'C - Stronger (Club Mix)
-08. Jan Blomqvist - I Don't Think About You (Original Mix)
-09. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
-10. Muzikjunki - Crazy 4 You (Club Mix)2012Жанр: Dance, ClubПродолжительность: 05:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFAE2BC3D4A5C598C54EDF8BED6D44E1854971B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833980   (247835) от 02.11.2025
-
-NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247835.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
-Запись концерта, прошедшего в рамках американского тура "Seize the Fate" 12.03.2023 в "HOUSE of BLUES" San Diego.1. Seize the Fate
-2. 雷霆 -RAITEI-
-3 .炎天 -ENTEN-
-4. Change the world(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E218E3628B47727B4236519D289BD42271DE237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492110   (247834) от 05.05.2012
-
-VA - Seashore Desire #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247834.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
-2. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix) (7:55)
-3. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) (6:50)
-4. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix) (8:12)
-5. Roman Loud - Beach At Sunrise (Original Mix) (8:24)
-6. W&W - Beta (Original Mix) (5:20)
-7. Vast Vision - Black Shores (Original Mix) (8:34)
-8. Ralphie B - Bullfrog (Original Mix) (8:55)
-9. Steve Brian & Cressida - Cambodia (Original Mix) (8:06)
-10. Fadios & Raneem - Chromium (Max Graham Remix) (6:47)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 06:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ADA3CDED5989FE3D25043CBDE550B31D476C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833981   (247833) от 02.11.2025
-
-Бобби Джо и изгой / Bobbie Jo and the Outlaw (1976) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби Джо Бейкер, бесцельно скитающаяся по стране, бросает работу в такси и присоединяется к Лайл Уилеру, подражающему преступникам Дикого Запада, чтобы отправиться в путешествие, полное краж, хаоса и убийств...Производство: США / American International Pictures (AIP), Caldwell ProductionsЖанр: драма, мелодрама, криминал, триллерРежиссер: Марк Л. ЛестерАктеры: Марджо Гортнер, Линда Картер, Джесси Винт, Мерри Линн Росс, Белинда Баласки, Джин Дрю, Пег Стюарт. Геррит Грэм, Джон Дурин, Вёрджил ФрайПеревод: авторский (Сергей Завалишин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB87B52D8E36C7D039F26B785B6FB0EBEFAAC51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492292   (247832) от 05.05.2012
-
-Журнал | АиФ. Спецвыпуск. Здоровье № 5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весну, как известно, ждут все, кроме аллергиков, у которых в это время года обычно происходит обострение недуга. А людей, страдающих аллергией, с каждым годом становится всё больше. Сегодня, по статистике, четверть жителей индустриально развитых городов - аллергики. Многие из них просто не ходят по врачам, потому что убеждены: этот недуг неизлечим! Это не так! Даже в самых запущенных случаях можно добиться стойкого длительного улучшения, что для любого пациента равносильно выздоровлению. Как? Ответ на этот вопрос вы найдёте в сегодняшнем спецвыпуске. По традиции на вопросы читателей отвечают самые авторитетные врачи-аллергологи.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0648C3AC449D38E14EDF1783E9B814242C9097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492202   (247831) от 05.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (04.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1B8FFA0279799023262F28DC8465D45BE84532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833883   (247830) от 02.11.2025
-
-Межзвёздное путешествие / Interstellar Wanderer / Xing ji yi you (2022) WEB-DL[H.264/1080p]  (сезон 1, серии 1-12 из 12) AniStar / официальный
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад Земля перестала быть пригодной для жизни. Люди мигрировали с Земли на другие планеты. Но на самом деле это был заговор. Таким образом, Тан Юэлян, как наследница Демонов-победителей, вместе со своими товарищами отправляется на запад, на Землю, чтобы найти артефакт, Мифический Кристалл, спасти вселенную и сражаться, чтобы вернуться на Землю!Производство: Китай / Yudubai AnimationЖанр: мультфильм, фантастика, комедия, приключения, фэнтезиПеревод: Многоголосый любительский (AniStar / официальный)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:09:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C6C1BFE85C758FEC0E7DBB3E75FD9D983876A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833972   (247829) от 02.11.2025
-
-Cleaner for WhatsApp / Очиститель для WhatsApp v3.0.0 Mod by TryRoom [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cleaner for WhatsApp — это мощный инструмент для очистки полученных и отправленных медиафайлов через WhatsApp. Самая важная функция приложения Cleaner for WhatsApp; заключается в том, что вы можете автоматически очищать медиафайлы WhatsApp со своего телефона или планшета Android через регулярные промежутки времени или в соответствии с ограничением хранилища. Cleaner (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: LookAndFeel LabПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302844EFDD64F6B72A12ADCD735E46B3230035BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833966   (247828) от 02.11.2025
-
-ЯПлакалъ v2.129 Mod Alex.Strannik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yaplakal.com — популярное информационно-развлекательное сообщество. Мы любим обсуждать интересные события и весело проводить время. Все материалы добавляют и оценивают пользователи. Работаем с 2004 года. Трижды лауреат Премии Рунета в категории "Сообщество Рунета". Официальное приложение для Android. У нас вы найдете: громкие мировые события, обсуждение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 02.11.2025Разработчик: Yaplakal.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029F9F284286BF656A4C315C4F253143CB252CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833953   (247827) от 02.11.2025
-
-Долгая прогулка / The Long Walk (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа мальчиков-подростков соревнуется в ежегодном соревновании, известном как «Долгая прогулка», где они должны поддерживать определенную скорость ходьбы, иначе их застрелят.Производство: США / Lionsgate UK, Media Capital Technologies, Vertigo EntertainmentЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Тат Ньюот, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Джошуа Оджик, Марк Хэмилл, Роман Гриффин ДэвисПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D2646D7300AA87F9DEF009C812BDD3E9FCCF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833522   (247826) от 02.11.2025
-
-Как не потерять доступ к своему Telegram из-за блокировки SMS с кодами
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_247826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллеги с портала «Код Дурова» подготовили инструкцию для пользователей Telegram, которая разъясняет, как сохранить доступ к мессенджеру при блокировке SMS с кодами подтверждения. Самый надёжный способ — поддерживать открытые сессии приложения одновременно на нескольких устройствах, чтобы код можно было получить на одном из них. Имеется возможность получить код на (   Читать дальше...   )
+01. The Warning :: 01:38
+02. City Sphere :: 06:06
+03. Forgotten Thoughts :: 06:39
+04. The Sound Of The Big Babou :: 07:17
+05. Unreasonable Behaviour :: 01:19
+06. Cycles D'Oppositions :: 04:56
+07. The Man With The Red Face :: 09:08
+08. Communications From The Lab :: 05:15
+09. Greed (Part 1+2) :: 06:45
+10. Dangerous Drive :: 08:47(   Читать дальше...   )2000,2004Жанр: House, Future Jazz, Experimental, Downtempo, ElectroФормат: CD, AlbumsПродолжительность: 02:03:13
 
 ## Скачать торент
 ```bash
@@ -627,54 +85,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833994   (247825) от 02.11.2025
+###  Публикация: 493066   (248484) от 07.05.2012
 
-3D print - Wicked - The Arbiter Portrait Bust [STL]
+ForkLift 2.5 [Eng]
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247825.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наш ТЕРМИН видеоигры - это жемчужина мира Wicked, постоянный побочный квест, над которым мы работаем за кулисами, и как только он будет готов, мы выпустим его в качестве эксклюзивного подарка для всех наших активных сторонников этого месяца!!! Это наш способ сказать muchas gracias, мои парни, за вашу бесконечную поддержку, любовь и веру в наши безумные мечты!!!
- (   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6880236AAB1BBF55D8149FD7892E88D6F2C16C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833995   (247824) от 02.11.2025
-
-Проекты - VideoHive - Award Ceremony - 31332882 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон для презентации церемоний и вручения наград разного рода.
+ForkLift это простой и в тоже время функциональный менеджер файлов для Mac OS. Помимо обычных стандартных функций в ForkLift стоит выделить поддержку работы с FTP, SFTP и BlueTooth.
 
-Музыка очищена и предоставлена.Формат: AEP
+ForkLift невероятно быстр, но иногда может потребоваться архивировать файлы, или же разбить их на более мелкие — все эти функции уже реализованы в FTP-клиент.2012MacOS XНазвание программы: ForkLiftЯзык интерфейса: Eng
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6965348BBC16D2E7C857306CA07102904878DF84
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,28 +113,279 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833612   (247823) от 02.11.2025
+###  Публикация: 493156   (248476) от 07.05.2012
 
-Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard Rock>
+Журнал | Ателье №5 (137) [2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248476.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ателье» — это первый профессиональный журнал о моде в России, ориентированный на владельцев ателье и мастерских по пошиву одежды, дизайн-студии, частных модельеров и дизайнеров.
+
+ В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21429DD6E5B0E4A6A046278F32E0736C61223A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493390   (248475) от 07.05.2012
+
+Лев Тарасов | Четырнадцать лекций о лазерах [2011] [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский футбольный союз ввел запрет на использование лазерных устройств до, во время и после окончания игр, которые проводятся под эгидой РФС.
+/Дни.ру/
+
+Этот вводный курс лекций, посвященный лазерам, был прочитан автором в Московском государственном институте электроники и математики (МИЭМ) для студентов специальности "Электронные приборы".
+В книге изложены принципы работы лазера и основные сведения о лазерах.
+
+Систематизировано рассмотрены различные типы лазеров (в основе классификации – активные среды и способы накачки), режимы лазерной генерации, внутрирезонаторные и внерезонаторные способы управления лазерным излучением.
+Книга предназначена для студентов технических вузов и всех, кто впервые знакомится с лазерной техникой.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA895CE44F39C5F74B05BB5854C4603E8F7BEBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492747   (248473) от 07.05.2012
+
+Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not Unusual (2:01)
+02. With These Hands (2:42)
+03. My Foolish Heart (2:37)
+04. Hello Young Lovers (2:28)
+05. When I Fall In Love (3:16)
+06. (It Looks Like) I'll Never Fall In Love Again (4:14)
+07. I'm Coming Home (3:08)
+08. Only A Fool Braks His Own Heart (2:33)
+09. Why Can't I cry (3:10)
+10. Help Yourself (2:54)(   Читать дальше...   )Жанр: Soul, Rock, PopПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493126   (248472) от 07.05.2012
+
+Журнал | Издато №9-11 [2011] [EXE]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для фотографов и всех кто как-то связан с этой сферой деятельности.2011Формат: EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF2682EAB340781DC290E42B20921F82EC1EB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493338   (248471) от 07.05.2012
+
+Журнал  | Tattoo life №76 Italy [2012][PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о современном мире татуировок как искусстве.
+В этом журнале показанны красивые мужские и женские татуировки наглядно(на теле)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70CFF710B7F0C775BA67F8ADE7CE411E28FF661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492334   (248470) от 07.05.2012
+
+Stone Temple Pilots - Shangri-La Dee Da (2001) [APE|Lossless]<Grunge Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dumb Love
+02. Days Of The Week
+03. Coma
+04. Hollywood Bitch
+05. Wonderful
+06. Black Again
+07. Hello It's Late
+08. Too Cool Queenie
+09. Regeneration
+10. Bi-Polar Bear(   Читать дальше...   )Жанр: Grunge Hard RockПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493240   (248469) от 07.05.2012
+
+VA - Anthology Of Drum & Bass Arena (2012) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly Crash - pile the pressure (05:53)
+02. Freebird & Cityboy - troubles far away (06:07)
+03. Brian Brainstorm - true 2 the game (04:42)
+04. Fast Eddie - summerswitch (04:40)
+05. Dexcell & Moxix - come with me (05:19)
+06. Fishy - endless nights (05:54)
+07. Bloxx - tomb raider (05:25)
+08. Sound Tactix - in view (07:05)
+09. Plastic Howard - the rising (bass spectre drum & bass remix) (04:54)
+10. Intersolar - after the break (07:28)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 09:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E41D4887E91D26466FA16A43C912AE5EC7760D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493194   (248468) от 07.05.2012
+
+Олег Шовкуненко | Оружейник-3 [2012] [RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда стрелки на приборах неистово задергались, а по рукоятям и рычагам заплясали юркие ослепительно белые молнии электрических разрядов, я понял, что мы угодили в «сварку». Первым, чисто инстинктивным движением стал удар по тормозам.2012Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF6534B53984C7B1829B1FFB26B29DB75C3E72E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493060   (248465) от 07.05.2012
+
+VA - The Best Metal Duets (2011) [MP3|320 кб/с]<Gothic Rock, Rock, Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247823.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. High And Above (4:00)
-02. Room To Breathe (3:56)
-03. Louder Than Words (4:05)
-04. Chasing The Sun (4:31)(   Читать дальше...   )Жанр: Modern Rock, Hard RockПродолжительность: 00:41:00
+01. Ozzy Osbourne & Lita Ford - Close my eyes forever
+02. Cradle of Filth feat. Liv Kristin - Nymphetamine
+03. Kamelot - Somewhere In Time (feat. Simona Simons Epica)
+04. Doro feat Udo Dirkschneider - Breaking The Law (Judas Priest cover)
+05. Moonspell feat. Anneke van Giersbergen - Scorpion flower
+06. Megadeth feat. Christina Scabbia - A Tout Le Monde
+07. Delain and Marco Hietala - The Gathering
+08. Amaranthe - Amaranthine
+09. Sepultura feat. Luciano Pavarotti - Roots Bloody Roots
+10. Tarja feat. Scorpions - The Good Die Young(   Читать дальше...   )2011Жанр: Gothic Rock, Rock, MetalПродолжительность: 01:06:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:711C198C5FF09D0FBAB6B8588054CB38FCA87EE2
+magnet:?xt=urn:btih:9EE7B6850A536DD68C2C610241A2FB995B6A8BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,25 +393,399 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833978   (247822) от 02.11.2025
+###  Публикация: 492824   (248464) от 07.05.2012
 
-Худеем дома за 30 дней v3.13 Mod by Alex.Strannik [Ru/Multi]
+Сваты у плиты. Серия №7 (2012) SATRip
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247822.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько минут в день заменяют час в тренажерном зале. Весьма мощный инструмент с доступом к планам упражнений для похудения в домашних условиях. Содержит обширное количество тренировок с иллюстрациями. В наличии возможность создания своих комплексов упражнений. Позволяет вести статистику занятий.Тип издания: PremiumРелиз состоялся: 25.07.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Любимые герои народного сериала научат вкусно готовить простые блюда. И, конечно же, все это будет подано под соусом из шуток и хорошего юмора!
+На воскресной кухне вы встретитесь практически со всеми героями самого любимого народного сериала "Сваты": бабушкой Валей, прабабушкой Людмилой Степановной, внучкой Женечкой, соседкой Ларисой и, конечно же, Митяем. Ведь приготовление еды – это настоящее творчество, где каждый может поделиться своим секретом и дополнить блюдо лично приготовленным соусом. Тогда и самая обычная утка с яблоками превращается в шедевр кулинарии.
+А чтобы Ваш дом стал еще более хлебосольным, эксцентричный и неугомонный Митяй поделится рецептами напитков, которые лучше подавать к тому или иному блюдо. Ведь в приготовлении всевозможных коктейлей Митяю нет равных. Не говоря уже о том, что в умении правильно выбрать алкоголь для праздничного стола, веселый сосед семьи Будько даст фору даже самым образованным сомелье.Жанр: Кулинарный сериал, юморТелекомпания: В ролях: Татьяна Кравченко, Ольга Аросева, Олеся Железняк, София Стеценко, Николай ДобрынинПродолжительность: ~ 00:26:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1261C8C6F04177D020516C0974B5969592486B77
+magnet:?xt=urn:btih:BF2DC3A4A4E65D86C91A7225BCEF33E432FA6E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493063   (248461) от 07.05.2012
+
+VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Lopez feat. Adena - Lay Me Down (Extended Mix)
+02. Groove Breaks - Hands In The Ayer (Original Mix)
+03. Andrea Del Vescovo feat. Jay - Ibiza (Extended Mix)
+04. Phoenyx & Kunala - Feel (Original Mix)
+05. Marc Simz feat. Naomi Striemer - This Is Love (Radio Edit)
+06. Will.I.Am ft. JLO & Mick Jagger - Go Hard (R3hab vs The Eye Remix)
+07. Aura Dione - Geronimo (DJ RICH-ART Remix)
+08. Taito vs. Benny G - Make A Move (Original Mix)
+09. Инфинити - Другая (Extended Mix)
+10. Pascal & Pearce feat. Juliet Harding - Disco Sun2012Жанр: Dance, ClubПродолжительность: 05:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493311   (248458) от 07.05.2012
+
+Футбол. Кубок Англии 2012. Финал. "Челси" (Лондон) - "Ливерпуль" (Ливерпуль) (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: СпортФормат: TSПродолжительность: 01:41:33 (00:47:44 + 00:53:49)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C43750B1CF5AB4C02CB87274BB2A309A840510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492988   (248456) от 07.05.2012
+
+Д. Сикери | Вина мира: Справочник [2008] [DJVU]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248456.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге о великих винах мира читатель найдет также сведения о сортах винограда, типах почвы, особенностях климата и методах виноделия, характерных для разных стран. Как богатый источник информации издание будет полезно и для экспертов, и для тех, кто хочет открыть для себя прекрасный мир настоящего вина.Формат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493111   (248455) от 07.05.2012
+
+Егор Седов | Серия "Мир Четырех Лун" [2011-2012] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга первая: "Мир Четырех Лун"
+ Эта поездка начиналась достаточно скучно. Журналист Виталий Камов отправился в стандартную командировку в «горячую точку», но его не пустили дальше столицы охваченной войной североафриканской страны… Однако посещение бункера диктатора, который увлекался оккультизмом, изменило все – не только для Камова, но и для американского репортера Джеймса Конрада, и для их сопровождающего Юсуфа аль-Андалуси. Магические книги диктатора активировали портал в параллельную реальность. И прямо из Ливийской пустыни русский, американец и араб шагнули в Мир Четырех Лун, где отгремела ядерная война, но до сих пор продолжаются сражения Четырех Кланов и мрачных средневековых государств, обладающих современным оружием.
+ Выжить в этом мире почти невозможно, путь назад для тех, кто попал туда, закрыт. Но им придется не просто выжить, а победить!2011-2012Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285E37EFB27A0A251034041506DEC95ED42104F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492439   (248453) от 07.05.2012
+
+K-Lite Codec Pack Update 8.7.5 [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248453.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей. K-Lite Mega Codec Pack включает последние два пакета и полный набор кодеков из версии Full. Во все варианты включен мощный альтернативный медиа-плеер Media Player Classic.Название программы: K-Lite Codec Pack UpdateЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493168   (248450) от 07.05.2012
+
+VA - Sunset Del Mar Vol.8 Finest In ibiza Chill (2011) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - I Can Only Dream
+02. Newton - Roadmovie
+03. Mirage Of Deep - An Afternoon Of August
+04. Schwarz - Deep Emotion
+05. Ibiza Sunset - Summer Love
+06. Joseph Brittanny - Copper
+07. Maomakmaa - Einsiedler
+08. Pearldiver - Airfresh - Original Mix
+09. Sine - Float
+10. Matteo Vanetti - Astro Light(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2EDB72EA62CFD71E623AC6D723863D66B8B47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493263   (248447) от 07.05.2012
+
+Jan Gerfast Trio - Electric Blues Power (2012) [FLAC|Lossless]<Blues, Blues-Rock, Guitar, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MTV  (04:21)
+02. Stranded In Hell  (04:12)
+03. Hallelujah  (05:58)
+04. F'n Up The Blues  (05:14)
+05. Second Coming  (04:07)
+06. Looking For Adventure  (04:36)
+07. Longing For The Woods Back Home  (05:11)
+08. Tell Me  (03:59)
+09. I Can't Resist You  (04:50)
+10. Shake Rattle N' Roll  (05:44)(   Читать дальше...   )2012Жанр: Blues, Blues-Rock, Guitar, InstrumentalПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493069   (248443) от 07.05.2012
+
+VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasynths (Original Mix) - Marco Bocatto
+02. Jazz in the House (Sax Groove Mix) - Clemens Rumpf & David A. Tobin
+03. For You (Original Mix) - Jesus Dominguez
+04. Dusty Book - Plusculaar
+05. Neonhimmel - Michael Ballus
+06. La Tina (Mio Martini Remix) - Fuseboxers
+07. I'm Hot for You (Original Mix) - Taste of honey
+08. Mold & Gasoline (Sodda Remix) - Bifman & Fra N Kie
+09. Better (Juan Sunshine Mix) - Don Oliver feat. Barbara Tucker
+10. Se Game House - The Breakers2012Жанр: Deep HouseПродолжительность: 06:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD86A539653A92152A05A0734A811221468ED6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492512   (248441) от 07.05.2012
+
+David Benoit - Full Circle (2006) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz, Jazz Instrument>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe Rio (4:20)
+02. First Day Of School (4:08)
+03. Water To Drink (Agua De Beber) (3:58)
+04. Beat Street (4:16)
+05. Six PM (4:41)
+06. Chasing The Tides (4:53)
+07. Neat With A Twist (5:17)
+08. Katrina's Little Bear (3:48)
+09. Yusuke The Ghost (3:36)
+10. Monster In The Attic (4:36)Жанр: Contemporary Jazz, Piano Jazz, Jazz InstrumentПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493367   (248440) от 07.05.2012
+
+[Wallpapers] Anime Wallpapers (07.05.2012)
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248440.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Anime Wallpapers (07.05.2012)
+Название: Anime Wallpapers (07.05.2012)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B245EB1B27B7814663C9DE03BC8B33F8735839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492581   (248439) от 07.05.2012
+
+Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contemporary Jazz, Post-Bop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maraba Blue
+02. Yes!
+03. Aziel Dance
+04. Epistrophy
+05. El Soul
+06. Way Way Back
+07. Homeland
+08. The Shepherd
+09. Manic Depressive2012Жанр: Contemporary Jazz, Post-BopПродолжительность: 01:04:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493339   (248432) от 07.05.2012
+
+Вот это да!!! - Watts Zap. Смешные моменты в спорте (2012.05.06) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое WATTS Zap? Все самое хорошее и плохое, страшное и смешное в спорте.
+Сборник курьезных, смешных, трагических и загадочных моментов из спортивной жизни.Жанр: Спортивный курьёзыПеревод: Профессиональный одноголосыйПродолжительность: ~ 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47896BE7A4960D34AFC2F3F63DDDB613DAD8E23
 ```
 
 https://mybot314.ru/tekegram_catalog/

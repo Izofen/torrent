@@ -1,3 +1,206 @@
+###  Публикация: 939179   (478020) от 20.09.2015
+
+VA - Acoustic Hour - We Are Independent (2015) [MP3|320 кб/с]<Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Thinking Out Loud 04:42
+02. Passenger - Let Her Go 04:13
+03. Birdy - Wings (Radio Edit) 03:50
+04. Family Of The Year - Hero 03:10(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493E8741E2D040A58F003BC390DED34642AA5325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938972   (478014) от 20.09.2015
+
+VA - TOP Non-Stop 2010-2015 - Lounge & Chillout (2010-2015) [MP3|192 кб/с]<Chill, Lounge, New Age, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slacker - A Million Dreams (intro) [01:09]
+02. Ron Basejam - Into My Life (original mix) [05:55]
+03. Mino - Textures [07:20]
+04. Lip Service - Ocean (Nightgroove Mix) [04:31](   Читать дальше...   )Жанр: Chill, Lounge, New Age, AmbientПродолжительность: 05:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4515C3A5A32908D2691803BFEDC27E0FE6A401E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938905   (477921) от 20.09.2015
+
+VA - XXXL блатнячок на радио Шансон. Сборник 3 (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477921.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Белое Золото - Любимая Женщина
+002. Папа Радж - Мадам Постойте
+003. Иван Кучин - Верба
+004. Ольга Ильч - Этапом К Северу(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7140B58C2FD505803AEF235107406B14021DD45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939157   (477906) от 20.09.2015
+
+VA - Мелодия русского шансона (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477906.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Петлюра - За Тебя
+002. Александр Бешеный И Надежда Шеина - Без Тебя
+003. Виктор Петлюра - Разбудите Сердце
+004. Стас Михайлов - 1000 Шагов(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724D1D9944756F4AF4D1E0841EAED9732DB65EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938973   (477794) от 20.09.2015
+
+VA - Deep House and Techno - Dream Selection 2010-2015 vol.2 (2010-2015) [MP3|256 кб/с]<House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondish - Wunderkammer (original mix) (06:58)
+02. Helly Larson - Waiting (UUSVAN remix) (09:12)
+03. Recondite - Serak (original mix) (07:28)
+04. Stephan Bodzin - Singularity (original mix) (07:02)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 05:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701374C6D261E0F98CFA24A9F7F34EFF2EC59630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244737   (477736) от 03.09.2018
+
+VA - Русское Радио. Лучшее 2018 от DON Music (08.2018) [MP3|256/320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filatov & Karas vs. В. Цой - Остаться с тобой (02:49)
+002. Зара - Негордая (03:58)
+003. Руки Вверх! - Танцы (04:04)
+004. МакSим - Здесь и сейчас (03:12)(   Читать дальше...   )Жанр: ПопПродолжительность: 06:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D94AAEBD6E77188CF17854379539DE2323CA878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057214   (477616) от 27.09.2016
+
+VA - Luxury Lounge (2016) [MP3|320 Kbps] <Lounge, Dountempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wolfgang Plasa - Sexysaxo
+002. Thomas Dьr - Call on Me
+003. Tanya Blessing - Baba Eh - Radio Edit
+004. Sunset Music Crew - Dawn(   Читать дальше...   )Жанр: Lounge, Dountempo, ChilloutПродолжительность: 08:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE994FBCC5324D586E21BC332194DADFA59F757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057095   (477610) от 27.09.2016
 
 VA - Record Super Chart #455 (2016) [MP3|320 Kbps] <House, Electro House, Future House, Club House, Dance>
@@ -569,221 +772,6 @@ VA - Night Flight (2012) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E63DAF0A4D314D80D0F4F32D904CADC7919E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547037   (476766) от 14.09.2012
-
-VA - DJ Anna Lee - 7 Days Of Love (2005) [MP3|320 кб/с]<Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tilt - New Day (David West Mix) [09:01]
-02. Andy Moor - Halcyon [07:33]
-03. Leama and Moor - Fact Of The Matter [05:51]
-04. Hidden Logic presents Luminary - Wasting [07:52]
-05. Jose Zamora & Damian DP feat. Paleday - Transatlantic [07:23]
-06. Markus Schulz feat. Airwave - Ballymena [06:17]
-07. Markus Schulz vs. Departure - Without You Near (Coldharbour Mix) [07:42]
-08. Armin van Buuren with Gabriel & Dresden - Zocalo [04:46]
-09. Carrie Skipper - Time Goes By (David West Vocal Mix) [05:47]
-10. Markus Schulz feat. Carrie Skipper - Once Again [05:02](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C030CD614FE5C124845A91AF2C7D722A597DDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385307   (476456) от 09.09.2011
-
-VA - Главный сборник Радио Шансон 3 (2011) [MP3|128 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476456.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бутырка - Воздушный шарик
-002. Олег Гаврилюк - Офицерская честь
-003. Михаил Круг - Ты позвонила
-004. Рок-острова - Ты меня, мама, прости
-005. Леонид Телешев - Вокзал
-006. Сергей Наговицын - До свидания, кореша
-007. Юрий Белоусов - Похоронка
-008. Олег Газманов - Детство моё
-009. Александр Кузнецов и Александр Дюмин - 20 дней
-010. Олег Зеленов - Таксист(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 12:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F4422EDB1BE01ECF216E745B35AFDD73537AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566646   (476403) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume III (2022) Compilation [MP3|320 Kbps] <Post-metal, post-rock, sludge metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aequorea - Talus
-02. Morrow - Rejoice This Quiet Earth
-03. Mt. Echo - Automaton
-04. Point Mort - Pretoria…(   Читать дальше...   )Жанр: Post-metal, post-rock, sludge metalПродолжительность: 01:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772D392AB77009FCCD4D26F140F05091B6124571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566638   (476397) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume II (2022) Compilation [MP3|320 Kbps] <Technical death metal, progressive death metal, progressive black metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arkaik - The Orphion Descent
-02. Hellbore - All Men Are Created Evil
-03. Brood Of Hatred - Self-Destruction
-04. IATT - Ouroboros(   Читать дальше...   )Жанр: Technical death metal, progressive death metal, progressive black metalПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313B25290483F2B6B43BCA32A88A3FE01F221F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566611   (476384) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume I (2022) Compilation [MP3|320 Kbps] <Progressive Metal, Progressive Rock, Avant-Garde Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother of Millions - Orbit
-02. Ibaraki - Ibaraki-Doji
-03. Aquae Furtivae - The Path of the Lost
-04. Lacrimae - Trail Of Cleanse(   Читать дальше...   )Жанр: Progressive Metal, Progressive Rock, Avant-Garde MetalПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF379CB5B89F3AFF46CC24315C9B0A0AB4E66EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566648   (476380) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume IV (2022) Compilation [MP3|320 Kbps] <Jazz-rock, electronic, alt-pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EABS - Global Warning
-02. YAYA KIM - Anger is my power
-03. Chris Farren - Attacked By Dogs
-04. The Family Crest - Hearts On Fire(   Читать дальше...   )Жанр: Jazz-rock, electronic, alt-popПродолжительность: 01:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4153E3D265FCFD5E71D6A2D46B9DAF0307E40235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566820   (476316) от 01.08.2022
-
-VA - Impressive Sound 2022.1: Volume V (2022) Compilation [MP3|320 Kbps] <Instrumental, progressive metal, math rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Shores - Hellfire
-02. KYTARO - Non-Binary
-03. Andromida - THE SERUM
-04. Syncatto - King(   Читать дальше...   )Жанр: Instrumental, progressive metal, math rockПродолжительность: 01:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9328A9BFEE0853E89B72A83219B87D86C9B6F38
 ```
 
 https://mybot314.ru/tekegram_catalog/

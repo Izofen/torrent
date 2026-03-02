@@ -1,3 +1,32 @@
+###  Публикация: 1377770   (849576) от 23.04.2020
+
+Marilyn Manson - 100% Marilyn Manson (2020) 2CD [MP3|320 Kbps] <Rock, Industrial>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Dreams (Are Made Of This) (Album Version)
+02. The Beautiful People (Album Version)
+03. KILL4ME
+04. Tainted Love(   Читать дальше...   )Жанр: Rock, IndustrialПродолжительность: 07:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4A27913CFED92A573617CF34206661BA6AFAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378078   (848031) от 24.04.2020
 
 Paul McCartney - 100% Paul McCartney (2020) [MP3|320 Kbps] <Rock>
@@ -713,35 +742,6 @@ VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7443F99D67333C209D32F327B73F4A53A3F54E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380100   (834626) от 02.05.2020
-
-VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834626.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - Bohemian Rhapsody (2011 Mix) 5:54
-002. Europe - The Final Countdown 5:10
-003. Michael Jackson - Billie Jean 4:54
-004. a-ha - Take On Me 3:48(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 20:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
 ```
 
 https://mybot314.ru/tekegram_catalog/

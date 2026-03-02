@@ -1,3 +1,119 @@
+###  Публикация: 1378820   (842910) от 27.04.2020
+
+a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, Dlx. Ltd. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (Video Version) (3:44)
+02. Train Of Thought (Early Mix) (4:12)
+03. Hunting High And Low (Early Mix) (3:43)
+04. The Blue Sky (Alternate Long Mix) (3:41)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34544B5682280829620E4E31F416A3599A6C02D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878409   (842092) от 15.03.2015
+
+Maggie Reilly - Echoes (1992) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everytime We Touch (4:04)
+02. Tears In The Rain (3:44)
+03. Echoes (3:32)
+04. You'll Never Lose (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B899730509DA6615CCBCDAFBF567386F290ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003714   (841895) от 04.04.2016
+
+Haroula Rose - Here The Blue River (2016) [FLAC|Lossless|tracks] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songbird
+02. Margo
+03. Moon and Waves
+04. Zion Beach, 1999(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DBD7DB0D11B65F57D7469D9110ACF29995E5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500788   (841396) от 06.10.2021
+
+Saint DX - SDX (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prime of Your Life (3:37)
+ 02. Xphanie (3:08)
+ 03. I Still Care (3:41)
+ 04. Staccato (5:24)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Chillwave, Synthpop, DowntempoПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A4C183BC3069881EFED69A00EF85A217DD817F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500803   (841293) от 06.10.2021
 
 Saint DX - Unmixtape (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
@@ -624,121 +740,6 @@ All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C49B615B8D234EB76E132734A425B3AF4D06786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502072   (830215) от 13.10.2021
-
-Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French Hip-Hop, Chillwave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premier (2:22)
- 02. Neige (2:15)
- 03. Loues (2:19)
- 04. Magic berber (feat. Merwan) (3:45)(   Читать дальше...   )Жанр: Alternative Pop, French Hip-Hop, ChillwaveПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFA2E17F47FD82D03C26FBDD8BCD5A1948B090D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381177   (829843) от 05.05.2020
-
-Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1960: Theme song - Shop around - He will break your heart - Stay - Chain gang - Cathy's clown - It's now or never - Let the little girl dance (9:12)
-02. Medley 1961: Please Mr. postman - Some kind of wonderful - Will you love me tomorrow - Raindrops - Ya ya - Mother-in-law - A hundred pounds of clay (7:01)
-03. Medley 1962: Zip a dee doo dah - Twist and (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DD20058D1C6E5507C32CF46C3D839AEF3D916F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381187   (829753) от 05.05.2020
-
-VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Montez - Lets Dance (2:08)
-02. Mungo Jerry - In the Summertime (3:28)
-03. Safaris - Wipe Out (2:16)
-04. Rubettes - I Can Do It (3:14)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CEBFA9805DDE543556672D021B7E84E8B58577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114835   (829704) от 16.03.2017
-
-Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. African Bood
-02. Fly With Me
-03. It Ain't Easy
-04. Ain't Gonna Feel(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13810043CC0B4A9C8AB816016ABA9E0F21005B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

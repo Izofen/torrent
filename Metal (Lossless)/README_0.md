@@ -1,3 +1,206 @@
+###  Публикация: 1853284   (1056366) от 12.02.2026
+
+Greyhawk - Warriors Of Greyhawk (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension
+02. Land Of Ashes
+03. Take A Stand
+04. Endless Race(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C272E3D37CE96F58C275D33CDDDDED63CD70133E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853027   (1056265) от 11.02.2026
+
+Metalodon - Exotica (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bienvenidos
+02. Guerra
+03. Exotica
+04. Buscando El Amanecer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140E2900A9E92C4E8DB95D50D3D815A56D2C5D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852497   (1055996) от 07.02.2026
+
+Wicked Smile - When Night Falls (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Night Falls
+02. Back To Back We Stand
+03. Face Of The Wicked
+04. Rebel Souls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B47DD476A0D1DC72B5BBCE17429D258FD1C2006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852190   (1055648) от 06.02.2026
+
+Epinikion - The Force Of Nature (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moon, the Sun and the Stars (02:09)
+ 02. The Force of Nature (04:23)
+ 03. Lessons in Life (Are for Free) (03:59)
+ 04. Come into My World (04:09)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF5D946D77A6568EA52AE41EC368DB59DA7B738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852197   (1055643) от 06.02.2026
+
+Induction - Love Kills! (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virtual Insanity (03:22)
+ 02. War Of Hearts (03:45)
+ 03. Dark Temptation (03:30)
+ 04. Steel And Thunder (04:02)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B4227655215EF76695E9C4253480D93E70E84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852217   (1055627) от 06.02.2026
+
+Tailgunner - Midnight Blitz (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Blitz (03:55)
+ 02. Tears In Rain (03:28)
+ 03. Follow Me In Death (03:57)
+ 04. Dead Until Dark (03:12)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52ECFB51B35CBE41462FC84E7770845CF7035FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851738   (1055239) от 03.02.2026
+
+Haken - Fauna (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taurus 4:49
+02. Nightingale 7:25
+03. The Alphabet Of Me 5:34
+04. Sempiternal Beings 8:24(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6EFB5B82429223AF9F0EB30A94927FE2E8C9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851675   (1055236) от 03.02.2026
 
 Therion - Con Orquesta (Live in Mexico) (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -542,209 +745,6 @@ Blackbraid - Blackbraid I (2022) [FLAC|Lossless|image + .cue] <Black Metal, Atmo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29A321077A1E70F7F4A4CF917FDE94BF26403770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847612   (1052127) от 13.01.2026
-
-Blackbraid - Blackbraid II (2023) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumnal Hearts Ablaze 2:10
-02. The Spirit Returns 4:37
-03. The Wolf That Guides The Hunters Hand 7:34
-04. Spells Of The Moon And Earth 2:24(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A09DA8C518970FED871B2031A693A51E9459B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847613   (1052126) от 13.01.2026
-
-Blackbraid - Blackbraid III (2025) [FLAC|Lossless|image + .cue] <Black Metal, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusk (Eulogy) 1:02
-02. Wardrums At Dawn On The Day Of My Death 4:54
-03. The Dying Breath Of A Sacred Stag 7:44
-04. The Earth Is Weeping 3:38(   Читать дальше...   )Жанр: Black Metal, Atmospheric Black MetalПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92723E3EA461706E695A337B993C6832D30B9F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847363   (1052098) от 11.01.2026
-
-Messa - The Spin (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Dark Ambient, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Void Meridian 4:28
-2. At Races 5:59
-3. Fire On The Roof 4:32
-4. Immolation 4:46(   Читать дальше...   )Жанр: Doom Metal, Dark Ambient, Stoner RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C5D21099D9A9CE393A00AB0C5EB8BCB41C0CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847364   (1052096) от 11.01.2026
-
-Blut Aus Nord - Ethereal Horizons (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Avantgarde, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052096.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadows Breathe First 7:15
-2. Seclusion 8:17
-3. The Ordeal 7:17
-4. The Fall Opens The Sky 7:47(   Читать дальше...   )Жанр: Atmospheric Black Metal, Avantgarde, ExperimentalПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05DE8BA6DB9D1312E8DF2E8CEA3D5ACB03BD32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847370   (1052092) от 11.01.2026
-
-...And Oceans - The Regeneration Itinerary (2025) [FLAC|Lossless|image + .cue] <Black Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inertiae 4:30
-02. Förnyelse I Tre Akter 5:06
-03. Chromium Lungs, Bronze Optics 4:28
-04. The Form And The Formless 3:32(   Читать дальше...   )Жанр: Black Metal, Symphonic MetalПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EEB99A1B9A5EE27A40AF4B38F995F0BDCF7482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847442   (1052029) от 12.01.2026
-
-Revenge - Trust In Metal (2020) Limited Edition, Reissue, 2021, Thrashingfist Productions [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Metal
-02. Fight, Wil & Ride
-03. Hellish Hammer
-04. Hard Ride - Black Sign(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3079F3603A5F21D0181A8FCE5590072C8B38D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847109   (1051990) от 10.01.2026
-
-Royal Hunt - Behind The Curtain (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Neo-Classical Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Into The Sunset (Single Version) (5:10)
-02. The Mission (Live 2023) (6:19)
-03. Last Goodbye (Live 2023) (6:15)
-04. Half Past Loneliness (Acoustic Version) (6:03)(   Читать дальше...   )Жанр: Neo-Classical Metal, Progressive MetalПродолжительность: 00:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF70AC7C0A0B4CD2BB93921DBF42635978DA350B
 ```
 
 https://mybot314.ru/tekegram_catalog/

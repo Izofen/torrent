@@ -1,3 +1,61 @@
+###  Публикация: 1372134   (887262) от 02.04.2020
+
+Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подих Змія (03:21)
+02. Паранормальні (04:00)
+03. Ворожіння (03:42)
+04. Сонце Небо (03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E467E237054429E279B4153BC7C08E1CA058BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995210   (886212) от 10.03.2016
+
+VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Presley – Jailhouse Rock
+02. The Yardbirds – For your Love
+03. The Rolling Stones – Honky Tonk Women
+04. The Rolling Stones – (I Can’t Get No) Satisfaction(   Читать дальше...   )Жанр: Rock, MashupПродолжительность: 00:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961EA22123F766D38BE196ADE3CDC41972D4FBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494875   (886116) от 09.09.2021
 
 Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
@@ -702,64 +760,6 @@ Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABA25244931865EBDBE425B0D6054603BC1E2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496465   (872847) от 17.09.2021
-
-VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oasis - Wonderwall (Remastered) 4:19
-02. Pulp - Common People 5:50
-03. Oasis - Live Forever 4:37
-04. Blur - Song 2 (2012 Remaster) 2:01(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9541DF8E091CA8DA6EE2D36BF626F1A04BF08DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496224   (872722) от 17.09.2021
-
-Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <Score>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of the Sisters [00:16:25]
-02. I See You in My Dreams [00:18:25]
-03. House Atreides [00:13:54]
-04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7CBD94EECA77EB0B1D5ECDD6CD816FD7DEB484
 ```
 
 https://mybot314.ru/tekegram_catalog/

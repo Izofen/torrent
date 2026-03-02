@@ -1,3 +1,29 @@
+###  Публикация: 1818943   (2011) от 19.09.2025
+
+3D print - Epic Miniatures - Succubus Demon Set [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор демонов-суккуба от Epic Miniatures.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B859D63089478207A6AA746FF382110669645AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818909   (2003) от 19.09.2025
 
 3D print - Cults3D - The Apothecary Diaries Diorama - Maomao and Jinshi [STL]
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1B49556FA9D9DB6B4175BC6B44A9B678E0B43AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819394   (1624) от 21.09.2025
-
-Шрифты - GGBotNet - Yulong [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шрифт лицензирован по лицензии SIL Open Font License версии 1.1.
-Вы можете свободно использовать его в своих продуктах и проектах - печатных или цифровых, коммерческих или иных. Однако вы не можете продавать шрифт самостоятельно.
-Материал раздаётся с официальной документацией.Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0416F8BABB94EB8C8504B1841E939FA528E6958
 ```
 
 https://mybot314.ru/tekegram_catalog/

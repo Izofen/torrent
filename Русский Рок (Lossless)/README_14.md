@@ -1,3 +1,61 @@
+###  Публикация: 1501599   (835037) от 10.10.2021
+
+Бони'НЕМ - День Победы (2003) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признаюсь, что этот альбом Бони Нем не оставил меня равнодушным, т.к. поставив свеженький диск в чейнджер на меня сразу же, подобно снежной лавине, обрушилась известная с детства композиция "Увезу тебя я в тундру". При этом композиция исполнялась в силе brutal death-black metal и более напоминала не знакомое с детства безобидное пение незадачливого и веселого (   Читать дальше...   )01. Увезу Тебя Я В Тундру
+02. Нас Не Догонят
+03. Сука-Любовь
+04. Ты Скажи(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Funk MetalПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D418B98C1E0E57867DFB992F7FADD100E115A5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773246   (834348) от 03.04.2014
+
+Тінь Сонця - Грім в ковальні Бога (2014) [FLAC|Lossless]<Folk, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Меч Арея (5:20)
+02. Сонцечоловік (4:27)
+03. Народна війна (6:09)
+04. Коли на серці сумно (3:09)(   Читать дальше...   )Жанр: Folk, Power MetalПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDB467EC77F73771E7F9F56BF84EE0B43A780F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501764   (833748) от 11.10.2021
 
 Astirium - Время Перемен (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -710,64 +768,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461DAF46240D84D50B0B683FFB91821E8D9ED418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009768   (807717) от 22.04.2016
-
-Агата Кристи - Два Кораblya (Remixed 2) (1998) [FLAC|Lossless|tracks + .cue] <House, Acid>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Два Корабля (Proforvater Eclectica Mix) (5:20)
-02. Моряк (Cutthroat Island Eclectica Mix) (5:06)
-03. Грязь (I Love Frank Farrian Eclectica Mix) (4:06)
-04. Извращение (Sixth Of October Eclectica Mix) (5:34)(   Читать дальше...   )Жанр: House, AcidПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0D409C98974C9655A90AA4F136F9851B968FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009792   (807594) от 22.04.2016
-
-Агата Кристи - Коварство И Любовь (1991) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Art Rock, Goth Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агата Кристи - Инспектор По... (2:30)
-02. Viva Kalman! (2:40)
-03. Африканка (3:01)
-04. Сытая свинья (4:24)(   Читать дальше...   )Жанр: Art Rock, Goth Rock, AvantgardeПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E562C8C592F39D3880E3EFCBCB0D3C4EA73300A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

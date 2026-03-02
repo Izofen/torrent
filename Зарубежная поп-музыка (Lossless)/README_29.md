@@ -1,3 +1,119 @@
+###  Публикация: 1017751   (760778) от 17.05.2016
+
+Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760778.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне возросшего интереса к этой самобытной певице с Украины, думаю будет не безинтересно познакомиться с последним её альбомом. Мне показалось, что на Евровидении всеж её голос звучал значительно профессиональнее и лучше. Но это чисто ИМХО. А каждый может сложить своё мнение. Особенно рекомендую послушать Обещание - настоящий хит на все времена!01. Подих  (4:31)
+02. Чому саме тебе (You've got me)  (3:25)
+03. Шлях додому  (4:29)
+04. Бiльше (feat Marphom)  (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B0F6E1220A52E4ECE2DEDB38F78119B64DD5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215339   (759618) от 25.03.2018
+
+VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759618.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Rubettes - Sugar Baby Love [03:21]
+2. Santa Esmeralda - Don't Let Me Be Misunderstood [03:25]
+3. Mud - The Cat Crept In [04:07]
+4. Dillinger - Cocaine In My Brain [05:09](   Читать дальше...   )Жанр: Rock, Reggae, PopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780720   (759475) от 26.04.2014
+
+VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
+Продoлжитeльность: 01:14:49
+ 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
+02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781226   (757757) от 27.04.2014
+
+VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757757.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:21] 01. Kylie Minogue - I Should Be So Lucky
+[04:01] 02. Jive Bunny & The Mastermixers - That's What I Like
+[03:29] 03. F.R. David - Words
+[05:45] 04. David Christie - Saddle Up(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018107   (757631) от 19.05.2016
 
 George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Pop>
@@ -627,122 +743,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020928   (743708) от 27.05.2016
-
-Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743708.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Story Of My Life 3:48
-2 Shining 4:00
-3 The Years Move On 3:54
-4 Love Is All I Need 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9279F6EBAD8777847DC8AD1B913249BD4C632510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783507   (743688) от 05.05.2014
-
-VA - Pure... Acoustic (2014) Box Set, 4 CD [FLAC|Lossless]<Acoustic, Pop, Rock,  Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sony Music в последнем выпуске из серии  Pure... собрала акустические версии 67 радио-хитов (главным образом), отобранных за несколько десятилетий и разнообразных по стилю. Здесь вы услышите необычные (в привычном смысле) по звучанию версии софт-роковых композиций  "Longer"CD1:
-01. Tom Odell - Long Way Down  (2:31)
-02. Walk Of The Earth - Somebody That I Used To Know  (4:10)
-03. The Shins - Simple Song (Acoustic)  (4:00)(   Читать дальше...   )Жанр: Acoustic, Pop, Rock,  FolkПродолжительность: 04:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A30A1AC3DBC6F001DE92854D0142CE3AE1B72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282691   (743616) от 13.02.2019
-
-VA - Erotic Dreams - Over 60 Minutes Of Music (1991) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Gainsbourg - Je T'aime, Moi Non Plus [4:11]
-02. G Michael - I Want Your Sex [4:45]
-03. А Lai - Bilitis [3:21]
-04. E Struzick/A Aldridge - Sharing the Night Together [3:02](   Читать дальше...   )Жанр: PopПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAACD5106007DB9F6F6725A1339AD5E5385190C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524413   (743559) от 16.01.2022
-
-Supermax - Best Of Remixes (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, Reggae, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camillo (Stefan Obermaier Remix) (5:36)
- 02. World Of Today (Honolulu Dub Edit) (6:35)
- 03. It ain`t easy (Moonbootica Remix) (7:27)
- 04. Vision (SpinDoc Club Edit) (5:41)(   Читать дальше...   )Жанр: Electronic, Disco, Reggae, FunkПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AE59D0A728A02361D2364C32D2F4C9D651A442
 ```
 
 https://mybot314.ru/tekegram_catalog/

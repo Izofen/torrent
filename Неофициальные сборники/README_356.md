@@ -1,3 +1,206 @@
+###  Публикация: 1044683   (565479) от 20.08.2016
+
+VA - Deep House Collection Vol.85 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565479.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.7even (GR) - Drop Dat (Manager & Afro Remix)
+002.Adam Hubbard - I'll Be Good (Original Mix)
+003.ADMind - Strong (Original Mix)
+004.Affects & Alan D feat. Tolk - Say (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech House, Vocal HouseПродолжительность: 15:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBA474DA05C38A763C79AECA75B7B894BEE9C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152639   (565400) от 23.07.2017
+
+VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liu - Don't Be Scared
+02. Sick Individuals - Never Say Never
+03. KREAM feat. Clara Mae - Drowning
+04. PSY - Love (feat. Taeyang)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152694   (565396) от 23.07.2017
+
+VA - Impulse 5 (2017) [MP3|320 Kbps] <House, Trap, Chillout, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3LAU & Neonheart - Fire (Price & Takis Remix) (3:06)
+02. Acidbro - Connected (Original Mix) (6:17)
+03. Acidbro - Hold You (Original Mix) (5:22)
+04. Agent Greg - Body Move (The Cube Guys Mix) (6:26)(   Читать дальше...   )Жанр: House, Trap, Chillout, DubstepПродолжительность: 11:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0019E4699BBDA190E3956F94DFB3D1BED303857B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152487   (565392) от 23.07.2017
+
+VA - Record Super Chart #495 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yellow Claw - Open  3:31
+02.  Fedde Le Grand vs. Ian Carey - Keep On Rising (Sensation The Final Anthem)  4:48
+03.  Dzeko - Fluxland 2017  2:39
+04.  Abel Ramos & Albert Neve - Flat Beat  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5616BA134DBC5F2F7E49A5DC025FD995451EF006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555310   (565366) от 06.06.2022
+
+VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marvin Gaye - Ain't No Mountain High Enough
+002. Bill Withers - Ain't No Sunshine
+003. Ledisi - my baby just cares for me
+004. The Jacksons - Push Me Away(   Читать дальше...   )Жанр: Pop, Jazz, RnB, SoulПродолжительность: 08:03:57 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BC88FBF401192E949B5CDF5C722ADEB24056C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044563   (565350) от 20.08.2016
+
+VA - Euphoric Essential Space Uplifting (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruslan Radriges  -  Magnum (Original Mix)  5:05
+02. Bryan Kearney  -  Mexican Rave (Shugz Remix)  6:42
+03. Armin Van Buuren & Dave Winnel  -  The Race (Extended Mix)  5:15
+04. LTN  -  Ending The Wisdom (Original Mix)  6:22(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 08:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E788CD20B5DE8EDA137968F6AA3011982E91123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555299   (565340) от 06.06.2022
+
+VA - Soft Pop Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565340.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Easy On Me
+002. John Legend - All of Me
+003. Justin Bieber - Ghost
+004. Taylor Swift - Lover(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF02473E8DDD9C14E3BC162BF848C79350F1B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044533   (565330) от 20.08.2016
 
 VA - Bass Booster - Не По-Детски Давят Децибелы (2016) [MP3|320 Kbps] <Deep, G-House, Progressive, Techno, Tech>
@@ -572,209 +775,6 @@ VA - Chill Out Essentials - Formentera (2015) [MP3|320 кб/с]<Disco, Deep, Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A70780E1547378D681EE5FDB81A643D4FDC4B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923456   (564432) от 31.07.2015
-
-VA - Летний популярный музыкайф. Зарубежный сборник (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564432.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cecilia Gayle & Dj Sanny J - La Pipera
-002. Tony Bennett & Lady Gaga - I Can't Give You Anything But Love
-003. Eminem Vs. Royce Da 5'9, Big Sean, Danny Brown, Dej Loaf & Trick Trick - Detroit Vs. Everybody
-004. Calvin Harris Feat. Hurts - Ecstacy(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC13F85436EAD53FC9DD2B3C4523983C8125C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304398   (564089) от 26.05.2019
-
-VA - Record Super Chart 588 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-2.Aaron Smith - Dancin (Krono Remix) (4:15)
-3.Billie Eilish - Bad Guy (3:14)
-4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1748BE3BD58ED16001F90736BC3D376C0E866CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304381   (563870) от 26.05.2019
-
-VA - Guitar Track - Instrumental Collection by Pop-Music Vol.2 (2018) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Andrey Farnev - Behind the horizon (3:57)
-02.Юрий Евдокимов - Спринтер (2:14)
-03.Sergei Minaev - Smoothies (4:02)
-04.Mesha777 - Точка Отсчета (2:09)(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A8A93E1CF7FF52BCC7FC4BB1C79C359B399669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304383   (563850) от 26.05.2019
-
-VA - Guitar Track - Instrumental Collection by Pop-Music Vol.1 (2018) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.nobody.one - Razoresolve (04:53)
-02.Head & Head - Pepper and Sol (05:04)
-03.Кирилл Коняев - Spectrum (05:06)
-04.Inceptum - Prologue (03:23)(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A13A0506328264B0CEBBC63DAD905B107A5ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044764   (563710) от 21.08.2016
-
-VA - Minimal Lighters (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferum - Street Racer [6:18]
-02. Karl, Lewis - Bad Boys [5:29]
-03. Potenciel - Reality Flood (Reynold Rmx) [7:07]
-04. Beats Sounds - Voiceline (Joseph Hades Remix) [7:17](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 05:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE0CABD273765A5902641541174AC7986AEE9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044545   (563702) от 21.08.2016
-
-VA - German Top 50 Official Dance Charts 29.08. (2016) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tujamo Ft. Inaya Day - Keep Pushin
-02. Don Diablo Ft. DYU - Drifter
-03. Felix Jaehn Ft. Alma - Bonfire
-04. Bingo Player - Cry Just A Little (A-Trak And Phantoms Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FA8D32DD61AE11ED8F030212DEDAF11C4FC80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044686   (563684) от 21.08.2016
-
-VA - Disco Cruiser Invasion (2016) [MP3|308~320 Kbps] <Pop, Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Service  -  Like A Morning Song  3:29
-02. Stars On 45  -  Star Sisters (Bad Girls Medle)  7:54
-03. Ice MC  -  It's A Rainy Day  4:14
-04. Haddaway  -  Make Me Believe  4:36(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 05:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578052AF8F0C91EFF5BAB03C5EE8A517826EF373
 ```
 
 https://mybot314.ru/tekegram_catalog/

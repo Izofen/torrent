@@ -375,76 +375,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 754037   (934561) от 06.02.2014
-
-VA - Gold Jazz (2014) [MP3|320 кб/с]<Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.David Benoit, Russ Freeman - Mediterranean Nights (6:58)
-2.Acoustic Alchemy - Missing Your Touch (4:45)
-3.McCoy Tyner Trio - One Less Bell To Answer (5:39)
-4.Quincy Jones and His Orchestra - Quintessence (4:21)
-5.Dave Grusin, Don Grusin - Sailing At Night (4:20)
-6.Ramsey Lewis - Sarah Jane (4:30)
-7.Lee Ritenour, Larry Carlton, Harvey Mason - After The Rain (4:45)
-8.Tom Scott - Born Again (3:55)
-9.Herbie Hancock - Solitude (5:42)
-10.Zoot Sims - Stella By Starlight (4:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4463CC9C9A767FF755A6883718C6C387EA689DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630153   (928290) от 15.03.2013
-
-VA - Contemporary-Bebop-Fusion Jazz - The Best (1964-2012) [MP3|192 кб/с]<Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Brad Mehldau - Capriccio (5:20)
-2. Brad Mehldau - Don't Be Sad (8:40)
-3. Patricia Barber - Lost In This Love (3:01)
-4. Patricia Barber - I Could Eat Your Words (7:51)
-5. John Coltrane - Resolution (7:19)
-6. Keith Jarrett, Gary Peacock, Jack DeJohnette - My Funny Valentine (11:10)
-7. Patricia Barber - You Gotta Go Home (3:17)
-8. Patricia Barber - Clues (4:58)
-9. Brad Mehldau - Ode (6:20)
-10. John Coltrane - Pursuance (10:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 06:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D75D9A7FD5964EE29C6B4469B2745E022417E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987289   (927727) от 16.02.2016
 
 VA - Autour De Minuit - Piano Bar (2012) [MP3|320 кб/с] <Jazz>
@@ -757,6 +687,64 @@ VA - Kings Of The Blues (2021) [MP3|320 Kbps] <Blues, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A62A20BA7E09C1FDCEECC591E95AD73C4BA27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100380   (899650) от 04.02.2017
+
+VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newborn Baby Song Academy - Jazz Music
+02. Jazz Music Collection - Baby Music
+03. Baby Lullabies Music Land - Relaxing Music
+04. Good Mood Music Academy - Positive Thinking(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14758094051B05E58E7A21AE4103631B4B9D0B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370152   (898367) от 26.03.2020
+
+VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Clapton - Cocaine
+002. Slim Butler - Coconut Monster
+003. Richard Thompson - Parchman Farm
+004. Keb' Mo' - When The Children Sing(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
 ```
 
 https://mybot314.ru/tekegram_catalog/

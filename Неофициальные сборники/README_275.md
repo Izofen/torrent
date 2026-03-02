@@ -1,3 +1,209 @@
+###  Публикация: 1536848   (672665) от 13.03.2022
+
+VA - Beatport Psychedelic Trance: Sound Pack #504 (2022) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы представляем вам уникальный 504-й релиз электро психоделики от Beatport, которая является чем-то большим, нежели просто транс музыка. Изящество, широко открытые звуки, прогрессивный саунд и сфокусированные тона характеризуют треки этого сборника.001. Antinomy - Pieces
+002. Ace Ventura - Rebirth
+003. Bhangra, Vlastur - Chapora Hive
+004. Atomas 303 - In The Dark(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19250166F56022A5ACCE54EB45D0601B05C4DA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536805   (672664) от 13.03.2022
+
+VA - The Official UK Top 100 Singles Chart 11.03.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave - Starlight
+02. Fireboy DML, Ed Sheeran - Peru
+03. Lost Frequencies, Calum Scott - Where Are You Now
+04. Belters Only, Jazzy - Make Me Feel Good(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76C2845728CFF6AEC0BA6A3C10F409DA82ED21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509672   (672576) от 13.06.2012
+
+Патриот - Звон бокалов полных (2012) [MP3|192 кб/с]<Pop, Военная песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672576.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: Pop, Военная песняПродолжительность: 07:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0D90C2013F00FFB56B53B9CCB686B018D38309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510005   (672570) от 13.06.2012
+
+VA - Взрывной хит-парад Лето 50/50 (2012) [MP3|160-256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672570.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Fly Project - Back In My Life (Radio Edit)
+002. Макс Барских - Пароль
+003. Maverick Sabre - No One
+004. Каролина - Летний Дискобар (Версия 2012)
+005. Nicki Minaj - Starships
+006. Ярослава - Это Любовь
+007. M.iam.i Feat Dwaine & Flo Rida - Rescue Me From The Dancefloor (Avalanche)
+008. Дядя Жора - Пикничек
+009. Christina Perri - Jar Of Hearts
+010. Андр_ана - Гол(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E8A575C47BE7A962FC3CC9480F44875913EAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993805   (672542) от 23.05.2017
+
+VA - Russian Metal Ballads (2016) [MP3|197-320 кб/с] <Rock, Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adventus - Небеса (03:15)
+02. Ультиматум - Хозяин Царства Слёз (06:27)
+03. Легенда - С Тобой Навсегда (04:19)
+04. Ангел-Хранитель - Художник (05:09)(   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 03:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7361870825DC5897EB023B79A86CBD672BBA3FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128124   (672428) от 23.05.2017
+
+VA - Greatest Ever! Rock The Collection Vol.1 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Marilyn Manson - The Beautiful People  3:43
+002.  Monster Magnet - Space Lord  5:58
+003.  Atomic Rooster - I Can't Take No More  3:33
+004.  Queens Of The Stone Age - Go With The Flow  3:09(   Читать дальше...   )Жанр: RockПродолжительность: 11:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA373ECC643FA52583F88D341B4F5705911DCE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030642   (672413) от 01.07.2016
+
+VA - Chartboxx 4 (2016) [MP3|256 Kbps] <R&B, Latin, Dance-Pop, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigala Feat. Bryn Christopher - Sweet Lovin 03:24
+02. Stereoact - Der Himmel Reisst Auf 02:57
+03. Topic Feat. Nico Santos - Home 03:25
+04. Major Lazer Feat. Nyla & Fuse Odg - Light It Up (Remix) 02:46(   Читать дальше...   )Жанр: R&B, Latin, Dance-Pop, TropicalПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6D11446693024F807005582C92785E0E42A98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030639   (672411) от 01.07.2016
 
 VA - Soft Clouds Over Paradise (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -548,213 +754,6 @@ VA - Music For Sports Games: April Edition (2018) [MP3|320 Kbps] <Electro House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A08DD365D86E801882F54EA00A571A8B2AB46007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223572   (671429) от 06.05.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 04.05.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arash feat. Helena - Dooset Daram
-02. Justin Timberlake - Say Something (ft. Chris Stapleton)
-03. Dynoro feat. Gigi D'Agostino - In My Mind
-04. Jax Jones - Breathe (Ina Wroldsen)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421B7DF80B7EE02F321FA2B96B9DA87577754529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223716   (671425) от 06.05.2018
-
-VA - Popular Italian Disco Classic (2018) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671425.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eros Ramazzotti - Piu Che Puoi
-002. Marcella - Quando Verrai
-003. Riccardo Fogli - Compagnia
-004. Umberto Tozzi - Notte Rosa(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 11:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D132DD14EF18F3399B9582ED665E57CC588EEAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223858   (671412) от 06.05.2018
-
-VA - Italo-Disco Instrumental Hits (2018) [MP3|320 Kbps] <Disco, Instrumental>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671412.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amadeus Liszt - Win The Race (Instrumental) (3:58)
-002. Den Harrow - Mad Desire (Instrumental) (5:05)
-003. Barbie - Barbie Goes Around The World (Instrumental Version) (3:25)
-004. Gurcan Erdem - 10000 Lonely Drums (Special Instrumental Edition) (4:14)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 08:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA50778295F1F2B4E493AF5D00035C0425912A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223608   (671325) от 06.05.2018
-
-VA - Retro Mania 80s Disco Funky (2018) [MP3|320 Kbps] <Pop, Disco, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671325.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Everywhere
-002. Queen - A Kind Of Magic
-003. Simple Minds - Don't You (Forget About Me)
-004. Tina Turner - The Best(   Читать дальше...   )Жанр: Pop, Disco, FunkyПродолжительность: 07:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD942659E94DB8E844B64D613C530F6C42A8DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223764   (671240) от 06.05.2018
-
-VA - Вспоминая прошлое... Рок коктейль 70-х (зарубежный выпуск) (1970-1979) [MP3|320 Kbps] <Rock, Pop Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainbow - All Night Long (03:54)
-02. Alice Cooper - Under My Wheels (02:50)
-03. Sweet - 4th Of July (04:26)
-04. Creedence Clearwater Revival - My Baby Left Me (02:19)(   Читать дальше...   )Жанр: Rock, Pop Rock, Hard RockПродолжительность: 07:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB061B0DA9EC15F92DEA93B1BD99151AB106445F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136808   (671135) от 24.05.2017
-
-VA - Synthetic  vol.6 (2017) [MP3|320 Kbps] <Synth Pop, EBM, Dark Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funker Vogt - Traumatic Event (DJ Bim Remix) (06:59)
-02. Accessory - At The End (04:38)
-03. Toys No More - Ich Atme Und Tanze (03:52)
-04. Leaether Strip - Paranoia Nr13 (Kant Kino Kontrasts) (04:58)(   Читать дальше...   )Жанр: Synth Pop, EBM, Dark ElectroПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353444CBAA299D44C22CDE20027FB91610424AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510196   (671008) от 14.06.2012
-
-VA - Зарубежные Новинки Vol.56 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Brown - Bitch I'm Paid
-02. Tarkan feat. Ozan Colakoglu - Ask Gitti Bizden
-03. Florrie - I'm Gonna Get You Back
-04. Usher - Euphoria
-05. Daniel Zueras & Jason Rivas - Nothing's Gonna Change My Love For You (Radio Edit)
-06. Kaiser Chiefs - Listen To Your Head
-07. Waka Flocka Flame feat. Nicki Minaj, Tyga & Flo-Rida - Get Low
-08. Medina - Happening2012Жанр: PopПродолжительность: 03:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D7BEF8DAE29E53707A3092350F4C3E58352B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

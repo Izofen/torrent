@@ -1,3 +1,29 @@
+###  Публикация: 1803425   (65877) от 22.06.2025
+
+Текстуры - TexturesStore - Envato - 30 Knitted Background Textures - 8RFFUJA [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 30 вязаных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AD9E66A85D16FD822305A032F83F4BEB0B7EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803240   (65874) от 22.06.2025
 
 Текстуры - Zeppelin_Graphics - Envato - 50 Paper Textures Set - 78GBAZ [JPG]
@@ -649,34 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804761   (65588) от 01.07.2025
-
-Шрифты - Pasha Marin - Behance - ZOOCAGE - Mod By He Rez AD - 107349461 [TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Материал раздаётся с официальной документацией.
-В данной модификации корректировано отображение надстрочных элементов, так же добавлен файл формата WOFF.Формат: TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
 ```
 
 https://mybot314.ru/tekegram_catalog/

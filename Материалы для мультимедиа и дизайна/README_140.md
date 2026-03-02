@@ -1,3 +1,29 @@
+###  Публикация: 1221924   (689560) от 27.04.2018
+
+Текстуры - Creativetacos - Free 5K Stripe Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные полосатые текстуры.Формат: JPGРазрешение файлов: 5120px X 2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36EBB2FCB5FD122EC6FE332821057E5FA7252B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221918   (689551) от 27.04.2018
 
 Текстуры - Creativetacos - Free 5K Reticulation Textures [JPG]
@@ -657,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD0648081D43602CD73CE5B4C2D626BC970F8843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221850   (687257) от 28.04.2018
-
-Текстуры - Creativetacos - 20 Raw Gold Textures Backgrounds [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры-необработанное золото.
-Автор: CreativetacosФормат: JPGРазрешение файлов: 6000 × 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE032BC7BB6E440B4DF448716B44382E767BB67C
 ```
 
 https://mybot314.ru/tekegram_catalog/

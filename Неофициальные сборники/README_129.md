@@ -1,3 +1,209 @@
+###  Публикация: 1377546   (851632) от 22.04.2020
+
+Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Don't Know (Sure Can Hurt You)
+02. Bad Boys (Of Rock 'N' Roll) (Remastered Version)
+03. Run for Your Life
+04. Shoot 'Em Down(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 03:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E68019FFB49AC6BAC8906F0F8F9D07DD0321D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191538   (851567) от 12.04.2010
+
+VA - Mystic (2006) [MP3|256 kbps]<Worldbeat, Chillout, New Age, Ethnic Fusion>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wendy Stark - Animus Anima
+02. Phil Thornton - The Mask of Seduction
+03. Midori - Mercy on Me
+04. John Richardson – Benedictions
+05. Wendy Stark - Child Of Transference
+06. Midori - Ancient Ways
+07. Phil Thornton - Kiss of the Sorcerer
+08. Wendy Stark – ReflectionЖанр: Worldbeat, Chillout, New Age, Ethnic FusionПродолжительность: 05:01:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377516   (851507) от 22.04.2020
+
+John Lennon - 100% John Lennon (2020) 2CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (2010 Mix)
+02. Jealous Guy (Remastered 2010)
+03. (Just Like) Starting Over
+04. Watching The Wheels(   Читать дальше...   )Жанр: RockПродолжительность: 06:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDB631C3F77EA49018F6E9C49B480D17B44277E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377608   (851500) от 22.04.2020
+
+VA - Circle of Life (Native American Music) (2020) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Dog Dance
+02. Existence; RodrigoGomes; ChristianTeele; ChrisEngelman; JosephFirecrow; Se-Chen-Ko; LeonardPeltier; MargotReisinger - First Nations Flute Player
+03. Big City Indians - May You Walk (Roussinoff Remix)
+04. A Tribe Called Red - Electric Intertribal (Feat. Smoke Trail)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 08:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A60E0C38AD21FD80B8620C315E72B7D3EB0A3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377653   (851499) от 22.04.2020
+
+Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Wars...The Punishment Due (Remastered 2004)
+02. Hangar 18 (Remastered 2004)
+03. A Tout Le Monde (Remastered 2004)
+04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377631   (851373) от 22.04.2020
+
+VA - Шансон Весна (2020) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Борисов Михаил и Андрей Курбатов - Роза белая (6:02)
+2.Григорий Лепс - Побег На Рывок (5:59)
+3.Александр Гум - Спасибо (5:02)
+4.Вадим Крёстный - Ольга (4:46)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339392B40AA71CD6FCCD6CB8F8861BB8ACCD1695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002056   (850655) от 30.03.2016
+
+VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Sweet Summer Days [02:20]
+02. Elisha La'Verne - Love It When We Do (The Antidotes Instrumental Mix) [06:07]
+03. Cool Million - Running Around (Roberto Di Carlo Remix)Жанр: House, Tech House, Deep HouseПродолжительность: 01:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8CFEE52D5016439F1CCE3E662EC201CA084421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001893   (850573) от 30.03.2016
 
 VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
@@ -542,209 +748,6 @@ VA - Billboard Top 25 Hot Rock Songs (14-03-2015) [MP3|320 кб/с]<Pop, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E90CAA2C89A9A3283626619E29EE201BAF95561D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002150   (849107) от 31.03.2016
-
-VA - Trance Сollection vol.40 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ABHISHEK Y2V-The Myst (Extended Mix) 05:21
-002 Abide-Perpetuity (Original Mix) 08:02
-003 Air Project-Memoirs (Original Mix) 06:51
-004 Alex Byrka & Jay Flora feat. Tanya Lindsgrey-Magic (Andrew Lang Remix) 06:23(   Читать дальше...   )Жанр: TranceПродолжительность: 10:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADC623E8AEBA28CF5B610833C87E53FD9203259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002237   (849001) от 31.03.2016
-
-VA - The Sound Of Soul Heaven Miami (2016) [MP3|320 кб/с] <House, Club House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound of Soul Heaven Miami 2016 Mix 1 (Continuous Mix) [70:43]
-02. The Sound of Soul Heaven Miami 2016 Mix 2 (Continuous Mix) [71:02]
-03. The Sound of Soul Heaven Miami 2016 Mix 3 - Classics Mix (Continuous Mix) [71:31]
-04. The DangerFeel Newbies - What Am I Here For? (Kai KZR Alcé Late Night Mix) [07:05](   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 08:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDF2A4E2D8D45CCC4F42CA0DF455113E91B26A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002463   (848998) от 31.03.2016
-
-VA - Romantic Deep and Future House Beedroom Music (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crew 7 - Luv 4 Luv - Club Edit
-02. Konstantin Maria - Take A Chance - Kim Morgan & Tobstar Remix Edit
-03. Carlos Room - Rocket
-04. Arom Side - Are You Ready(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E95482DEE82D3DF4653417FBDDC403848538CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002409   (848921) от 31.03.2016
-
-VA - Fitness House.Musical Energy (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Nico Otten-Sueno (Radio Cut) 04:02
-02 Sonny Vice vs. Antiheroes-Rock 'n' Rolla (Radio Cut) 03:35
-03 Sam Slim-Break Your Spell (Radio Cut) 03:51
-04 Ian Solano-Quadzilla (Radio Cut) 04:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C74F0394A599289B80930E63D48861DC26FE094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002244   (848900) от 31.03.2016
-
-VA - Pure 90s Time Garden (2016) [MP3|320 кб/с] <Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ozzy Osbourne - I Just Want You 04:56
-02. The Wallflowers - Three Marlenas 04:59
-03. Nirvana - Heart Shaped Box 04:41
-04. Bon Jovi - Keep The Faith 05:44(   Читать дальше...   )Жанр: Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, CountryПродолжительность: 08:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F729B3570A0478AD1B4E09EB2CDC44EFDCFCE796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002220   (848894) от 31.03.2016
-
-VA - Healing Meditation Zone (2016) [MP3|320 кб/с] <Relax, Meditation, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aandra - Songs of the Sea (Feat. Soul Sista Shakti)
-002. Rebirth Yoga Music Academy - Deep Meditation (Morning Birds, Waterfall)
-003. Florito - Neiva
-004. Calming Music Sanctuary - Yoga Infinity Journey(   Читать дальше...   )Жанр: Relax, Meditation, DowntempoПродолжительность: 07:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A6A28DB8488FBDE85A8F17C490FC2FC80CC772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111326   (848854) от 05.03.2017
-
-VA - Козырная песня на Шансоне. Версия № 2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848854.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Куприк - Молва 4:06
-002. Алексей Брянцев - Тайна 4:10
-003. Дмитрий Романов - Пожалей Ты Меня 2:27
-004. Анатолий Мякушкин - Моя Звезда 4:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48F6C435657D244EB4E52E19055383C8CDDB246
 ```
 
 https://mybot314.ru/tekegram_catalog/

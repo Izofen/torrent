@@ -1,22 +1,24 @@
-###  Публикация: 472077   (97495) от 23.03.2012
+###  Публикация: 474952   (98072) от 30.03.2012
 
-[Wallpapers] Cinema Wallpapers (23.03.12)
+Девушка из Джерси / Jersey Girl (2001) DVD5
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97495.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+На рождественской вечеринке Олли Тринке знакомится с красавицей Гертрудой, женится на ней и готовится стать отцом. Однако его счастье длится недолго — молодая жена умирает при родах, оставляя ему дочку.
+
+Потеряв работу, Олли переезжает в пригород к своему отцу, где спустя некоторое время знакомится с милой девушкой Майей. Вместе, Майя и его подросшая дочь, возвращают Олли вкус к жизни…Жанр: Драма, Мелодрама, КомедияРежиссер: Кевин СмитАктеры: Бен Эффлек, Лив Тайлер , Джордж Карлин , Ракель Кастро , Джейсон Биггс , Дженнифер Лопез , Стивен Рут , Майк Старр, Бетти Эберлин , Мэтт Дэймон , Джейсон Ли, Кит МойерПеревод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:38:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:519D9F7343694A10307D45D7F288DC3798BC40F4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,32 +26,95 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472091   (97494) от 23.03.2012
+###  Публикация: 475240   (98071) от 30.03.2012
 
-Claudio Merlini - Enchantment WEB (2012) [FLAC|Lossless]<Electronic, New Age, Chill Out, Ambient>
+VA - Jazz Legends 3CDs (Collection) (1998) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jazz Legends 1:
+
+01. Ella Fitzgerald, Louis Armstrong - They Can't Take That Away From Me
+02. Bing Crosby, Mills Brothers - Shine
+03. Fats Waller - It's A Sin To tell A Lie
+04. Coleman Hawkins - On The Sunny Side Of The Street
+05. Ella Fitzgerald, Louis Armstrong - A Foggy Day In London Town
+06. Nat King Cole - It's Only A Paper Moon
+07. Bing Crosby - Dinah
+08. Count Basie - One O'Clock Jump(   Читать дальше...   )1998Жанр: JazzПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F40944F2A7442D7D5CBE05198BAA6343D42EC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475718   (98070) от 30.03.2012
+
+Saline OS 1.6 [i386 + x86_64] (2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энтони Нордквист представил SalineOS 1.6 – новую версию легковесного и быстрого открытого дистрибутива, построенного на репозиториях Debian GNU/Linux 6.0.4 и использующего рабочее окружение Xfce. Особенностью выпуска является набор пользовательских действий и сценариев, значительно увеличивающих функциональность файлового менеджера Thunar: открытие с правами root каталогов и запуск теринала, возможность присвоения файлу атрибута «executable», запуск MD5SUM, конвертация образов специфических форматов (NGG, MDF) в стандартные ISO-образы, простая утилита использования диска, mount/unmount для ISO, конвертация в ODT, экспорт в PDF, поиск файлов или папок с использованием Catfish, простые преобразования изображений (поворот, изменение размера, масштабирование, конвертация форматов), запись файлов ISO или IMG на USB-носитель, редактирование текстовых файлов с правами суперпользователя.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475303   (98069) от 30.03.2012
+
+VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97494.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Claudio Merlini - Enchantment WEB (2012)
-Год: 2012
-Жанр: Electronic, New Age, Chill Out, Ambient
-Продолжительность: 01:18:37Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks + .cueТрек лист:
-01. Desire (3:40)
-02. Portraits (3:50)(   Читать дальше...   )
+001. Юрий Шатунов - Это Лето
+002. Reflex - Первый Раз 2012
+003. DJ Грув & Гарик DMCB - Я Не Знаю Кто Мы
+004. Alyosha (Aлешa) & Влад Дарвин - Больше Чем Любовь
+005. Алисия & Master Spensor - Почему
+006. Лиза Лукашина feat. LikbeZ - Олимпиада 2014
+007. Hi-Fi - Не Покидай
+008. Николай Басков - Странник
+009. Couple - Дым
+010. София Ротару - Мы Будем Вместе(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:55:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04B3DBA0ABE2D3CDCA976E7638574089887C0BD7
+magnet:?xt=urn:btih:885D505FAC580E02DB542CEA9EDDA405B3F47195
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,25 +122,366 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472193   (97492) от 23.03.2012
+###  Публикация: 475567   (98067) от 30.03.2012
 
-Журнал | Империя вкуса №2 [2012] [PDF]
+Ghost Town Blues Band - Dark Horse (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Lover (3:27)
+02. Memphis Train (4:30)
+03. Finish What You Started (2:50)
+04. Dark Horse (3:30)
+05. Meet Me At The Juke Joint (3:53)
+06. Blues Box Breakdown (0:38)
+07. Memphis Blues (4:16)
+08. Before You Hit The Ground (4:07)
+09. Messin' With The Kid (3:00)
+10. Good To Be Me (3:14)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475610   (98066) от 30.03.2012
+
+Scream Silence - Scream Silence (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayfare (8:15)
+02. One (4:06)
+03. New Flood (4:42)
+04. Dreamer's Court (4:53)
+05. Blushed (4:12)
+06. In These Words (5:21)
+07. Surd (4:08)
+08. Horizons (4:00)
+09. Downside (3:28)
+10. Days of Yore (4:06)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475463   (98061) от 30.03.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98061.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 7 
+Название:  Nature HD Wallpapers Pack 7 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 7800х5658
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4823FDA1FAFDF95A263606DCEBB68B1FC1AC98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475569   (98060) от 30.03.2012
+
+VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]<Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Set Fire To The Rain
+ 02. Akki & Jodie - Russian Love (Radio Edit)
+ 03. Alessia - Everyday (Radio Edit)
+ 04. Babaeff Dark & DJ China & Leyla Kafari - Eurovision 2012 ( DJ Fair Wind Remix )
+ 05. Bad Meets Evil & Bruno Mars - Lighters (Explicit Edit)
+ 06. Bruno Mars - Marry You
+ 07. Calvin Harris - Feel So Close
+ 08. Chris Brown & Benny Benassi - Beautiful People
+ 09. Coldplay & Rihanna - Princess Of China
+ 10. Dappy - No Regrets(   Читать дальше...   )2012Жанр: Pop, House, DanceПродолжительность: 03:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D96F30B3323C1B04971C59EC9441930C21C553A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475504   (98059) от 30.03.2012
+
+Родители / Parenthood (1989) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть главой большой семьи — задача не из легких. Тем более, если ты, как любой уважающий себя родитель, хочешь, чтобы твои дети выросли приличными людьми. Вот Гилу Бакмену и приходится «крутиться», чтобы делать успешную карьеру, и одновременно быть любящим мужем и заботливым отцом.Жанр: КомедияРежиссер: Рон ХовардАктеры: Стив Мартин, Рик Моранис, Киану Ривз, Мэри Стинберджен,Том Халс, Джейсон Робардс-Младший, Дайэн УистПеревод: Одноголосый закадровый (А. Михалев)Язык субтитров: английские, испанскиеПродолжительность: 02:04:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475364   (98058) от 30.03.2012
+
+Роберт Пайк | Жертва [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из тюрьмы Синг-Синг сбежали четверо заключенных, которых ничто никогда не связывало, ни в тюрьме, ни до нее. Причем один из них имел возможность через несколько месяцев досрочно освободиться. Что толкнуло его связаться с этой компанией и пойти на побег? Не оправдались и расчеты преследователей на то, что неожиданный беглец постарается спрятаться где-нибудь подальше. Он отправился в Нью-Йорк. Что задумал преступник и какие события последуют за этим?2011Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475032   (98057) от 30.03.2012
+
+Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Start  (3:34)
+02. One Last Time  (4:55)
+03. Love Sweet Love  (3:30)
+04. Fly Away  (3:40)
+05. Darkest Before The Dawn  (3:53)
+06. Room 414  (2:47)
+07. Voodoo Moon  (4:16)
+08. Anywhere You Run  (3:57)
+09. Last Bluesman Gone  (2:10)
+10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475735   (98056) от 30.03.2012
+
+Журнал | АиФ. Спецвыпуск. Дача №4 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот номер "Аиф. Спецвыпуск. Дача" посвящён животрепещущей теме, волнующей каждого дачника, - весенней обрезке сада.
+   Пользуясь советами экспертов, вы сможете понять главные задачи обрезки и освоить простые приёмы их выполнения.
+   Попробуйте - ведь в результате Ваш сад станет аккуратным, урожайным, здоровым и долговечным.
+   Следующий номер спецвыпуска будет (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9FE193805C00ACDD0AC35E507D770792FB1F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475360   (98053) от 30.03.2012
+
+Ю.М. Ключников | Лики русской культуры [2010] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного поэта, публициста, философа, путешественника, автора десяти книг стихов и прозы Юрия Ключникова «Лики русской культуры» представляет собой сборник статей, эссе, очерков, посвященных выдающимся русским писателям, поэтам, музыкантам, ученым, полководцам. Перед взором читателя встают образы и творческие судьбы2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475686   (98052) от 30.03.2012
+
+Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin' Started (0:49)
+02. Roots (4:58)
+03. The Other Man (4:11)
+04. The Girl Who Got Away (Back In The Days) (4:10)
+05. Stop! (3:59)
+06. Beale Street (4:34)
+07. You (5:25)
+08. Swing Thing (4:22)
+09. Going Home (4:03)
+10. Give It To Me (5:15)(   Читать дальше...   )2012Жанр: Soul, Vocal JazzПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472953   (98050) от 30.03.2012
+
+Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unisonic (03:22)
+02. My Sanctuary (04:13)
+03. Souls Alive (Demo Version) (05:11)
+04. I Want Out (Live Version) (05:32)Жанр: Power MetalПродолжительность: 00:18:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475545   (98049) от 30.03.2012
+
+Журнал | Загородная резиденция №1 [2012 февраль-март] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97492.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированное издание, посвященное алкогольным и безалкогольным напиткам, а также ресторанному бизнесу, удачно сочетающее профессиональную и популярную подачу материалов, полезную и интересную информацию.2012Формат: PDF
+Загородная резиденция - журнал о ценностях загородной жизни, будет интересен тем, кто живет в частном доме или только собирается его себе приобрести. В каждом номере советы от ведущих специалистом, обзор рынка, примеры удачных проектов.2012 февраль-мартФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1756D55CC8D2B0B88F54411C07BAFBFE4EF63198
+magnet:?xt=urn:btih:AAEAB4C48655FC6A67BFBECDABCB24C4D3D7DFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,34 +489,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471959   (97491) от 23.03.2012
+###  Публикация: 475313   (98048) от 30.03.2012
 
-VA - XXXL Блатной Весна (2012) [MP3|256 кб/с]<Шансон>
+VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97491.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Анатолий Полотно и Федя Карманов - За друзей!
-02. Александр Новиков - Три дня
-03. Ирина Круг - Любить не страшно
-04. Кира Дымов и Любовь Успенская - Берегу и Кораблю
-05. Афина и Кронштадт - Голос
-06. Ляля Размахова и Джалал Аббасов - Хочется
-07. Андрей Федосеев - Вошла несмело
-08. Семен Канада - Как мне быть
-09. Алена Андерс - Рябина
-10. Михаил Загот - Не закрывай глаза2012Жанр: ШансонПродолжительность: 06:04:24
+01. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
+02. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
+03. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)
+04. Dj Tatiana Feat. Topsax - Love Drop (Sax Version The Original Mix)
+05. Dj Winn Feat. Freeman Drilla - All About You (Radio Edit)
+06. John Dubs Dj Kenny - Life Arel (Radio Edit)
+07. Sarah West - Black Blue
+08. Nadia Oh - Fqn Amazing
+09. T.I. Feat. Meek Mill - Who What When
+10. Alex Sergius Feat. Роман Гвоздев - Дежавю(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5D10E37FE112433B263FC5B3CD3B8B931D11CA4
+magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -118,29 +524,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472413   (97490) от 23.03.2012
+###  Публикация: 475538   (98047) от 30.03.2012
 
-[Wallpapers] HD Pictures №8
+Mozilla SeaMonkey 2.9 Beta 2 [Русский]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97490.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №8
-Название: HD Pictures №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E095870BA53047A9F376006D0D5E1D7E12870743
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -148,142 +550,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472076   (97489) от 23.03.2012
+###  Публикация: 475466   (98044) от 30.03.2012
 
-[Wallpapers] Girls Wallpapers (23.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718B15E6A13E31FCFCDDB9151ED783DF717519F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472417   (97488) от 23.03.2012
-
-[Wallpapers] Green Wallpapers 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97488.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Green Wallpapers 2
-Название: Green Wallpapers 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AADC260185796E0E93E11FA777B67CD0BEDA3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472267   (97487) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (24.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84069836F16B43C288CB1D5ECC0657C608F423A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472439   (97486) от 23.03.2012
-
-Формула 1. Гран-При Малайзии. 1-ая свободная практика (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EA46EFBA73774396301ADA253AAF413A6B739B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472041   (97482) от 23.03.2012
-
-VA - XXXL Дворовой Весна (2012) [MP3|256 кб/с]<Pop>
+VA - Club Music Energy 50/50 (2012) [MP3|192-256 kbps]<Club>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97482.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ляля Размахова - Дворовая
-02. Без Фильтра - Бывали дни (дворовая версия)
-03. Женя Белоусов - Вечером на лавочке
-04. Катерина Голицына - Романс Дворовой
-05. Гриша Заречный - Дворовая
-06. Scrash - Хулиган
-07. Валентин Стрыкало - Наше лето
-08. Кабриолет - Песню нежно напевала
-09. Алексин - Страшная
-10. Валерий Залкин - Одинокая ветка сирени2012Жанр: PopПродолжительность: 06:04:07
+01. Adriana & А.Арабов feat. Stilet - Прости Меня (DJ Nejtrino Version)
+02. Катя Лель - Твоя (Ural Djs mix)
+03. Алена Высоцкая - С Ума Сходил (Dj Prosvirin Dfm Mix)
+04. Bobina feat. Betsie Larkin - You Belong To Me
+05. Lena Katina (ex. t.A.T.u) - Never Forget (Trojan Project Radio Remix)
+06. David Guetta - Titanium (Feat. Sia)
+07. Severiano Deejay Feat. K - Flow & Rella Roxx - Unspoken Feelings
+08. Pem D - White Feat. Adrianna Szojda - Take Me Away (Original Mix)
+09. Всё Включено - Солнце на закат (Версия 2011) (сlub extended)
+10. MM Dance - Отдыхаем (Dj Alfred extended mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21D65A11BBFDF2F0383DD4F43EB66CE6A5CD22D9
+magnet:?xt=urn:btih:CE3B3A32EAB38C60D4E93D619C23B3AC69467555
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,34 +585,172 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471931   (97481) от 23.03.2012
+###  Публикация: 475492   (98043) от 30.03.2012
 
-VA -Top-Hits.Только хиты на Танцполе (2012) [MP3|256 кб/с]<Pop>
+VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева - Sexy Bambina
+02. Шахзода - Нереально без тебя
+03. DIK - Вселенная
+04. Тамерлан и Алена Омаргалиева - Hey Yo
+05. Митя Фомин - Садовник (Radio Edit)
+06. Алисия & Влад Корса - Здесь и сейчас
+07. Ирина Ортман - Медленно
+08. Шиншиллы - Пушкин Саша
+09. Ажур - Город
+10. Марта - Из тысячи лиц(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF93365B1D159B2CAFC6813960642C857068B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475036   (98040) от 30.03.2012
+
+145 th Street - Where the Blues Lives (2012) [FLAC|Lossless]<Chicago Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where the Blues Lives (5:18)
+02. Tell Me, Baby (4:45)
+03. Before Its Time (6:26)
+04. Your Little Show (5:35)
+05. Blues Never Sleeps (5:43)
+06. What Am I S'posed to Do (7:38)
+07. Make Love to You (5:48)
+08. Seven Days (4:40)
+09. Good Mornin' Blues (5:45)
+10. Give Her What She Wants (6:10)2012Жанр: Chicago Blues, Electric BluesПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475026   (98039) от 30.03.2012
+
+Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_98039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunny (9:01)
+02. Up In Betty's Room (6:42)
+03. Pistaccio (4:44)
+04. Smul's Paradise (8:27)
+05. Little Miss Halfsteps (4:53)
+06. Aires (8:15)
+07. Blues for DP (6:36)
+08. Heavenly Hours (4:02)2012Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474764   (98038) от 30.03.2012
+
+VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Christopher S feat. Jamayl Da Tyger - Jump! (Mike Candys Remix) (4:36)
+ 2. Cobra Starship vs. Purple Project - You Make Me Feel (Denis First ft. P.P Booty) (5:46)
+ 3. Corey Andrew, Liz Mugler, Riviera Kidd - Symphony Of Life (Riviera Kidd Remix) (7:31)
+ 4. Fragma – Thousand Times (Marc Lime & K Bastian Remix) (6:29)
+ 5. Jason Derulo - Breathing (Michael Mind Project Remix) (5:39)
+ 6. Jordan Rivera - One Night (Jack Ferreira Vocal Club Mix) (6:00)
+ 7. Labrinth - Last Time (R3hab Mix) (6:00)
+ 8. LMFAO - Sorry For Party Rocking (R3hab Remix) (5:12)
+ 9. Movetown feat. Nana - Lonely (Mario Lopez Remix) (6:31)
+ 10. Tito Torres & Ella - Sunrise (Slin Project Remix) (5:52)27.03.2012Жанр: Electro HouseПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBA65DA366CB75581C8A0E7196DC26C2CC39AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475486   (98035) от 30.03.2012
+
+VA - Самый, Самый! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Flash и Ксения - На Крыльях Ветра (Radio Edit) (3:09)
-2. Макс Барских - Dance (Russian Version) (3:21)
-3. Глюкоза - Кошка (3:23)
-4. Юлия Паршута - Ты Мой Пароль (3:22)
-5. Ак$ис - Вернись (4:36)
-6. Потап и Настя Каменских - Не Хватило Воздуха (3:26)
-7. Макsим - Осколки (3:40)
-8. Анна Суворова - Слезы На Твоей Подушке (2:35)
-9. Винтаж и DJ Smash - Москва (3:45)
-10. Dan Balan - Лишь до утра (Dance Version) (3:21)2012Жанр: PopПродолжительность: 06:10:00
+01. Britney Spears - Criminal
+02. Mylene Farmer - Lonely Lisa
+03. JLS - Do You Feel What I Feel
+04. R.J. feat. Pitbull - U Know It Aint Love (David May Original Radio Mix)
+05. Beyonce - Dance For You
+06. Pixie Lott feat. Pusha T - What Do You Take Me For
+07. Kazaky - Dance For Change
+08. Marlon Roudette - Riding Home
+09. Nero - Reaching Out
+10. Nicole Scherzinger - Try With Me(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:58:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06F67E58C6AE2AD102DFD4BBD30F60743099C9D0
+magnet:?xt=urn:btih:80E3760E54A58E892DC58923D3928BD15190D419
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,25 +758,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472444   (97480) от 23.03.2012
+###  Публикация: 475549   (98034) от 30.03.2012
 
-Формула 1. Гран-При Малайзии. 2-ая свободная практика (2012) HDTV [1080i]
+Журнал | Жилая среда №3 [март 2012] [PDF]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:40:10
+Журнал «Жилая среда» представляет на своих страницах самые интересные реализованные интерьеры архитекторов и дизайнеров Санкт-Петербурга. Помогает читателю разобраться в многообразии стилей и направлений, рассказывает о тенденциях в интерьерном дизайне, о новинках мировых и отечественных брендов, являясь эффективным навигатором, позволяющим ориентироваться в многообразии (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76EF954EB8C0FD769CC7384F5CBE91A529E7D916
+magnet:?xt=urn:btih:9B3CBB267539E52B4E0CFDD82173918874BCA381
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -352,371 +784,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 472050   (97479) от 23.03.2012
+###  Публикация: 475550   (98033) от 30.03.2012
 
-[Wallpapers] Desktop wallpapers (22.03.12)
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.14 (2012) [MP3|128-320 кб/с]<Pop, Dance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97479.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_98033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.Matt Hewie & Patrick Aurelle - Kiss My (Radio Edit)
+02.Ияра - На Губах Тай (DJ Nariman Mix)
+03.Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
+04.Aslan и Эльдар Далгатов - Опа Опа
+05.Trina feat. Kid Cadet & Vinny Venditto - Outer Space
+06.MMDance - Баня (DJ Noiz & DJ Sender Remix) (Radio Edit)
+07.Antonio Mellifluous feat. Andrew Mastilias - Diamonds In Your Heart
+08.Олег Винник - Аэропорт
+09.Maxigroove - Wonderful Life (Radio Mix)
+10.Leyla - Ночной DJ2012Жанр: Pop, DanceПродолжительность: 05:15:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:233F40E3E7A4E3F750613649302FCF92748AA6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472043   (97477) от 23.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB89B0F8576D8ECBE05DC750E26B68D20DB71636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472044   (97476) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE479A87E60327744187EA637DA804824BA2AB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472401   (97472) от 23.03.2012
-
-[Wallpapers] HD Pictures №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97472.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №7
-Название: HD Pictures №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6612A261603468982326119ADE089A6577951A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472265   (97471) от 23.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (24.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC291A407757D4E69E3A079CCEE4B731C7281D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472054   (97470) от 23.03.2012
-
-[Wallpapers] Films Wallpapers (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B23C5E0D2CE8771071563801792973E0767880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471881   (97469) от 23.03.2012
-
-Водная жизнь (серия 3 из 26) / Water Life (2007) BDRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA98D70C168CA289DD2E5AF21318A74D6F546EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472418   (97468) от 23.03.2012
-
-[Wallpapers] Nature Pictures №34
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97468.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №34
-Название: Nature Pictures №34
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CB1E89F8B59EFFB1AF71EE14FE2616A2AD5C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472071   (97467) от 23.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (23.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B3A07E60DF26FC47C0F7996AE5199CE87E2A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472270   (97466) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers (24.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8291924B466B48325091C7628CE00FF82C32D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472078   (97465) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (23.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA020B7BAB07EC430B344C75A683E0D21699C80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471876   (97463) от 23.03.2012
-
-Водная жизнь (серия 2 из 26) / Water Life (2007) BDRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEC196C490C5CD2A47C4CF6D0B57BA0DFB2491A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472051   (97462) от 23.03.2012
-
-[Wallpapers] Best Mixed Wallpapers (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4578BF2B7C9150B646C6584B836F3B590A94096E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472053   (97461) от 23.03.2012
-
-[Wallpapers] Girls Wallpapers (22.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16407446C489124AFE97712CB2A2BE3469F863FA
+magnet:?xt=urn:btih:392EBDA41A9CAF8AB9AFD329E3F1DC98034F132F
 ```
 
 https://mybot314.ru/tekegram_catalog/

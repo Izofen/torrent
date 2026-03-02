@@ -1,3 +1,90 @@
+###  Публикация: 1436727   (1042808) от 02.01.2021
+
+Dread Sovereign - Alchemical Warfare (2021) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Curse on Men [00:00:59]
+02. She Wolves of the Savage Season [00:10:08]
+03. The Great Beast We Serve [00:04:51]
+04. Nature Is the Devil's Church [00:08:25](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC99E0059221D1A1D7D0CF6030E31011EB655FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436960   (1042795) от 02.01.2021
+
+Ominous Glory - The Elven Dream (2021) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March of the Elf King (02:33)
+ 02. Eternal Destiny (06:50)
+ 03. The Elven Dream (07:47)
+ 04. Oraekja (Erick the Viking) (04:06)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F64D6FE93704E91427643F85EC42AE3618BE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437120   (1042565) от 03.01.2021
+
+Octavision - Coexist (2020) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindwar (07:19)
+ 02. Coexist (07:49)
+ 03. Proctagon (05:29)
+ 04. Apocalyptus (09:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B494F19E21B8C0A941CCB28AC5620B20AD93D5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437026   (1042562) от 03.01.2021
 
 Tar Hag - Bestial (2021) [MP3|320 Kbps] <Stoner, Doom Metal>
@@ -657,93 +744,6 @@ The Rods - Brotherhood Of Metal (2019) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A28D9AB62CCA3F7C0B1385AB5B9E821F8FB83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438919   (1040534) от 10.01.2021
-
-Hellhole - Whores in the guise of saints (2020) [MP3|320 Kbps] <Black Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Religion of lies (05:27)
- 02. We're all going to hell (05:19)
- 03. At heart (10:11)
- 04. God does not hear you (05:43)(   Читать дальше...   )Жанр: Black Metal, Post-MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46C5614823170686A56E7B95F26D58ED3DFAD57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439030   (1040403) от 11.01.2021
-
-VA - The Unquiet Grave 2020 (2020) [MP3|320 Kbps] <Darkwave, Gothic Rock, Coldwave>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shadow Assembly - Languish [00:04:46]
-02 - A Cloud Of Ravens - The Tempest [00:03:27]
-03 - Ships In The Night - Lost Times [00:04:25]
-04 - I Ya Toyah - Glass Eyes (The Joy Thieves Remix) [00:05:08](   Читать дальше...   )Жанр: Darkwave, Gothic Rock, ColdwaveПродолжительность: 02:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BAFA7E68A8F85D102713AD08EFD46B2E1A4175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612368   (1040398) от 15.02.2023
-
-Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Land Of Sleeper (2023) [MP3|320 Kbps] <Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ultimate Hammer
-02 Terror's Pillow
-03 Big Rig
-04 The Weatherman(   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755627ECDD704C5C79BF17C89BAA792C7B820079
 ```
 
 https://mybot314.ru/tekegram_catalog/

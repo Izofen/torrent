@@ -1,3 +1,32 @@
+###  Публикация: 1842981   (1049024) от 17.12.2025
+
+Хитобои - Новогоднее настроение (2025) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049024.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новогоднее настроение
+2. По подаркам че
+3. Нихуя
+4. Олень(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F3EAB433E25C5B62CF6C50078E8FBF1DAC6F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841717   (1048219) от 12.12.2025
 
 .deviant - Reflex (2025) [MP3|320 Kbps] <Progressive Metalcore, Nu-Metal, Alternative Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFAD4C39E2226ABEF8856CA8B03A2E029F9B4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602494   (1046118) от 05.01.2023
-
-Поднебесье - Вслед за мечтой (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вслед за мечтой [00:03:21]
-02 - Две звезды [00:03:52]
-03 - Город [00:05:00]
-04 - В поисках истин [00:05:29](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A0E16E87560CFC1FEFF6EE738C5387E9DCA825
 ```
 
 https://mybot314.ru/tekegram_catalog/

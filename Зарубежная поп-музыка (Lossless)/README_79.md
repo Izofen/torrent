@@ -1,3 +1,119 @@
+###  Публикация: 1671635   (171165) от 25.10.2023
+
+Sandra - Fading Shades (1995) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fading Shades - Part I (Instrumental) [00:01:02]
+02. Nights In White Satin (Radio Edit) [00:03:35]
+03. Son Of A Time Machine [00:05:06]
+04. Won't Run Away [00:04:16](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC21359693D74B2CAAD4F6B1F55D235069819CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671695   (171057) от 26.10.2023
+
+Totally Enormous Extinct Dinosaurs - When the Lights Go (2022) Deluxe Edition, 2023, Nice Age [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Experimental, EBM>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+01 - When the Lights Go (Deluxe)
+02 - When the Lights Go (Deluxe)
+03 - When the Lights Go (Deluxe)Жанр: House, Downtempo, Experimental, EBMПродолжительность: 3 CD, 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A13AACBD217373654BB5770A72B78738A17EA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671962   (170978) от 26.10.2023
+
+Duran Duran - Danse Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightboat (4:23)
+02. Black Moonlight (3:07)
+03. Love Voudou (4:29)
+04. Bury A Friend (3:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09006AB8520299BA3C6BC030C03302FB46653F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430193   (170753) от 10.12.2020
+
+VA - Power Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorpions - Wind Of Change (5:13)
+02. Poison - Every Rose Has Its Thorn - Remastered 2003 (4:19)
+03. Queensrÿche - Silent Lucidity - Remastered 2003 (5:47)
+04. Cutting Crew - (I Just) Died In Your Arms (4:33)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6492C5CDFD0123B13D50C4C4A9FFD442589E787C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344345   (170527) от 10.12.2019
 
 Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
@@ -629,122 +745,6 @@ Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598012   (164057) от 17.12.2022
-
-Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Augenblick Landebahn (4:28)
-02. Sommerwind (2:35)
-03. Meine Größte Schwäche (3:40)
-04. Melatonin (2:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7FE6DEDA355ACA1599A7DBC01385A84D48751A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346486   (163932) от 19.12.2019
-
-Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pan Malenczuk (2:59)
-02. Czlowiek z wiekiem do trumny (3:49)
-03. Edek Leszczyk (3:03)
-04. Mani Mani (3:30)(   Читать дальше...   )Жанр: Pop/Rock, BalladПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517362   (162854) от 15.12.2021
-
-Rod Stewart - The Tears of Hercules (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Time (03:58)
-02. Gabriella (03:33)
-03. All My Days (03:37)
-04. Some Kind Of Wonderful (03:02)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E980F98115268D75DA8FDE1FFE0BE6B6B31740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598520   (162402) от 19.12.2022
-
-Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Dance With Somebody (Who Loves Me)
-02. Don't Cry For Me
-03. Higher Love
-04. The Greatest Love Of All(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

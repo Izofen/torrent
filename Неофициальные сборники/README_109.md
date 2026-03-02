@@ -1,3 +1,206 @@
+###  Публикация: 995909   (883092) от 12.03.2016
+
+VA - Club Dance Ambience vol 58 (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 50 Cent vs. DJ KUBA & NEITAN - Disco Inferno Party On! (Aquila Mash-Up).mp3
+002. Aceaxe feat. Jonny Rose & Sicklead - Heartfire (Original Mix).mp3
+003. Acim - All My Life (Original Mix).mp3
+004. Adam Lambert vs Adam Aesalon & Murat Salman - Ghost Town (Max Maikon Mash-Up).mp3(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15723D1D084E8B4498D5E5972A0FF75B43C6B6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995927   (882965) от 12.03.2016
+
+VA - Trance Desire Volume 63 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proyal feat. Ai Takekawa - The Orbit (Hazem Beltagui Remix) (05:45)
+02. A. Shine - Tango (Spark7 Remix) (04:31)
+03. Morvan - Spartacus (06:17)
+04. Sneijder feat. Jess Morgan - Sky Is On Fire (Radio Edit) (04:12)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7920B254C32B9F6C5399BE947994E161F0E812F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995962   (882960) от 12.03.2016
+
+VA - The Top Hits Insider (2016) [MP3|257-320 кб/с] <Progressive, Nu-Disco, Bigroom, UK Garage, Italo House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Original Mix) 05:00
+02. Dj Kamera - Time Machine (Original Mix) 07:01
+03. Disco Fries & Kaaze Feat. Danyka Nadeau - We Are One (Extended) 04:05
+04. D.Marco - New Day 06:59(   Читать дальше...   )Жанр: Progressive, Nu-Disco, Bigroom, UK Garage, Italo HouseПродолжительность: 08:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA2842DA02B38D68DC8B3F77FBB4F1D0644B4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995983   (882846) от 12.03.2016
+
+VA - German Top 100 Single Charts (14.03.2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882846.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Faded
+002. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
+003. Twenty One Pilots - Stressed Out
+004. Jonas Blue feat. Dakota - Fast Car(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B671A9CA0D07DA620187A4917DEC0C9C1B533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995642   (882845) от 12.03.2016
+
+VA - Давай, наливай. Выпуск 2 (2016) [MP3|256 кб/с] <Pop, Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882845.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Кирсс - Знал Бы
+002. Игорь Крылов - Кабацкий Роман
+003. Александр Куданов - Моя Светлана
+004. Татьяна Маргай - Загадай Меня(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 06:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C0D9ABC8046C958F7F7162CDCD26C7BD7D6926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995673   (882843) от 12.03.2016
+
+VA - Весенняя сотка любимой музыки. Часть 6 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882843.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rasmus Skott - Acted Show
+002. Сергей Сумачаков - Похожи
+003. Рената Штифель - Конец Фильма
+004. Lenachka - Breaking Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C518013456D160C29ABEBB3B2F6C5037F64025D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995859   (882699) от 12.03.2016
+
+VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob & Chris - Zeitmaschine (90s Mix) 02:23
+02. Dr.Alban ft. Haddaway, FrancaMorgano & Katja Bredahl - Volcano 03:44
+03. Twenty 4 Seven ft. Stay-C & Li-Ann - Slave To The Music (Housemaxx Edit) 03:46
+04. E-Rotic - Video Starlet 03:28(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 03:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995725   (882690) от 12.03.2016
 
 VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
@@ -542,206 +745,6 @@ VA - Electro House NME DJ Promo (2020) [MP3|320 Kbps] <House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D901C0D7E9B3A185D22B1436B9A7205199F7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995851   (881284) от 13.03.2016
-
-VA - Spring Cocktail (2016) [MP3|320 кб/с] <Grime, Tribal, Moombahton, Urban, Synthpop, Bigroom, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ylona - Blazing Fire (Club Mix) 03:22
-02. Pete Sheppibone & Sashman - Hello Happiness (Imprezive Meets Pink Planet Remix Edit) 03:44
-03. Pulsedriver & Andrew Spencer - Touch Me (Bigroom Radio Edit) 03:21
-04. Aronchupa Feat. Little Sis Nora - Little Swing (Extended Mix) 03:36(   Читать дальше...   )Жанр: Grime, Tribal, Moombahton, Urban, Synthpop, Bigroom, ElectroПродолжительность: 07:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F06D4ACEFB0D2EBD2AD4A563FD5E8A9CBC447EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996088   (881283) от 13.03.2016
-
-Nu Disco Cosmic St.Tropez (2015) [MP3|320 кб/с] <Disco, Nu-Disco, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parcala Behcet - Zuhtu (Anatolian Cuts 01) (07:42)
-02. Erdinc Erdogdu feat. Kivanch K - Enjoy the Silence (04:59)
-03. Microwave Monkeys feat. Nita - Sun Is Shining (04:49)
-04. Deepjack, Mr.Nu - Let Me Say (07:03)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Deep HouseПродолжительность: 01:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C0D1ED40704DEBE90D96446FE426429B5610AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996159   (881208) от 13.03.2016
-
-VA - Drum & Bass The World Of Remix (2016) [MP3|320 кб/с] <Drum & Bass, Remix>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881208.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy C - New Era (Original Mix)
-002. Mefjus - Suicide Bassline VIP
-003. Mob Tactics - Get Dirty
-004. Document One - Run The Block (Original Mix)(   Читать дальше...   )Жанр: Drum & Bass, RemixПродолжительность: 08:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05CF268DE41314D13D47112AED0EF89564033EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996332   (881175) от 13.03.2016
-
-VA - Праздничный душевный Шансон (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сборная Союза - Аленушка
-02. Альберт Ибраев - Любите Жизнь
-03. Ирина Круг - День В Котором Нет Тебя
-04. Игорь Добролевский - Не Зови(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56686BAE3718CBF45E36156452B371BFDBE606AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996143   (881057) от 13.03.2016
-
-VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheryl Cole - I Dont Care
-02. Александр Балыков - Лето (DJ Nejtrino & Kirill Clash Extended Remix)
-03. Olly Murs - Tomorrow
-04. Major Lazer Feat. Ariana Grande - All My Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996267   (880953) от 13.03.2016
-
-VA - Smooth Jazz Vocal Grooves (2016) [MP3|320 кб/с] <Smooth Jazz, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicholas Cole - So Good 4:16
-2. Lin Rountree - Givin' You Love 4:02
-3. James Vargas - Say You Will 5:34
-4. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth Jazz, JazzПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EDBD8D099668849FBC1884CD1BB03BE5D1C80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297234   (880887) от 21.02.2011
-
-VA - Дискотека по Украински (2010) [MP3|128-256 kbps]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 5:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F564BC07B9EA1061D9C3C0F2A3F572B15FF93912
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1363481   (942679) от 28.02.2020
+
+Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboy Chloe
+02. Lonely Boogie
+03. Rollerskate
+04. Suddenly(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363458   (942642) от 28.02.2020
+
+Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:05)
+02. Opportunity (03:33)
+03. Patience (03:52)
+04. Surprise (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 149305   (940473) от 29.02.2020
+
+Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September (I'm On My Way) (2:45)
+02. On My Pillow (3:24)
+03. Love Is (3:24)
+04. What They Say (3:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984309   (940218) от 08.02.2016
+
+Tindersticks - The Waiting Room (2016) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Indie Rock, Alternative Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me (02:46)
+02. Second Chance Man (03:57)
+03. Were We Once Lovers? (04:50)
+04. Help Yourself (05:39)(   Читать дальше...   )Жанр: Chamber Pop, Indie Rock, Alternative PopПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B479C9923418CFB0C9CC4751ACCE7FD2EBEF668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092156   (940112) от 11.01.2017
 
 ABC - Skyscraping (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
@@ -626,122 +742,6 @@ VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365415   (930571) от 07.03.2020
-
-Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:20)
-02. Scream (03:24)
-03. Tension (03:11)
-04. Red Sun (03:05)(   Читать дальше...   )Жанр: KPop, KRockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2F9A5767AAE1C6E7630AB8178B771E22FD2FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986535   (930555) от 14.02.2016
-
-VA - BRAVO Hits 92 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EFF - Stimme (3:08)
-02. Major Lazer feat. Nyla & Fuse ODG - Light It Up (Remix) (2:46)
-03. Matt Simons - Catch & Release (Deepend Remix) (3:15)
-04. Justin Bieber - Sorry (3:20)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie Rock, Country RockПродолжительность: 02:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD81590EEA6F234EBE31FA5654F8DA7302BAF630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365044   (930392) от 07.03.2020
-
-George Michael - Older (1996) [FLAC|Lossless|image + .cue] <Electronic, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus To A Child [06:51]
-02. Fastlove [05:25]
-03. Older [05:34]
-04. Spinning The Wheel [06:22](   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FDCC2B052D49CE437FB33C14E33C36B4D6D51C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365416   (930162) от 07.03.2020
-
-A-ha - Greatest Hits: Japanese Single Collection (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me
-02. The Sun Always Shines On T.V. (Single Mix)
-03. Train Of Thought (Remix)
-04. Hunting High And Low (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E43263AD7C065B3623C5100A882C82DBD81FD65
 ```
 
 https://mybot314.ru/tekegram_catalog/

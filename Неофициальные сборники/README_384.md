@@ -1,3 +1,218 @@
+###  Публикация: 534457   (520343) от 13.08.2012
+
+VA - Mega Dance Party Summer Vol.10 (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520343.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
+2. Adam F - When The Rain Is Gone (Michael Woods Remix) (5:17)
+3. Allexinno & Starchild - Yasera (Club Mix) (5:18)
+4. Bee Gees - Stayin' Alive (Carlos Ramos & Adria Alemany Super Excited Remix) (5:18)
+5. Coca Dillaz - Revolution (Axel Chantiz Remix) (5:18)
+6. Daddys Groove - Power 2 The People (Club Mix) Test Pressing Records (5:18)
+7. Dajae - Everyday My Life (Anton Orf Remix) (5:20)
+8. Dario Nunez & Javi Colina - Andale (Original Mix) (5:20)
+9. DJ Fisun - Melody (original mix) (5:11)
+10. DJ Fisun - Красно-белая ламбада (2:41)Жанр: Dance, ClubПродолжительность: 04:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3F0375CD4BA6B1F3C59D09F62157AB6A086F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241308   (520136) от 17.08.2018
+
+VA - Uplifting Trance Collection Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustin Husain - Matter Of Time (Original Mix) 6:44
+02. Syntouch & Blue Moon - Troubled Waters (Original Mix) 6:19
+03. Sam Laxton - Outlander (Extended Mix) 7:24
+04. Frainbreeze & Vika - Better Day (Sunset Extended Remix) 6:36(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 07:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0055A6F51C59AB2C87F244F48FC9BE34893F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534480   (519849) от 13.08.2012
+
+VA-Танцуют все! - Популярные танцы народов мира (1996) [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. РОК-Н-РОЛЛ 00:01:48
+2. ТВИСТ 00:01:53
+3. КУКАРАЧА 00:03:00
+4. ВАЛЬС ПОД НЕБОМ ПАРИЖА (Ю.ЖИРО) 00:02:20
+5. ТАНГО КОМПАРСИТО (РОДРИГЕС) 00:03:13
+6. СЕМЬ СОРОК 00:03:15
+7. СИРТАКИ 00:05:00
+8. КАНТРИ 00:02:55
+9. ЦЫГАНОЧКА 00:04:20
+10. БЕСА МЭ, МУЧО 00:03:12(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12097147EBE8F370D0CAED7D3F5F1B503BB916DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929205   (519609) от 19.08.2015
+
+VA - Sensual Lounge Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Nicoya - Andando [05:42]
+02. Cesar Martinez Ensemble - Back in Space [05:48]
+03. Stif Play - Funky Jangle [03:54]
+04. Laurent de Paris - Slides [06:58](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C76712523A40418653B75C7F74DE4A9071E6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929151   (519500) от 19.08.2015
+
+VA - Лучшая 100-ка радио Шансон (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.- Михаил Бублик - Музыка Про Нее
+02.- Александр Шапиро - Мама
+03.- Ваче Амарян - Бала
+04.- Владимир Пахновский - Полшага(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A488CB1FFA68733367DA25C84F00EE582CE9842C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929283   (519435) от 19.08.2015
+
+VA - Всё сразу 200 хитов 50х50 Выпуск 1 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аксинья Вержак - Точка
+002. Loqiemean - Dexter Morgan
+003. Artik pres. Asti - Никому не отдам
+004. O-Zone - Dragostea Din Tei(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3540404FAB190B6FE56D9D9AE326D5498D264636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314324   (519377) от 14.07.2019
+
+VA - German Top 100 Single Charts 19.07.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519377.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes Camila Cabello - Seorita
+002. Loredana - Jetzt rufst du an
+003. Capital Bra x Samra - Tilidin
+004. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus) Remix(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D1785181F5D5727307D48EFCA3CA27C4856AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314341   (519374) от 14.07.2019
 
 VA - The Official UK Top 40 Singles Chart 12.07.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -557,209 +772,6 @@ VA - Music For Everyone - Drum and Bass & Liquid Vol.4 (2015) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A61BEA2D308F1D944A232C74894EB472CF7850A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929862   (517387) от 21.08.2015
-
-VA - Intim Deep House (2015) [MP3|320 кб/с]<Deep House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riccardo Cerrini - Zuara
-02. Ricky Martini - Noale
-03. Allen Pacifico - Cedros
-04. Flower's Way - Xuyen(   Читать дальше...   )Жанр: Deep House, ChilloutПродолжительность: 04:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B56F82660F86D7F4B6402866E8C1C1E5E1FBE0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930023   (517376) от 21.08.2015
-
-VA - XXXL блатнячок на радио Шансон. Сборник 2 (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517376.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Ордынский - Осторожно Двери Закрываются
-002. Юлия Феста - Мачо
-003. Капитан Константин Баранов - Желание Земли
-004. Михаил Бурляш - Дворовый Блюз(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA89DBA1D41364D172F657868A3B321F27C2DA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929835   (517310) от 21.08.2015
-
-VA - Самые горячие летние хиты (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Светлана Лобода - Не Нужна
-02. Алина Гросу - Твоей Навеки
-03. Анастасия Приходько - Зацелована
-04. Олег Винник - Русалка(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF5BD231D8FFCC0E191F313E4FC3F7D5765D781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314609   (517230) от 16.07.2019
-
-VA - Drum Mystery: Bass Line Sound (2019) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cm-4 - Hover!
-002. Chase & Status - Program (Feat. Irah)
-003. Duoscience - Diesel
-004. Ghost Warrior - They Remain(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 07:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB2391CB2930750B446A918FFAC000E31F2DA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314610   (517228) от 16.07.2019
-
-VA - Enhanced Session Electro House (2019) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517228.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ante Perry - Turbolized
-002. Janno Kekkonen - Avastus
-003. Melih Aydogan - Making Love (The Distance & IGI Remix)
-004. Luis Junior - Tesis(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2729BEF20B99A9CC6FA9F4FF84E0A4E845E5C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314611   (517225) от 16.07.2019
-
-VA - Feel The Love: Club House Electromix (2019) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517225.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roma Greer - Final Shot (Original Mix)
-002. Zulu Natives - Baghdad
-003. Junk That - Money (Original Mix)
-004. Dj Junior - Hold You (Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 11:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D174BC78BB6647CA47A7A0AA309990DC75A0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314418   (517220) от 16.07.2019
-
-VA - Record Super Chart 595 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Billie Eilish - Bad Guy (3:14)
-2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
-3.Aaron Smith - Dancin (Krono Remix) (4:15)
-4.Ed Sheeran & Justin Bieber - I Don't Care (Jonas Blue Remix) (3:12)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EB384F2891A657632DFA7DD62EAA131731C3374
 ```
 
 https://mybot314.ru/tekegram_catalog/

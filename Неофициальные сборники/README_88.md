@@ -1,3 +1,208 @@
+###  Публикация: 990100   (913489) от 24.02.2016
+
+VA - Italo & Space Disco Vol. 3 (2016) [MP3|320 кб/с] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amateras - Galaxy Dance (Mega Mix)
+02. Foretaste - Keep Me Satisfied
+03. Blue Star Project - Open Your Heart (Extended Version)
+04. Lo-Fi Electronic - Pneumatic(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 07:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4402DA31E9BAD3EC8F112559D361CDA5FEF92AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990185   (913460) от 24.02.2016
+
+VA - Music Box DFM Vol.4 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bryan Adams - You Belong To Me.mp3
+002. Lana Del Rey - High By The Beach.mp3
+003. Lunchmoney Lewis - Whip It!.mp3
+004. One Direction - Drag Me Down.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87159E3DAA1A8B7E26BBAC0F13496E7CB7EE7EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990070   (913424) от 24.02.2016
+
+VA - Record Super Chart № 424 (2016) [MP3|320 кб/с] <Club House, Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913424.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sander Van Doorn, Moti - Lost
+2. Kadebostany - Teddy Bear (Astero Remix)
+3. KSHMR, Marnik - Bazaar
+4. Jay Hardway - Electric Elephants(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 01:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE6968AF7D4676A2377CF58545D501FFE0E1BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367870   (913327) от 17.03.2020
+
+VA - Top50: Tracks Deep House Ver.19 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mika - Relax (DJ Antonio Remix 2020 Extended) 3:59
+02. Alessio Cala' - It's All About E'xpression (Original Mix) 5:46
+03. Sting - Shape Of My Heart (DJ Dark & Mose N Remix) 4:02
+04. The Weeknd - Blinding Lights (Geonis & Lil Meet Remix) 3:18(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 04:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FFFB5687889BDAE78917A4A0725D544632ABF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491120   (913265) от 23.08.2021
+
+VA - Ностальгия 6 NNM-Remix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх - 18 мне уже (Dj Karas Remix) (6:38)
+02. ТаТу - Я Твоя Не Первая (Fly Dream Remix) (6:19)
+03. Отпетые Мошенники - Люби меня люби (SNEBASTAR Remix) (6:22)
+04. Reflex - Non Stop (Dj Scorpio & Dj Duck Reboot) (4:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51B07F92DC09FAAEB01B74D9FCE7DA724E841C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989192   (913172) от 24.02.2016
+
+VA - Лучшая клубная музыка ANDRS vol.34 (2016) [MP3|320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown - Unknown
+02. Dan Farber - Don't Touch (Original Mix)
+03. SOTL - Deep House Mix vol.24 (June 2015) - Track 3
+04. Puka - Hey Sister Go (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, Electro, House, Electro-House, Deep HouseПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30AED4A196221F6A64F3C5B634CC0005938CA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865614   (913150) от 02.02.2015
+
+VA - The Official UK Top 40 Singles Chart (01-02-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти месяц прошел с момента опубликования предыдущего традиционного UK Singles Chart  - официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения (а их достаточно много) по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Mark Ronson Feat Bruno Mars - Uptown Funk  (4:31)
+02. Hozier - Take Me To Church  (4:03)
+03. Fergie - L.A.LOVE (La La)  (3:13)
+04. Meghan Trainor - Lips Are Movin  (3:01)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BC0E81B88055E7BC190927B74A5BC208E501A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631690   (913110) от 24.03.2013
 
 VA - Super Dance Party-11 (2013) [MP3|320 кб/с]<Dance>
@@ -560,209 +765,6 @@ VA - Foreign Disco Of The XX Century From Ovvod7  - 2019 (01-10) (2019) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAA6D05A593133AD9875A8013429EDE70AD14A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990107   (912011) от 25.02.2016
-
-VA - Летят года (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Павел Филатов - Летят Года
-002. Юрий Дьяченко - Слава
-003. Сергей Сорос - Тоннеля Свет
-004. Александр Курган - Твое Хочу(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610D18C4D2652ED53A38ECECCE5FA0B346639985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990467   (912009) от 25.02.2016
-
-VA - Водила, трогай! (2016) [MP3|256 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912009.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Геннадий Ура - Мне Немного Фарту И Масти
- 002. Геннадий Вяземский - Исповедь Ходока
- 003. Лукьяновка - Сонька-Золотая Ручка
- 004. Николай Тюханов - Водила трогай(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCD9FEEF0780988DCB08291E7FDD0DEB375FEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990355   (912002) от 25.02.2016
-
-VA - Coffee and Rhythm: Acoustic Guitar Songs to Start the Day (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincent Migliorisi - Le 3 del pomeriggio
-02. Dylan Colby, Timothy Ian Geraghty - Sweet Spot
-03. Maurizio Carlini - Smooth Sea
-04. Erba Tom, Auger Paula - Luck of the Draw(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DC46C4DB3468456FB037A54C5F4FC98B81157E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990114   (911998) от 25.02.2016
-
-VA - Ultimate Drive (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911998.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Meat Loaf - Bat Out Of Hell
-02. Bonnie Tyler - Holding Out For A Hero
-03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1EF5EF5E13A00F0CB380D13EE97E73644F1970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990183   (911996) от 25.02.2016
-
-Александр Шеваловский и анс. Обертон - 12 встреча. Сонечкины именины (1979) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Необычно хлопотно в квартире
-03. Мы едем на именины
-04. К Сёмочке зашли мы по дороге(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14159E6CB7A88EAD6D570DABE439E17640EE124A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990213   (911995) от 25.02.2016
-
-Федосей - Новые и лучшие песни высшей пробы 999 (2016) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А ты попробуй.
-02. Эх,Америка
-03. С малолетства начинал
-04. Из горла за корешей(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CB876CB595E09A57A7976271A3C7B1128FAB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386076   (911788) от 24.08.2021
-
-The Rolling Stones - 100% The Rolling Stones in Blues (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honky Tonk Women
-02. Ride 'Em On Down
-03. Just Your Fool
-04. Hate To See You Go(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9215312551FE1FFE25EA6F930BF26EBE92C1F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

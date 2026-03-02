@@ -1,3 +1,32 @@
+###  Публикация: 1742527   (46327) от 19.08.2024
+
+VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46327.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Corvus Corax, Sami Yli-Sirnio - Sverker (Era Metallum - Single Edit) [03:46]
+002. Perly i Lotry - Song of the Vikings (My Mother Told Me) [02:08]
+003. Lorne Balfe, Assassin's Creed - Assassin's Creed III Main Theme [03:07]
+004. Enigma - Return To Innocence [04:16](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 08:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A937FA072782BE80835F70ADD36F05A79D9D8661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748997   (43797) от 12.09.2024
 
 VA - The Open Hearts. Compilation (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
@@ -717,35 +746,6 @@ VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89FE96F766E5F469FEB7D853C93DD7773F6D1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763939   (35219) от 04.12.2024
-
-Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, Pop rock, Post grunge>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything But Ordinary (Let Go 2002)
-02. Bad Girl (& Marilyn Manson) (Avril Lavigne 2013)
-03. Bad Reputation (Avril Lavigne 2013)
-04. Bite Me (Love Sux 2022)(   Читать дальше...   )Жанр: Pop punk, Alternative, Pop rock, Post grungeПродолжительность: 02:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1409396   (447483) от 16.09.2020
+
+Gazpacho - Fireworker (2020) [MP3|320 Kbps] <Progressive Rock, Atmospheric Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Cowboy (19:41)
+02. Hourglass (04:15)
+03. Fireworker (04:41)
+04. Antique (06:24)(   Читать дальше...   )Жанр: Progressive Rock, Atmospheric RockПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC318F4764EFACC3CEA246505C39A2E16B5D6014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569980   (447320) от 15.08.2022
+
+Loa Ride - 2 Relises (2021-2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Evil Song [00:06:00]
+02. Trouble [00:05:38]
+03. Last Man [00:06:58]
+04. The Pen and the Sword [00:04:14](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 2 CD, 01:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0097426C33043E10EDC940C7D17BEC9EFF36C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569790   (447318) от 15.08.2022
 
 El Astronauta - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
@@ -719,64 +777,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570403   (438475) от 19.08.2022
-
-Stoned Void - Throbbing Rhythm of the Doldrums (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Portals
-02 Lonely Mountain
-03 Fucking Love
-04 Winds of Spring(   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81AA2450EC91D8B265916DDFB1D58B0DAF4E5CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570896   (438183) от 19.08.2022
-
-Deep Purple - Bombay Calling (Live in 95) (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe I'm a Leo (Live in 95)
-02. Black Night (Live in 95)
-03. The Battle Rages On (Live in 95)
-04. Woman from Tokyo (Live in 95)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18514208FD94E3774B77C3DBC1FAA8D2262F2A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

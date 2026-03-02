@@ -1,3 +1,29 @@
+###  Публикация: 1258049   (340399) от 28.10.2018
+
+3D модели - 3ddd - Children room [Corona|V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка 3д-моделей из категории Children roomФормат: Corona|V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB8FE952DB39555EB1AB7E7E43A5F3A07542A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073897   (340348) от 18.11.2016
 
 Экшены - CreativeMarket - Aesthetic Autumn Effects PS Actions [ATN]
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C7EDC35B416739458ED331ED1CB0A17237E4847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954801   (339348) от 08.11.2015
-
-Растровый клипарт - Скрап-набор ''Romantic Room'' [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтический скрап набор.Формат: PNG, JPGРазрешение файлов: от 500х500 до 3600х3600 (300 dpi)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1401F3CA26B47505E532EE89C4D9DF3F0BE9CEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

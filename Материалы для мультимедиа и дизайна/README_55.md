@@ -1,3 +1,29 @@
+###  Публикация: 1365166   (932128) от 06.03.2020
+
+Рамки - Рамки для влюбленных №8 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять рамок для влюбленных.Формат: PNGРазрешение файлов: 1920x1070
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA616CA5D4D9CEE865B74E2CDC001CCA004DE13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093949   (932097) от 16.01.2017
 
 Шрифты - Pirou [TTF, OTF]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18BB0732BD59C11E85D4BFA8E8CEFC36351A0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986919   (928536) от 15.02.2016
-
-Шрифты - Exclusive Cyrillic fonts [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивные кириллические шрифты.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992FCD5922C0977374CDFE95CA9A19195E34E3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

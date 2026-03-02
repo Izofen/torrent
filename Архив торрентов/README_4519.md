@@ -1,22 +1,22 @@
-###  Публикация: 1625864   (240972) от 11.04.2023
+###  Публикация: 470712   (97262) от 20.03.2012
 
-Firefox Browser 112.0. Portable by PortableApps [Ru]
+[Wallpapers] Best HD Wallpapers (20.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240972.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C0588A48F0CC0D05C1E81B8BF3D8309368B418A
+magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545046   (240971) от 17.04.2022
+###  Публикация: 470715   (97261) от 20.03.2012
 
-Фото на документы Профи 9.25 RePack (& Portable) by TryRooM [Ru]
+[Wallpapers] Nature Desktop Wallpapers (20.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240971.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9A86130AF76ACAC7F9CD5F001727F59AED2FF25
+magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +50,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395822   (240969) от 12.07.2020
+###  Публикация: 471067   (97259) от 20.03.2012
 
-Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 32-й тур. Хетафе — Реал Сосьедад (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+[Wallpapers] HD Wallpapers Pack 4
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240969.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 32-й тур
-Хетафе (Хетафе) — Реал Сосьедад (Сан-Себастьян)
-Стадион: Колисеум Альфонсо Перес (Хетафе, Испания), вместимость: 17000
-Главный судья: Адриан Кордеро Вега (Испания);(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:10
+[Wallpapers] HD Wallpapers Pack 4
+Название: HD Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5EC6B178FFDDB2EB17703A75205D5ED664C0AE8
+magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +80,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570407   (240965) от 17.08.2022
+###  Публикация: 470985   (97258) от 20.03.2012
 
-Kerish Doctor 2022 4.90 (Update 17.08.2022) (Repack & Portable) by 9649 [Multi/Ru]
+[Wallpapers] Nature Pictures №31
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240965.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kerish Doctor — комплексное решение для автоматического ухода за компьютером под управлением ОС Windows. Программа предлагает два режима работы. В режиме работы в реальном времени Kerish Doctor в фоновом режиме защищает систему и автоматически исправляет ошибки автоматически, показывает уведомления о проделанной работе. Программа запускается вместе со стартом Windows. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+[Wallpapers] Nature Pictures №31
+Название: Nature Pictures №31
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20B1E2A0318820A05D6CDCD1C31EBA0532FF79A3
+magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463034   (240964) от 16.04.2021
+###  Публикация: 470621   (97256) от 20.03.2012
 
-Principle 6 v6.5 [En]
+[Wallpapers] Desktop wallpapers (19.03.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240964.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Principle — приложение для Mac OS, которое позволяет в два счёта создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то много экранное приложение или просто придуманный вами, так просто и быстро реализовать это раньше не позволял ни один сервис.Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: Hooper Software LLCПоддерживаемая ОС: 10.13 или вышеЯзык интерфейса: Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34E8CF24BFB65B6244A2F3EF0C2D3EDD7059848D
+magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +136,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636355   (240956) от 29.05.2023
+###  Публикация: 470709   (97255) от 20.03.2012
 
-Glary Utilities Pro 5.206.0.235 RePack (& Portable) by TryRooM [Multi/Ru]
+[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240956.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9E09E59E66D704374ED8F8D8781DD8B1493AD8F
+magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +162,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462789   (240955) от 16.04.2021
+###  Публикация: 467137   (97253) от 20.03.2012
 
-Multitouch 1.24.8 [En]
+Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240955.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
+02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
+03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
+04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
+05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
+06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
+07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
+08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
+09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
+10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A90D9543B70665266AEA355DFF85A294716F206
+magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +197,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625713   (240950) от 11.04.2023
+###  Публикация: 470613   (97252) от 20.03.2012
 
-IObit Uninstaller Pro 12.4.0.4 Portable by 7997 [Multi/Ru]
+[Wallpapers] Best HD Wallpapers (19.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240950.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29153F7EEA777370DB112A3EAE368E9AE1991F50
+magnet:?xt=urn:btih:68FC7F58F2AE58EA866DB7C6B91A60B6E4ADAC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +223,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636314   (240945) от 29.05.2023
+###  Публикация: 470259   (97251) от 19.03.2012
 
-HDCleaner 2.050 + Portable [Multi/Ru]
+[Wallpapers] Girls Wallpapers (18.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240945.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3624C7A2F5D9FF1D251EFB4AD3C6F0B0BD3B9A01
+magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,27 +249,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121392   (240941) от 02.04.2017
+###  Публикация: 470170   (97250) от 19.03.2012
 
-Money 5.0 [Multi/Ru]
+[Wallpapers] Sexy Girl Wallpapers Pack 42
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240941.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отслеживайте свои доходы и расходы в новом великолепном и многофункциональном приложении Money. С ним повседневное ведение финансов больше не будет рутиной! Контролировать все свои счета, составлять бюджет, создавать наглядные отчеты и планировать транзакции — проще простого, при этом все данные будут обновляться на ваших устройствах через iCloud.
-
- Приложение Money (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 марта  2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
+[Wallpapers] Sexy Girl Wallpapers Pack 42
+Название: Sexy Girl Wallpapers Pack 42
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:446F90BA6EB8DBEC32917611BFCDEA8C41C1A63E
+magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,25 +279,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626288   (240938) от 13.04.2023
+###  Публикация: 469505   (97238) от 19.03.2012
 
-Waterfox Current G5.1.5 [Multi/Ru]
+VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressive Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+CD1 (01:19:03)
+01. Sinister Silence Feat. Camille Jones - Someday (Still Around Mix) 08:03
+02. Liquid Soul & Electric Universe - Liquid Universe 09:36
+03. Major7 - Obsession 06:37
+04. Zyce - Dreaming 07:32
+05. Liquid Soul & Symbolic - Different Reality 08:31
+06. Timelock - 99 Calibre 07:17
+07. Sonic Species - Machina Terra (E-Clip Remix) 08:41
+08. D-Addiction - WTF 08:40
+09. Rocky & Sphera - Echo (Yotopia Remix) 08:21(   Читать дальше...   )2012Жанр: Psychedelic Trance, Progressive TranceПродолжительность: 02:36:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4551646B9781CA7338FBABC2953E6E11DAB10974
+magnet:?xt=urn:btih:A42A11B4525C841B15915E7902B2A041956B53F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -289,27 +314,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570247   (240933) от 17.08.2022
+###  Публикация: 470181   (97236) от 19.03.2012
 
-Wolfram Mathematica 13.1.0 [x86_x64] (.sh)
+[Wallpapers] Games Wallpapers Pack 2
 
 >>Архив торрентов
->>Архив *Nix
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240933.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наиболее полная система для современных технических вычислений в мире
-Благодаря энергичному развитию и стабильному видению на протяжении трёх десятилетий, система Mathematica не имеет себе равных в большом диапазоне измерений и уникальна в своей поддержке современной среды и организации рабочего процесса для технических расчётов.
-Система Mathematica имеет в наличии (   Читать дальше...   )Язык интерфейса: Английский
+[Wallpapers] Games Wallpapers Pack 2
+Название: Games Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D35EC065200E94B98B9D743440EE6D154943444
+magnet:?xt=urn:btih:4E55FCDDD5AE2F06F6C627827297AD7434DDAF23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,25 +344,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121378   (240930) от 02.04.2017
+###  Публикация: 470185   (97233) от 19.03.2012
 
-Mac Blu-ray Player Pro 3.1.4 [En]
+[Wallpapers] Best Wallpapers Pack 8
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mac Bluray Player - Проигрыватель HD Blu-ray дисков, отличное качество воспроизведение видео и аудио с поддержкой Dolby DTS, поддержка просмотра Blu-ray, DVD, Video CD, MOV, MKV, AVI, FLV, WMV, MP4, MPEG, RMVB, MP3, WMA, AAC, AC3 и других форматов, обход защит AACS, BD+ и других, имеет ряд стандартных функций сменные шкурки, проигрывание графики, маркировка и закладки, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 апреля 2017Разработчик: Macgo INTERNATIONAL LTD.Поддерживаемая ОС: Mac OS X 10.8  +Язык интерфейса: Английский
+[Wallpapers] Best Wallpapers Pack 8
+Название: Best Wallpapers Pack 8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200/1680x1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD34214037F1EB85E36AA1DC11787FC94D45CB0B
+magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,25 +374,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545166   (240929) от 18.04.2022
+###  Публикация: 470584   (97230) от 19.03.2012
 
-Бизнес Пак 7.29 (сборка 4933) [Ru]
+Журнал | Едим со вкусом №1-2 [2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240929.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бизнес Пак 7 - бесплатная программа для формирования, учета и печати первичных бухгалтерских документов. Очень удобная и доступная программа для начинающих бизнесменов. Оснащена основными возможностями платных бизнес программ. Программа очень популярна среди начинающих бизнесменов и уже ведущих небольшой бизнес.Язык интерфейса: Русский
+Едим со вкусом - одно из самых лучших изданий о кулинарии. Каждый номер этого издания включает не только множество оригинальных и доступных кулинарных рецептов, включающих полную калькуляцию расходов, но и потребительскую экспертизу и тесты различных продуктов питания, кухонной утвари и бытовой техники для кухни. Также в каждом номере журнала приводятся сводный бюджет питания на месяц.
+Хороший ресторан - дома!
+Шеф-повара столичных ресторанов раскрывают свои профессиональные секреты.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E22BCEAA114413EDE8A7A2973923EC744D9FCF6
+magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,25 +402,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636239   (240928) от 29.05.2023
+###  Публикация: 469736   (97229) от 19.03.2012
 
-Macrorit Partition Expert 7.3.3 Unlimited Edition RePack (& Portable) by TryRooM [Ru/En]
+VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240928.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Дубы-Колдуны - Осенние Дубы (01:53)
+02. Опасные Соседи - Танцуй! (04:26)
+03. Два Самолёта - Абу (04:54)
+04. Михаил Владимиров & Мифы - Воспоминание о Париже (01:31)
+05. Камикадзе - Japanese Child (06:17)
+06. Спокойной Ночи - Она Женщина (03:10)
+07. Дубы-Колдуны - Пора по Бабам (00:59)
+08. Препинаки - Боливия (02:32)
+09. НОМ - Дедушкин Табак (04:36)
+10. НЭП - Спичек нет (05:50)(   Читать дальше...   )1995Жанр: Pop, pop-rockПродолжительность: 01:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D6BDB51AEE8253B663DD85C3DF61E0704484126
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,25 +437,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462939   (240926) от 16.04.2021
+###  Публикация: 470442   (97227) от 19.03.2012
 
-Acon Digital Acoustica Premium Edition 7.3.0 [En]
+VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Club>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240926.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Acoustica Premium — многофункциональный аудиоредактор с поддержкой многоканальных форматов объемного звука 5.1 и 7.1. Средства программы обеспечат точное управление деталями производства аудио CD (длина пауз, индексные маркеры, поля CD-TEXT). В Acoustica Premium встроен широкий диапазон инструментов профессионального качества для мастеринга и звукового дизайна, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Acon AS.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
+01. Demoro - Constantinople (Jorgensen & Gordon Howarth Remix)
+02. Bob Sinclar - Fuck The Disco (Original Mix)
+03. Crew 7 Feat. Raheema - Push It (Club Mix)
+04. Dna Feat. Rebecca Knight - In My Head (East & Young Remix)
+05. Tiko's Groove Feat. Gosha - I Don't Know What To Do
+06. Armand Van Helden And Steve Aoki - Brrrat!
+07. Plastik Funk - Everybody Dance Now! 2011
+08. Auburn Feat. Iyaz - La, La, La
+09. Armin Van Buuren And Sophie Ellis Bextor - Not Giving Up On Love (Extended Version)
+10. Jaybee - Say You Will (Rene De La Mone Remix Edit)2012Жанр: Dance, ClubПродолжительность: 08:29:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B5490E1F139A387BA0ED4E2098E2F1A915ED4EF
+magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,25 +472,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570479   (240925) от 17.08.2022
+###  Публикация: 470159   (97226) от 19.03.2012
 
-Total Commander 10.51 RC2 [Multi/Ru]
+VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240925.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Will Holland vs Six Senses – Frantic (Sean Tyas Remix) 7:02
+02. Eteson vs Octagen – We Are Alone (Mark Eteson Remix) 8:26
+03. Alex MORPH presents Everest – Oree (Will B Transatlantic Remix) 8:06
+04. Binary Finary & Jose Amnesia presents Cloudbreak – Difference (Hydroid Vs Santiago Nino Dub Fire Mix) 7:50
+05. Factoria – Revive (Dark Moon Remix) 6:35
+06. Arty – Love Inside Out 6:53
+07. Deepwide presents Kylkai – Kaimaar (Supuer Remix) 8:06
+08. Jimmy Kennedy & Aneesh Gera – Spaghetti Beach (Snow Flakes & Rishabh Joshi Remix) 7:58
+09. Erik Hakansson – August 6:35
+10. Ilya Bezlepkin – Hold On (Feat Monique - Blue Twinkle Remix) 9:17(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:08:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B130B0FE77E8EDBFD2BF7223CFC92AB3710D4FB
+magnet:?xt=urn:btih:492F79CBB2A42611195745CF06179B3D6A9A43EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,25 +507,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545112   (240920) от 18.04.2022
+###  Публикация: 468616   (97225) от 19.03.2012
 
-Master PDF Editor 5.8.50 RePack (& Portable) by 9649 [Multi/Ru]
+Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240920.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1. Radio Killer - Be Free (Way & Beyond Mix)
+2. Ekow feat. Snoop Dogg & Kylian Mash - Closer (Original Extended)
+3. Mike Candys & David Guetta - Where Them Sexy Bitches At (Mike Candys Rework)
+4. Avicii feat. Flo Rida - Levels (Good Feeling) (Gordon & Doyle Mashup)
+5. David DeeJay feat. P Jolie & Nonis - Perfect 2 (Extended)
+6. Antoine Clamaran, Laurent Pautrat - Somebody Scream (Original Mix)
+7. Pitbull feat. Ne-Yo, Afrojack & Nayer - Give Me Everything (Check Dance Bootleg Mix)
+8. Alexandra Stan - Mr. Saxobeat (Vova Baggage Remix)
+9. Taio Cruz feat. Flo Rida - Hangover (Fabian Baroud Extended Mix)
+10. The Black Eyed Peas - Dont Stop The Party (Dj Maxi Seco Latin Club)(   Читать дальше...   )2011-2012Жанр: Club House, Progressive HouseПродолжительность: 01:16:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:400E1B6337F12A080F138CB95A9F5AA73C8F056F
+magnet:?xt=urn:btih:E4D708560A1D93E1D3BAB9D35A905D66BCCC507F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,27 +542,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121336   (240919) от 02.04.2017
+###  Публикация: 470158   (97223) от 19.03.2012
 
-Bills v1.10.6 [Multi/Ru]
+[Wallpapers] Sexy Girl Wallpapers Pack 41
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240919.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97223.jpg" />
 </div>
 
 
 ###  Подробнее
 
-***Самая продаваемая программа в магазине США (#1 среди всех программ в течении последних нескольких дней).***
-
-Вам нужен простой инструмент, чтобы контролировать, сколько вы хотите потратить в этом месяце. А именно, вам нужен большой календарь, чтобы отслеживать, сколько денег вы потратили по сравнению с тем, сколько вы хотели бы потратить. Кроме того, вам нужно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.17Разработчик: iBear LLCПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский и т.д.
+[Wallpapers] Sexy Girl Wallpapers Pack 41
+Название: Sexy Girl Wallpapers Pack 41
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1380F058E560A5F952ED6A594F8A46EDFE899969
+magnet:?xt=urn:btih:E49A970804687B3F2F25A89501AD7ACE26A45FA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,25 +572,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625675   (240917) от 11.04.2023
+###  Публикация: 470260   (97222) от 19.03.2012
 
-Radiant Photo 1.1.1.266 RePack (& Portable) by elchupacabra [Multi/Ru]
+[Wallpapers] Wallpapers Sexy Girls (18.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240917.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F668120CE1C4088AE3C83260399FF3C14A63693
+magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,26 +598,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626283   (240916) от 13.04.2023
+###  Публикация: 469804   (97220) от 19.03.2012
 
-4K Downloader 5.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+Лиза Small - Время не установлено (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240916.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Downloader - программа для загрузки видео с YouTube и других веб-сайтов для обмена видео в форматах 4K Ultra HD.
-Учитывая, что большинство смартфонов, телевизоров, компьютеров и планшетов поддерживают форматы высокой четкости, неудивительно, что все больше пользователей хотят наслаждаться качественным контентом на своих устройствах. 4K Downloader - это простое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Звёзды (One-Bula Prod.)
+02. Более чем ты
+03. 2012 (Wake Up Promo - instr.J.Cole)
+04. Ближе к лету
+05. Не разочаруй
+06. Приглашение на концерт 12.02.12
+07. Стимул
+08. Фонари
+09. На пути (Hapan production)
+10. Ночь на максимум (Lingvisto beats production) VBR(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:58:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9A0CCE44FA68E5DFB0D0B4EBDB150DE42099CF2
+magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,26 +633,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462963   (240910) от 16.04.2021
+###  Публикация: 470169   (97219) от 19.03.2012
 
-SILKYPIX Developer Studio Pro 10 v10.0.12.0 [En]
+[Wallpapers] Best Wallpapers Pack 5
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240910.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SILKYPIX Developer Studio Pro — мощное приложение, которое предназначено для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
-С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2021Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+[Wallpapers] Best Wallpapers Pack 5
+Название: Best Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0613187C6E4A478DC2FA54A8824A56D2C6F85123
+magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,26 +663,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462945   (240904) от 16.04.2021
+###  Публикация: 470458   (97215) от 19.03.2012
 
-BetterZip 5 v5.1.1 b4 [Multi]
+VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240904.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой архиватором, например, утилитой BetterZip.
-Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+1. Adrew - Super Girl (Extended Version) (4:48)
+2. Alexander Popov - When The Sun (Radio Edit) (3:02)
+3. Alisandra &ampamp; Vernandi - Angel (Radio Edit) (3:42)
+4. Allexinno Starchild - Senorita (Sagi Abitbul Remix) (4:30)
+5. Allexinno Starchild - Yasera (Official Radio Edit) (3:20)
+6. Amsterdam Crew - Your Life In My Life (Radio Edit) (3:11)
+7. Andreea Ignat - Phantom Lover (Radio Edit) (3:32)
+8. Boier Bibescu vs Luigi Ionescu - Lalele (Rework 2012) (5:20)
+9. Chris Thrace - Uh Girl (feat. Glorya) (Extended Version) (5:06)
+10. Da Fleiva - Get Out (Of My Mind) feat. Intempo (Extended Mix) (5:15)2012Жанр: Pop,DanceПродолжительность: 02:39:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BBC997AAB447265FB83EAC325AFC688510C0FE5
+magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,26 +698,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626214   (240901) от 13.04.2023
+###  Публикация: 470258   (97214) от 19.03.2012
 
-Wireshark 4.0.5 + Portable (x64) [Multi/Ru]
+[Wallpapers] Nature Wallpaper (18.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240901.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wireshark - бесплатный сниффер, предназначенный для анализа трафика компьютерных сетей (Ethernet, FDDI, PPP, Token-Ring и других) в режиме реального времени, используя широковещательный режим сетевой карты.
-Программа поддерживает различные сетевые протоколы, как например DNS, FDDI, ftp, HTTP, ICQ, IPV6, IPX, IRC, MAPI, MOUNT, NETBIOS, NFS, NNTP, POP, PPP, TCP, TELNET, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8EC88BFD45729543EF8145D361B7081936A3A19
+magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +724,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462865   (240898) от 16.04.2021
+###  Публикация: 470155   (97213) от 19.03.2012
 
-Valentina Studio Pro 11.2.3 [Multi/Ru]
+[Wallpapers] Best Wallpapers Pack 2
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240898.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 06.04.2021Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+[Wallpapers] Best Wallpapers Pack 2
+Название: Best Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:725AF65DFFF3A9161239AECBD260110943B081A6
+magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +754,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570373   (240897) от 17.08.2022
+###  Публикация: 470261   (97210) от 19.03.2012
 
-TechSmith Camtasia 22.1.0 (Build 39645) RePack by KpoJIuK [En]
+[Wallpapers] Best HD Wallpapers Pack (18.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240897.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Camtasia Studio - утилита для записи изображения с экрана в видеофайлы различных форматов и мощным видеоредактором, есть встроенные Macromedia Flash (SWF) и видео проигрыватели. Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI. Сделанное при помощи программы видео можно экспортировать в один из поддерживаемых программой (   Читать дальше...   )Язык интерфейса: Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3566BEF0DAE3F21D9CE724FAA8DB0EAAFC6E58F9
+magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 ```
 
 https://mybot314.ru/tekegram_catalog/

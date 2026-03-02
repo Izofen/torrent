@@ -1,25 +1,222 @@
-###  Публикация: 1205047   (784097) от 08.02.2018
+###  Публикация: 1204728   (784405) от 07.02.2018
 
-VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Old Kentucky Home [02:41]
+02. Take Your Love [02:43]
+03. I Like To Recognize The Tune [02:57]
+04. All Dressed Up (Spic And Spanish) [02:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB1D8EA63F590C3D008F701CA8BDEB7223CDA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204685   (784404) от 07.02.2018
+
+VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax - Close 2 U (feat Mike Schmid - Original mix)
+02. Tritonal - Getaway (feat Angel Taylor - Jengi Beats remix)
+03. LEVV - Collateral Damage (Matt Fax remix)
+04. Universal Solution - In Your System (Hexlogic remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FA4B8D08E893E84B4EC105709E2F1A4B43FBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204798   (784403) от 07.02.2018
+
+Der Luchs - Wonderful (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beloved (04:50)
+2. Courtney Jines (04:30)
+3. How Long (05:05)
+4. In My Dream (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E964BD858C05DEE2D1BBA27550D4FC99FC259F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204872   (784402) от 07.02.2018
+
+VA - Empire Records - Chill Boys (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jamie Lancaster  -  Get Here  2:35
+02.  John Dahlback  -  Walking With Shadows (Acoustic Version)  2:42
+03.  Discey  -  Stance (Radio Edit)  3:33
+04.  Ralf Velasquez  -  You Site  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F509943CE603C6A5BB4023846A3A91C487150D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204589   (784401) от 07.02.2018
+
+Light Image Resizer 5.1.2.0 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C56DBD849F951DCF1163B1CA03046E5901496F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204697   (784400) от 07.02.2018
+
+Журнал | House Beautiful [UK] №2 (февраль 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B5E3394FB38E9E598044C5C49B217DE756A9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204559   (784399) от 07.02.2018
+
+The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralph's New Blues [06:48]
+02. I Love You Porgy [04:56]
+03. Pyramid [07:20]
+04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204725   (784398) от 07.02.2018
+
+VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784097.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ram & Arctic Moon & Stine Grove - A Billion Stars Above (Intro Mix)
-02. Afternova & Andrea Becker - For You (Trance Mix)
-03. Illitheas & Manuel Rocca - Enchanted (Original Mix)
-04. Ana Criado - Still There's You (A.R.D.I. Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:36:01
+01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
+02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
+03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
+04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2C1FCB57683DB90C656EFC166649789DACE2EC3
+magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,82 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205052   (784096) от 08.02.2018
+###  Публикация: 1204744   (784397) от 07.02.2018
 
-VA - The Silence Was Warm Vol. 1-5 (2007-2014) Symbolic Interaction [FLAC|Lossless|tracks+.cue] <Ambient, Abstract, IDM, Modern Classical, Leftfield>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_784096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mullr - Nine Particles (06:01)
- 02. Summer Night Air - 4.3 (07:50)
- 03. Ard Bit - Hum Score (03:59)
- 04. Cyan341 - Postdigital Love (06:02)(   Читать дальше...   )Тип издания: CDЖанр: Ambient/IDM/ExperimentalПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFE6227D36502CF67C5B6FB0CB7584E35B960BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204989   (784095) от 08.02.2018
-
-У. Черчилль, А. Иден | Крымская конференция (1945) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Речи в Палате Общин 27 и 28 февраля 1945 г.
-
-Ялтинская (Крымская) конференция союзных держав — вторая по счёту многосторонняя встреча лидеров трех стран антигитлеровской коалиции — СССР, США и Великобритании — во время Второй мировой войны, посвящённая установлению послевоенного мирового порядка. Конференция проходила в Ливадийском (Белом) дворце в Ялте, в Крыму (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C9E061D1B8370694795C3220417869045D84AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204965   (784094) от 08.02.2018
-
-Macgo Mac Blu-ray Player Pro 3.2.19 [En]
+BlueHarvest 7.0.2 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784094.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2018Разработчик: MacgoПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+BlueHarvest - автоматически удаляем скрытый мусор
+BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+
+Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB3DFFF21AA87E4D3E9F26476716B43EB6FEEA61
+magnet:?xt=urn:btih:A7B3D89754958699212EA3178AAE534890D285B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205060   (784093) от 08.02.2018
+###  Публикация: 1204759   (784396) от 07.02.2018
 
-VA - Aly & Fila - Future Sound of Egypt 534 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784093.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. FSOE Radio — FSOE 534 Intro
-02. Budakid — On An Empty Page (Original Mix)
-03. Way Out West — Lullaby Horizon (Ben Böhmer Remix)
-04. Just Her — With Faith (Einmusik Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:56
+01. Long Gone (08:11)
+02. Ascent & Argus - Glaciers of Oblivion (08:36)
+03. Followed by Light (08:32)
+04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CFB4BEDFC73089B5BD3EFBE86B8FBACCB6CE28E
+magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,26 +282,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205044   (784092) от 08.02.2018
+###  Публикация: 1204651   (784395) от 07.02.2018
 
-Журнал | Профиль №3 (январь 2018) [PDF]
+Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
+02. I Heard Those Voices Again 3:11
+03. Fumble Fisted Fool 3:19
+04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204698   (784394) от 07.02.2018
+
+Журнал | House Beautiful [UK] №3 (март 2018) [PDF] [En]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784092.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
+Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16321773F59BA0FDA40778396B4327F0985D52C9
+magnet:?xt=urn:btih:5A0295B897A6B8DFBA4D64FF7C90EB37E0BD03AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204942   (784091) от 08.02.2018
+###  Публикация: 1204658   (784393) от 07.02.2018
 
-VA - Help (1995) [FLAC|Lossless|tracks + .cue] <Downtempo, Brit Pop, Trip Hop, Indie Rock>
+Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784091.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oasis And Friends - Fade Away
-02. The Boo Radleys - Oh Brother
-03. The Stone Roses - Love Spreads
-04. Radiohead - Lucky(   Читать дальше...   )Жанр: Downtempo, Brit Pop, Trip Hop, Indie RockПродолжительность: 01:15:48
+Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
+02. Every Path Has Its Puddle 3:08
+03. Pall Bearer's Song 2:58
+04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FAF907D84C518F77EE22D81AEF90CBE72B656AC
+magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205042   (784090) от 08.02.2018
+###  Публикация: 1204459   (784392) от 07.02.2018
 
-A Better Finder Attributes 6.08 [En]
+Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|320 Kbps] <Blues Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784090.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2018Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский
+Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. The Arson's Match (Live) 5:21
+02. Gee Chee Gee Chee Wawa (Live) 6:13
+03. Y'all Be Lookin' (Live) 4:43
+04. The Turning Point (Live) 5:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D646FA7FF7453166B65ED0BDB620E189D6E6868
+magnet:?xt=urn:btih:AD2BF84C93531CEDF3F8A4A1B2D95A99536F07B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +395,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205051   (784089) от 08.02.2018
+###  Публикация: 1204912   (784391) от 07.02.2018
 
-VA - German Top 100 Single Charts 09.02.2018 [MP3|320 Kbps] <Pop>
+Н.Е. Чаплина (сост.) | Воспитание души. Календарь для православных родителей на 2018 год (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь «Воспитание души» адресован православным родителям, бабушкам и дедушкам, которые хотят воспитать своего ребёнка в благочестии, чистоте.
+
+И не в меньшей степени он будет полезен духовным родителям (крёстным), которые становятся восприемниками чада при Крещении, и также участвуют в воспитании ребёнка, чтобы он вырос верующим православным христианином. Надеемся, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204888   (784390) от 07.02.2018
+
+VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, Lounge>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_784089.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River (feat. Ed Sheeran)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:48
+01.  Rainer Schnelle  -  Beyond The Blue (Underscore Version)  2:16
+02.  Surfer  -  South Beach  5:06
+03.  Alyssa ZezZA  -  Purple Rain  3:47
+04.  Classical Jazz Guitar Club  -  Delightful Evening  3:06(   Читать дальше...   )Жанр: Downtempo, Bossanova, LoungeПродолжительность: 02:15:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCEA2BC81BD7F311EEF8F3871D3F958CFFABBB8B
+magnet:?xt=urn:btih:BAEC1D3F415AF2928D1D46757DD1494EDF9FCD93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +452,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205220   (784088) от 08.02.2018
+###  Публикация: 1204841   (784389) от 07.02.2018
 
-ATAVA (АТАВА) - Не быть проще (2017) [MP3|320 Kbps] <Alternative Rock>
+Николай Вучетич | Красный фонарь (1911) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784088.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Жить сейчас
-02. Мосты
-03. Не быть проще
-04. Без потерь(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:05
+Повести и рассказы о железнодорожниках.
+Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA5DAA2ABEFF6380CCCFBE353ED17C1A1BB02ECE
+magnet:?xt=urn:btih:5C84F25D34492858EF829BB5E72A5FAB31A91B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,26 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205045   (784087) от 08.02.2018
+###  Публикация: 1204656   (784388) от 07.02.2018
 
-Журнал | Профиль №4 (февраль 2018) [PDF]
+Big Boy Bloater & The Limits - The World Explained (2012) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784087.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
+Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Leonard Cohen 3:10
+02. Lifetime Money Back Guarantee 3:19
+03. I Can't Forget About You 4:00
+04. She Gets Naked For A Living 3:35(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:32:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CA5E9932CA21C421AF5EE4DE53D174A2369E79A
+magnet:?xt=urn:btih:3224110338112E322845B2E5965BE05CBC098E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,201 +508,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204799   (784086) от 08.02.2018
+###  Публикация: 1204716   (784387) от 07.02.2018
 
-Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistake
-02. A Love so Good
-03. Once I Know You
-04. Impossibly Blue(   Читать дальше...   )Жанр: Alternative Pop, Dark Pop, SynthpopПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960DC7E4105D76DA3F1A89F9BB57425D88803448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205193   (784085) от 08.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Канада — Норвегия (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784085.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C128C9788CCF85169E73C8E5F4CF83014DE21483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205041   (784084) от 08.02.2018
-
-Dynamite - Big Bang (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March On (To The Beat Of Your Drum) (4:19)
-02. Bring It On (3:23)
-03. Turn Up The Heat (2:58)
-04. Walk The Talk (2:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080C216BC9E266D536661E6F1BB1C7784FE3F44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205100   (784083) от 08.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. США — Россия (ОАР) (08.02.2018) IPTV [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784083.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B96B23FFAA1416D34736C6068CFCF4FB1ECEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205000   (784082) от 08.02.2018
-
-Векторный клипарт - Seamless Floral Borders 53 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Бесшовные цветочные границы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181C9063B59DBEB362F42FA32604EDE8E5AC5AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204923   (784081) от 08.02.2018
-
-Veronica Unlimited - Veronica Sound Shower (1981) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Donna (3:43)
-02. I Wanna Dance With Out (3:38)
-03. What Lousy Party (3:21)
-04. Sun Sun Singing In The Sun (3:14)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE5B17AE56F20EE09DA051B7DC3DB3F773D9871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205015   (784080) от 08.02.2018
-
-Лыжные гонки. Кубок мира 17-18. 8-й Этап. Зефельд-ин-Тироль (Австрия). Спринт. Свободный стиль. Квалификация (27.01.2018) WEB-DL [H.264/720p-LQ]
+Soft4Boost Document Converter 5.2.3.723 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784080.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 января 2018 года, суббота. 13:00 МСК
-8-й Этап Кубока Мира по лыжным гонкам 2017-2018.
-Планица (Словения).
-Женщины, Мужчины. Спринт. Свободный стиль. Квалификация ФиналыТелекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:48
+Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9E997751710B778F0E3D2A607E8547AD5605081
+magnet:?xt=urn:btih:4D4641ECC433F787EBADC13DBFA4C93F80319F6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +534,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204679   (784079) от 08.02.2018
+###  Публикация: 1204727   (784386) от 07.02.2018
 
-Лыжные гонки. Кубок мира 17-18. 7-й Этап. Планица (Словения). Спринт. Классический стиль. Финалы (20.01.2018) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
+BookmarkApp 1.7.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784386.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookmarkApp является уникальным и полезным инструментом для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера имеет много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок может появиться также много дубликатов. Цель этого инструмента сделать Ваш Safari чистым и организованным, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2018Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50A3F30D7346A874F2E6DD3B9687AE7CCD32CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204451   (784385) от 07.02.2018
+
+Peter Karp & Sue Foley - Beyond The Crossroads (2012) Blind Pig Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. We're Gonna Make It 2:34
+02. Analyze'n Blues 4:40
+03. Beyond The Crossroads 4:28
+04. Fine Love 3:00(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6F5679942C11ED4D44F58D1EC232AF1A324142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204338   (784384) от 07.02.2018
+
+Ученые из России создали новый материал для обшивки космических кораблей
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Химики из Санкт-Петербурга создали новый материал на базе силикона, который не разрушается при высоких температурах и может послужить одним из ключевых компонентов для обшивки спутников и космических кораблей, говорится в статье, опубликованной в журнале Catalysis Science and Technology."Нам удалось повысить термическую устойчивость силиконового покрытия до (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204465   (784383) от 07.02.2018
+
+Peter Karp - Blue Flame (2018) Rose Cottage Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Rolling On A Log 4:20
+02. Train O'mine 2:58
+03. Your Prettiness 4:12
+04. Valentine's Day 3:18(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C11834FC9A4BF6120621C5A876C5B7551096B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204672   (784382) от 07.02.2018
+
+The Ira B. Liss Big Band Jazz Machine - Tasty Tunes (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Know What Love Is 06:06
+02. Early Autumn 05:39
+03. I Didn't Know What Time It Was 03:27
+04. When The Lady Dances 08:19(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A742790C6FCF224BFB0514CDDC2D9040409609A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204713   (784381) от 07.02.2018
+
+Vivaldi 1.14.1077.45 Final [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784079.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 января 2018 года, суббота. 15:00 МСК
-7-й Этап Кубока Мира по лыжным гонкам 2017-2018.
-Планица (Словения).
-Женщины, Мужчины. Спринт. Классический стиль. ФиналыТелекомпания: EurosportЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:08:42
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A254FA532DE8618431841CF48E5D027909F76781
+magnet:?xt=urn:btih:65667992B991E1469AFA922D8EE028E9ADB4ADB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,198 +699,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204970   (784078) от 08.02.2018
+###  Публикация: 1204711   (784380) от 07.02.2018
 
-Иван Баграмян | Так шли мы к победе (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания Маршала Советского Союза Ивана Христофоровича Баграмяна являются прямым продолжением его первой мемуарной книги «Так начиналась война». В них автор анализирует ход боевых действий советских войск на различных участках, где ему довелось принимать участие в руководстве войсками, возглавляя крупные штабы, командовать армией, а затем фронтом. С большой душевной (   Читать дальше...   )Жанр: Bоенная проза, мемуарыПродолжительность: 56:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DF095144F96E29281697E42ED66B6AC261A3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205173   (784077) от 08.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. США — Россия (ОАР) (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784077.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ED587E1534609F8CD52F55000EA14F664685EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204947   (784076) от 08.02.2018
-
-VA - Radio Italia Love (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cesare Cremonini – Poetica [04:51]
-02. J-AX & Fedez – Sconosciuti da una vita [03:01]
-03. Francesca Michielin – Io non abito al mare [03:14]
-04. Negramaro – Fino all’imbrunire [04:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632821B2594692464ADE440C9D218464E0895B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204574   (784075) от 08.02.2018
-
-VA - Smash Hits Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784075.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Bonnie Tyler  -  Total Eclipse Of The Heart  5:34
-02.  Cutting Crew  -  Died In Your Arms (I Just)  4:23
-03.  Foreigner  -  I Want to Know What Love Is  4:58(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A291906110739464C9FCC2053B2784BEFBC5752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205002   (784074) от 08.02.2018
-
-Векторный клипарт - Baroque Floral Elements 5 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Барочные цветочные элементы
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A641390DA25CAE8DA13256D61D46B6844AC4A2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205025   (784073) от 08.02.2018
-
-Лыжные гонки. Кубок мира 17-18. 8-й Этап. Зефельд-ин-Тироль (Австрия). Спринт. Свободный стиль. Финалы (27.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Slimjet 17.0.9.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784073.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 января 2018 года, суббота. 15:45 МСК
-8-й Этап Кубока Мира по лыжным гонкам 2017-2018.
-Зефельд-ин-Тироль (Австрия).
-Женщины, Мужчины. Спринт. Свободный стиль. ФиналыТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:09
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:591F39858D99B4331B6591473A0B6E9349C46214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205032   (784072) от 08.02.2018
-
-Лыжные гонки. Кубок мира 17-18. 8-й Этап. Зефельд-ин-Тироль (Австрия). Мужчины. Масс-старт. Свободный стиль (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784072.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 января 2018 года, воскресенье. 13:20 МСК
-8-й Этап Кубока Мира по лыжным гонкам 2017-2018.
-Зефельд-ин-Тироль (Австрия).
-Мужчины. Масс-старт 15 км. Свободный стильТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABC3AD102E5FF2E3612F9672D2BD8211D11E01E
+magnet:?xt=urn:btih:D016AE4FBCDC79D6D58AB69C27B64D834DE21B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

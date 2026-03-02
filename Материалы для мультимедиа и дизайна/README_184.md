@@ -1,3 +1,31 @@
+###  Публикация: 1235530   (558665) от 12.07.2018
+
+Векторный клипарт - Vector Architecture Collection #1 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Архитектура
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5DF62724826524457D033AEE5C4E098E3D5245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235537   (558663) от 12.07.2018
 
 Векторный клипарт - Vector Transport Collection #4 [AI]
@@ -652,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C46B95DAAE04460743C9F7D2B0BF380B834796BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924671   (557308) от 04.08.2015
-
-Шаблоны - GraphicRiver - Burger Restaurant Mockup [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Меню в бургернойФормат: PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C7211A18BEC7278BAD4549CADE7B624DECCCF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

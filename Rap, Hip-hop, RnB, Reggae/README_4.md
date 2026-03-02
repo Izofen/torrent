@@ -1,87 +1,3 @@
-###  Публикация: 1360306   (960666) от 15.02.2020
-
-VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Juicy (2005 Remaster)
-02. Ol' Dirty Bastard - Brooklyn Zoo
-03. Junior M.A.F.I.A. - Get Money
-04. Del tha Funkee Homosapien - Mistadobalina(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 06:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360622   (959449) от 16.02.2020
-
-Ресторатор - Непопулярное мнение (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прелюдии (3:04)
-02. Назло (feat. ChipaChip) (4:20)
-03. Ревность (feat. Zorin) (3:11)
-04. Cпасательный круг (2:44)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332935BD2B4919B83E4AAD185A27523777D97EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360623   (959394) от 16.02.2020
-
-Макс Корж - 2 Типа Людей (2019) Single [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Типа Людей (4:16)Жанр: Rap, Hip-HopПродолжительность: 00:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980258   (957035) от 28.01.2016
 
 Rihanna - ANTI (2016) Deluxe Edition [MP3|320 кб/с] <R&B, Pop>
@@ -372,76 +288,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 175831   (937694) от 16.02.2010
-
-Rihanna - Rated R (2009) [FLAC|Lossless]<R'n'b>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.  Mad House (1:34)
-2.  Wait Your Turn (3:46)
-3.  Hard ft. Jezzy (4:10)
-4.  Stupid In Love (4:01)
-5.  Rockstar 101 ft. Slash (3:58)
-6.  Russian Roulette (3:47)
-7.  Fire Bomb (4:17)
-8.  Rude Boy (3:42)
-9.  Photographs ft. Will.I.Am (4:46)
-10.  G4L (3:59)(   Читать дальше...   )Жанр: R'n'bПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860738   (936851) от 18.01.2015
-
-25/17 - Русский Подорожник (2014) [FLAC|Lossless] <Hip Hop, Conscious>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Подорожник (feat. Дмитрий Ревякин) (3:18)
-02. Под Цыганским Солнцем (3:28)
-03. Чернотроп (3:51)
-04. Поезд (3:28)
-05. Горький Туман (3:51)
-06. Волчонок (3:21)
-07. Облако (3:25)
-08. Последний Из Нас (3:32)
-09. Думай Сам (4:11)
-10. Зима-Мама (3:11)(   Читать дальше...   )Жанр: Hip Hop, ConsciousПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF593AEF8EB5AF2C47205E46109BFDFAB1B8095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984978   (936536) от 10.02.2016
 
 Рем Дигга - Черника и циклоп (2016) [MP3|320 кб/с]<Rap>
@@ -493,41 +339,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3701A91E34E697B81945BF505E02A032F9A07904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628917   (934294) от 11.03.2013
-
-Каспийский Груз - Рингтоны Для Зоны (2013) [MP3|320 кб/с]<Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Старая Школа п.у Блондин
-02 - До и После
-03 - Ой, Мороз п.у Словетский
-04 - Именно Та
-05 - Разговоры п.у Шима (Братубрат)
-06 - Сосед п.у Гера Джио
-07 - Была Не Была
-08 - Пусть Всегда Будет Солнце
-09 - Who Shot Ya п.у Раскольников
-10 - Туда и Обратно п.у Кот БалуЖанр: RapПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050F791443CA62DCBACAB665353EB212C46EBA88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -760,6 +571,180 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9084F303AFA8EEF2CA59235FADD53565B94050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365790   (927269) от 09.03.2020
+
+Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PERFECT. [02:20]
+02. YXU’VE BEEN CANCELLED. [02:24]
+03. GRAVESTXNE. [02:41]
+04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987227   (925900) от 17.02.2016
+
+VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Cent - In Da Club (3:15)
+02. Kanye West - Love Lockdown (4:31)
+03. Nelly - Hot In Herre (3:49)
+04. Black Eyed Peas - Pump It (3:34)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469E174661E4A3DF04CC06666D361859696BFB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366058   (925815) от 10.03.2020
+
+Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still on Top [02:20]
+02. Danger [03:02]
+03. Wish List [02:42]
+04. Lifetime (feat. Mad Lion) [03:16](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6C2C442708AFCD588AD11649801AADDB0C28A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366056   (925744) от 10.03.2020
+
+$uicideBoy$ - STOP STARING AT THE SHADOWS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Dogs Go To Heaven [02:34]
+02. I Wanna Be Romanticized [02:14]
+03. One Last Look At The Damage [01:38]
+04.Жанр: Rap, Hip-HopПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6CB76D039962DC25B730E963F31D9FA9493335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987817   (924183) от 18.02.2016
+
+Usher - Confessions (2004) [FLAC|Lossless|tracks + .cue] <RnB, Swing>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:46)
+02. Usher feat. Lil Jon & Ludacris - Yeah! (4:10)
+03. Usher feat. Jadakiss - Throwback (4:46)
+04. Confessions (4:20)(   Читать дальше...   )Жанр: RnB, SwingПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873EA64DBF4503F00392EF07D5FC2CAA3346087C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096181   (920380) от 23.01.2017
+
+Noize MC - Царь Горы (2016) [FLAC|Lossless|image + .cue] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Some Noize
+02. Стэнли запишет хит
+03. Царь Горы
+04. Эмпайр Стэйт(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF3B42852CCCE5B36E0856C136506E6549D4FB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

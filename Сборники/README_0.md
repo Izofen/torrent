@@ -1,3 +1,29 @@
+###  Публикация: 1353983   (989675) от 20.01.2020
+
+Сборник - MightyDeals - Retro/Vintage Graphic Design Bundle 2 [AI, ASL, PNG, EPS, JPEG, PSD, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ретро всегда будет в моде. И с этим удивительным Mighty Deal у вас будет отличная коллекция ретро и винтаж! Состоит из более чем 500 элементов графического дизайна от Cruzine Design, вам будут доступны декоративные заголовки, рамки и сложные и простые логотипы. Так-же есть текстуры, формы венков и солнечных лучей, а также шаблоны и стили Photoshop. Это огромная коллекция (   Читать дальше...   )Формат: AI, ASL, PNG, EPS, JPEG, PSD, PATРазрешение файлов: 1500x1000-2625x3375
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC03E2077CD47BB73B52CC92C3E9B91150CADAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355411   (983310) от 26.01.2020
 
 Сборник - Creative Market - Mega Valentine graphics bundle - 4455358 [AI, PNG, EPS, JPEG]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773716   (832482) от 04.04.2014
-
-Сборник - Супергерои / Superheroes [JPEG,EPS,AI,CDR,PSD]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супергерои, не совсем супер и совсем не героиФормат: JPEG,EPS,AI,CDR,PSDРазрешение файлов: ~4000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D69A4D4BE0BFDF62C6B334830144EF1729AF0B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

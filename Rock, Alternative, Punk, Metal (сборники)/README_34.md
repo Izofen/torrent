@@ -1,3 +1,32 @@
+###  Публикация: 1421970   (315437) от 06.11.2020
+
+VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315437.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hillview - No One Else To Blame
+002. Kolossus Däächt - Fallen Piece
+003. Holly Would Surrender - What Do We Do Now
+004. Mcrackins - Happy Hour(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 07:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182736   (313973) от 11.11.2017
 
 Юлия Чичерина - Избранное 1997-2017 (2017) [MP3|320 Kbps] <Rock>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D4D31F7A5787B7C7007E57535DAB3ECEDCCC1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079472   (290158) от 06.12.2016
-
-Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И на камнях растут деревья (256 Kbps)
-02. Кен и Барби (256 Kbps)
-03. Весна (256 Kbps)
-04. Камни (256 Kbps)(   Читать дальше...   )Жанр: Рок, фолкПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
 ```
 
 https://mybot314.ru/tekegram_catalog/

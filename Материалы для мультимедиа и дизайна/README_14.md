@@ -1,3 +1,29 @@
+###  Публикация: 1456749   (1024834) от 23.03.2021
+
+3D Smart materials - Artstation - Poligone - Poligone Smart Material Collection for AAA Character Creation [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024834.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора Poligone: Этот пакет представляет собой коллекцию умных материалов, которые я создал за 5 лет моей карьеры профессионального 3D-художника. Эти материалы использовались во всех моих AAA и мобильных проектах для многих известных клиентов (ILM, Microsoft, Lucas, Disney, NCSoft, Nexon, Telltale, Kabam, Gamevil, Digital Legends и многих других).Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E22840FC658DD1C9425A28543DD028B5B63407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456601   (1024824) от 23.03.2021
 
 Футажи - BusyBoxx - V12: Paint Throws [MP4]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BE7DA77B5041C2AE7D4D299B247140D4C45E0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390991   (1023359) от 31.03.2021
-
-Digital Juice - Motion Designer's Toolkit 3 [ISO]
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motion Designer's Toolkit 3 - ультимативная библиотека настраиваемых анимированных элементов. Опираясь на беспрецедентный уровень настройки анимации в предшествующих сборниках MDT1 и MDT2, компания Digital Juice выкладывает еще одну революционную High-End коллекцию готовой к использованию анимации, в которой возможность настройки переведена на абсолютно новый уровень. (   Читать дальше...   )Формат: ISOРазрешение файлов: 2000x2000, 1920 x 1080, 1280 x 720, 720x480, 720x576
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275F7299E583E9FE52780DA27F9E4AF139E1A4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,605 +1,3 @@
-###  Публикация: 978572   (794686) от 05.01.2019
-
-3D материалы - vray-materials 2019 [V-Ray|*.mat]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновилась коллекция материалов для связки V-Ray + 3Ds Max на довольно известном в узких кругах сайте vray-materials...
-Эта коллекция матералов, как говорится, must have (должна быть) у каждого начинающего изучать мир 3d моделирования, к сожалению или счастью для себя выбравшего вышеупомянутую связку.Формат: V-Ray|*.mat
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91040E6EBA25D607A82F9303E52FFF921BEACE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509524   (794665) от 12.11.2021
-
-3D модели - Unreal Engine - Hong Kong Street [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модульная система с настраиваемыми коллайдерами позволяет собрать город как конструктор. После этого улицы и фасады домов можно оформить тематическим реквизитом.Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397557823270269CA40B72A103AEDFBBB7C762CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509528   (794654) от 12.11.2021
-
-3D модели - Unreal Engine - Futuristic Soldiers Pack [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794654.jpg" />
-</div>
-
-
-###  Подробнее
-
-В набор входят: 42 собранных персонажа, 60 материалов для настройки и 35 частей тела.Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAE8752B1956599AC36FF7021C1A9C946B839C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200786   (794650) от 22.01.2018
-
-3D модели - Daz 3D - Animals [DUF, EXE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз 3d моделей для DAZ 3D из категории Animals, включающий в себя сборники Animals, Dinosaurs, Fantasy, Sci-fi, Toon с офсайта.Формат: DUF, EXE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5D81CBBE2DF8E081E42FCD8EE50D1A6CF86AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274315   (794046) от 06.01.2019
-
-3D модели - SQUIR - Toyota IQ EV 2013 [Mental Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794046.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: Mental Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E630DB78122D0AD3E34822DD11FF32FDD29167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274213   (793996) от 06.01.2019
-
-3D модели - Hum3D - Lexus LX 2016 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793996.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки LexusФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C792141817E205FA53DBE71CA2FB68F2887B4B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274305   (793992) от 06.01.2019
-
-3D модели - Hum3D - Toyota Hilux Double Cab Chassis SR 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793992.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274218   (793991) от 06.01.2019
-
-3D модели - Hum3D - Holden Colorado Space Cab Divisional Van 2018 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793991.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки HoldenФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274209   (793932) от 06.01.2019
-
-3D модели - Hum3D - BMW X5 (G05) M sport 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793932.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: Сorona|Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, SKP, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B3A8C6C8A5B2724DDAD584F67D2BA47A6A8846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200824   (793698) от 23.01.2018
-
-3D модели - Daz 3D - Everyday [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор одежды от повседневной до вечерних платьев для DAZ 3D из категории People.
-Для Genesis 3 и Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98756E1765991E2E3C8FBAAE336601146D46C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200816   (793693) от 23.01.2018
-
-3D модели - Daz 3D - Animation [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор поз для DAZ 3D из категории Animation. В состав входят сборники с офсайта Animation, Combat, Expressions, Interacting figures, Pin up.
-G3F and G8FФормат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECCE774A520165481AE9F5FB7F5F569C3C2EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387062   (792462) от 31.05.2020
-
-3D модели - Hum3D - Toyota ToyoAce Flatbed 2006 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792462.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8124D3B0158BCB2C8C7044365ED95AF81B31AE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387057   (792395) от 31.05.2020
-
-3D модели - Hum3D - VAZ Lada 2103 1972 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792395.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ВАЗФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5259999394CEE7B2C987CAA0EBDD70840CF61B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387072   (792385) от 31.05.2020
-
-3D модели - Hum3D - Toyota Hiace Passenger Van 1967 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792385.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D536650BDB327495449D52E161727F349CDF7BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387059   (792382) от 31.05.2020
-
-3D модели - Hum3D - VAZ Lada 21099 1990 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792382.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ВАЗФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF71B60161E3E4207E7495833A06203685BC225D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387081   (792358) от 31.05.2020
-
-3D модели - Hum3D - Toyota RAV4 5-door 2001 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792358.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1671B091ADF82A74A0C35181747852B659735401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387088   (792313) от 31.05.2020
-
-3D модели - Hum3D - Ural Solo sT 2013 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792313.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки UralФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E2A386D1B0F05216CE701BF458F16F8F7BD00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274791   (792134) от 08.01.2019
-
-3D модели - Daz 3D - Millennium Dragon [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D Драконы из категории AnimalsФормат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2D7736D130E18AD12196EB89CA15B4625BC8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510214   (791878) от 15.11.2021
-
-3D модели - Unreal Engine - Modular Sci-Fi Interior [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modular Sci-Fi Interior разработан для создания атмосферы класса AAA. Из 68 компонентов можно легко построить любые коридоры и комнаты космического корабля, лаборатории, инженерные сооружения и другие футуристические помещения. Все модульные части правильно масштабированы и совместимы друг с другом. Настраиваемые материалы позволяют разнообразить сцену. Пак идеален (   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6C3469F44826DB58A22AFFEB851F155BE690D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510082   (791873) от 15.11.2021
-
-3D print - Gambody - Vulcan Tank 3D Printing Model | Assembly [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модель 3D-печати Vulcan Tank поставляется в 5 версиях для каждого типа 3D-принтера (FFF / FDM, DLP / SLA и SLS).Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5E14B3E761A99712EB277D4F3113B720A506C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510280   (791316) от 16.11.2021
-
-3D модели - Chyuuties [Fanart]: Sailor Moon [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Chyuties - мой собственный милый взгляд на коллекционирование в стиле одиночек (например, Funko Pops, QPockets или даже Dudes).Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1D1672F659E4653618B5AA8415E74A87A45065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510516   (790712) от 17.11.2021
-
-3D модели - KitBash3D - Props: Medieval Market [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воплотите в жизнь все свои фантазии и средневековые миры с помощью палаток, бочек, повозок, арок, оружия, посуды, столов, кувшинов, ящиков, корзин, лестниц, холстов, тканей, буханок хлеба, мертвой рыбы и многого другого из этого набора! Более крупные предметы также имеют детализированный интерьер, чтобы придать смелости вашим торговым лагерям, анклавам ведьм, рыцарским (   Читать дальше...   )Формат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC638369A4EA5BF3F833F02228B10D1D41331C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275367   (790380) от 11.01.2019
-
-3D модели - Daz 3D - Christian 8 Pro Bundle - 57919 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Christian 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D054667CC56D70A618654B2F78EFC81E43562B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275359   (790371) от 11.01.2019
 
 3D модели - Daz 3D - Nix 8 Pro Bundle - 56193 [DUF]
@@ -674,6 +72,621 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5E1ACA087518034415DEF59AEA27D6D9734330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275976   (788905) от 14.01.2019
+
+3D модели - Daz 3D - Сборник 3D моделей #21 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 66шт, категории Clothing, People, Animation, Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5449419A0E7D2DB18A2577D09E407052DF4E95EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511949   (787792) от 23.11.2021
+
+3D модели - Hum3D - UAZ Patriot (3163) 2014 [3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787792.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки UAZФормат: 3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23ED263780D8275AA6B856471077FF6257D91488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511927   (787791) от 23.11.2021
+
+3D модели - Hum3D - Volvo Electric Tractor Truck 2019 [3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787791.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки VolvoФормат: 3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DDFCD60BF5680E49D4E41B9A2AB5816EF89A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511931   (787788) от 23.11.2021
+
+3D print - CGTrader - Scooby Doo 3D print [OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787788.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель Скуби-Ду - из американского мультсериала, включающий множество мультсериалов, снятых с 1969 года до наших дней.Формат: OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD305FE3FD25906E95BE7ACE861F67E1916B1FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511928   (787761) от 23.11.2021
+
+3D модели - Cults3D - GENSHIN IMPACT - YAE MIKO [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корпус - цельный, основание - отдельное. Я напечатал ее в масштабе 1/20, так что она была примерно 9 см в высоту, включая основание.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC029E6C5BE53D3932D0E0E147759D38917DE3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276758   (787511) от 17.01.2019
+
+3D модели - Daz 3D - Sydney 8 Pro Bundle - 57005 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Sydney 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176A871C22EFEACB9BCE1EA988D44747CF5D1112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204988   (783988) от 08.02.2018
+
+3D модели - Daz 3D - Fairy Outfit for Karyssa 8 and Genesis 8 Female(s) - 50191 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наряд феи для Karyssa 8 и Genesis 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DAE5929F287ABB9FBCA2D6938732A00EFEF6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205409   (783765) от 09.02.2018
+
+3D модели - Daz 3D - Kenji 7 Pro Bundle - 31673 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный пакет Kenji 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D36957F3FE4E86049437A35B78DFBA43E3E26BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205347   (783709) от 09.02.2018
+
+3D модели - Daz 3D - Karyssa 8 Pro Bundle - 49305 + Genesis 8 Starter Essentials - 42071 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Karyssa 8 Pro и Genesis 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9BD539FE5EE26E8A3166F83C8BFABE75DF32AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205493   (783478) от 10.02.2018
+
+3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Elijah 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205511   (783474) от 10.02.2018
+
+3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205497   (783471) от 10.02.2018
+
+3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Damien для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205505   (783470) от 10.02.2018
+
+3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Lucian 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205516   (783465) от 10.02.2018
+
+3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783465.jpg" />
+</div>
+
+
+###  Подробнее
+
+James для Michael 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205445   (783461) от 10.02.2018
+
+3D модели - Daz 3D - Dante 7 Pro Bundle - 37227 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Dante 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C288834A4FAA951750B928C9711381060BA8FEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205520   (783455) от 10.02.2018
+
+3D модели - Daz 3D - Ivan 7 Pro Bundle - 30853 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Ivan 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C946FED09B8AACB2E45409A3558FFEE5FE16138F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205501   (783445) от 10.02.2018
+
+3D модели - Daz 3D - Centaur 7 Male Pro Bundle - 37321 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Centaur 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0853C3E4548162F7FA1B73D11CB17AFD311ACBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205509   (783439) от 10.02.2018
+
+3D модели - Daz 3D - Ancient Egypt Bundle – Character, Outfit, Expansion and Poses - 39285 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Ancient Egypt для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEBB773A714417DA57F2865F355CADD3AB8E0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205592   (783431) от 10.02.2018
+
+3D модели - 3ddd - Сборка игрушечного транспорта [V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник игрушечного транспорта входит Lego и радиоуправляемые модельФормат: V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07322826FAEBF52081BDD2CD9094D6BE9BF61137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205778   (783195) от 11.02.2018
+
+3D модели - Daz 3D - Lee 7 Pro Bundle - 24367 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Lee 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69D5BFBF2233D31F3DFE95C32D52FBC0395D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205790   (783192) от 11.02.2018
+
+3D модели - Daz 3D - The Guy 7 Pro Bundle - 23925 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект The Guy 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602248631F095B3D8AD2494EE6A709969B692391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205773   (783191) от 11.02.2018
+
+3D модели - Daz 3D - Kimo 7 Pro Bundle - 30848 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Kimo 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA619ECF1F3A1303ED47343D5DA0983C72097F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205784   (783189) от 11.02.2018
+
+3D модели - Daz 3D - Leo 7 Pro Bundle - 23378 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Leo 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36EFEB6EB6988BEE88892149A053B8BF0B7D03D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

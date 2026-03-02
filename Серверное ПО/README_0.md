@@ -234,36 +234,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 489530   (102138) от 29.04.2012
-
-Microsoft SQL Server 2012 Standard Edition (x86 and x64)  (Russian)
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-SQLServer 2012 — это значимый выпуск, который по-прежнему позволяет клиентам создавать и поддерживать критически важные среды, обеспечивая дополнительную уверенность и эффективность сразу же, без дополнительной и долгой настройки. Новые и улучшенные инструменты обеспечивают качественно новый анализ данных на всех уровнях предприятия, а технологии, готовые для работы с облачными решениями, — симметричность приложений в серверных средах и средах частного и общедоступного облака, позволяя клиентам быть готовыми к будущему развитию.
-
-SQL Server 2012 will provide Mission Critical Confidence with greater uptime, blazing-fast performance and enhanced security features for mission critical workloads; Breakthrough Insight with managed self-service data exploration and stunning interactive data visualizations capabilities; Cloud On Your Own Terms by enabling the creation and extension of solutions across on-premises and public cloud. SQL Server 2012 is available in three main editions:
-Standard Edition
-Standard continues (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465148   (81344) от 10.03.2012
 
 Oracle Database 11g Release 2 11.2.0.3 [ENG]

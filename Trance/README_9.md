@@ -1,3 +1,177 @@
+###  Публикация: 1508642   (796860) от 09.11.2021
+
+The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balerika (Original Mix) (17:27)
+02. Age Of Confusion (Original Mix) (13:27)
+03. Plutox (Original Mix) (10:31)
+04. Synthdrive (Original Mix) (10:12)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 03:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1540F2359FAA8302C528C2A587951FF55618DCA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200234   (796450) от 20.01.2018
+
+VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Beat - Come Down to Me (Radio Edit) 03:06
+02. Dennis Grkn - Winner (Radio Edit) 03:15
+03. Mr. Groove - We're Living for the Moment (Radio Edit) 03:31
+04. Miguel Alcobia - I Don't Need You Anymore (Radio Edit) 02:13(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9501989F56E4BBEAEF70384D866B97814C2F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200249   (796410) от 20.01.2018
+
+VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sl4tch feat. Doris Stadler - In a Game 02:37
+02. The Boogeyman - Be Free (Radio Edit) 03:03
+03. Mr. Groove - Mouraria (Radio Edit) 03:20
+04. Dr. Beat - How About You (Radio Edit) 03:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3800EB9FCABDCBFBA77AE66167B7A7481A222E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011822   (796357) от 28.04.2016
+
+Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Code 10-66 (02:41)
+02. Markus Schulz feat. Brooke Tomlinson - In The Night (03:53)
+03. Markus Schulz feat. Ethan Thompson - Love Me Like You Never Did (04:23)
+04. Markus Schulz feat. Delacey - Destiny (03:48)(   Читать дальше...   )Производство: Black Hole RecordingsЖанр: Trance, Progressive HouseПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66412A880D40C21B7D0CCAF87D0DE54AFB97F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274172   (795054) от 05.01.2019
+
+VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stoneface & Terminal - Berlin 2000 (Original Mix)
+02.Darren Porter - Whiplash (Original Mix)
+03.David Forbes & Paul Denton - Blizzard (Original Mix)
+04.Paul Denton - Revolution (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7AD9A588C203525019740E25D40716E9D259A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200787   (795021) от 22.01.2018
+
+VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emre Yildiz - Escape (Original Mix)
+02. Nanven - Aren (Original Mix)
+03. ER7E - Revelation (Original Mix)
+04. Dave - Flying (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EADBE20161591E43AF29400C6899757D5236050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509367   (795002) от 12.11.2021
 
 Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 Kbps] <Trance, Tech Trance>
@@ -571,180 +745,6 @@ VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02EE680D7D4C24478776D13F91EBEE5064B148CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202947   (789110) от 31.01.2018
-
-VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick V - Taste Of Time (Original Mix)
-02. Nikolauss - Star 48 (Original Mix)
-03. Amber Traill - Ibiza Space (Exouler Remix)
-04. Attila Syah - Malang Rain (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18DF9F47933DBB81E27998B20E01BC02A419BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202884   (789096) от 31.01.2018
-
-VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer, Roxanne Emery -Lullaby (Original Mix)
-02. LTN -Maldives (Original Mix)
-03. Armos, Lucid Blue, Ruslan Radriges -Call Of The Wild (Ruslan Radriges Radio Edit)
-04. Frainbreeze -Back To The Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276046   (789074) от 14.01.2019
-
-VA - Restricted Dance Reloaded (2019) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomb N Amato - Can't Stop Raving (Single Mix)
-02. Rave Vegas - Hardcore Vibes (Calvo Edit)
-03. Stereo Palma feat. Myra - Because The Night (Roberto Rios x Dan Sparks Remix Edit)
-04. Freischwimmer feat. Jason Anousheh - Get it on Tonite(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8065530E86DD75B7E79559B0C17C99E92AF60176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203256   (788669) от 01.02.2018
-
-Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostly – Since (Album Mix)
-02. Lostly – The Art of Acid (Album Mix)
-03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
-04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203279   (788239) от 02.02.2018
-
-VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
-02.  Feel  -  The Nutcracker (Original Mix)  3:27
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Hamzeh & Ahmad Ai  -  Lachrymose (Original Mix)  3:56(   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D1BAAF1DB7DC988F9F2799ACD69DD1AD7262E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276603   (788227) от 16.01.2019
-
-VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anden State - Dogma (Extended Mix)
-02. Formal One - Neon City (Original Mix)
-03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
-04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
 ```
 
 https://mybot314.ru/tekegram_catalog/

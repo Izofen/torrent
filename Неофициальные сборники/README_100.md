@@ -1,3 +1,206 @@
+###  Публикация: 1101312   (896398) от 06.02.2017
+
+VA - The Essential #LOVE (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - Greatest Love of All (04:59)
+02. Savage Garden - Truly Madly Deeply (04:36)
+03. Backstreet Boys - As Long as You Love Me (03:32)
+04. NSYNC - This I Promise You (04:45)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5FD64C313A37D17C89653DDC43FEDF27168D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101162   (896280) от 06.02.2017
+
+VA - Tabletka - FM Top 20 Radio Hits January (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gareth Emery & Standerwick & HALIENE - Saving Light (Extended Mix)  7:01
+02.  Dan Dobson - Lima (Extended Mix)  5:14
+03.  Above Beyond - Balearic Balls (Extended Mix)  6:29
+04.  Alex M.O.R.P.H & Woody Van Eyden ft. Tiff Lacey - Dreamcatcher (Mhammed El Alami Remix)  6:39(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874275DC142CE59B66E77C646A6F926FDFBE55A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101127   (896217) от 06.02.2017
+
+VA - Дискотека зимних дорог. Индустрия поп музыки. Выпуск №5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ivan Grom - Осколками Льда 3:16
+002. Shami - Пой Вместе Со Мной 3:21
+003. Miela - Города 4:18
+004. Evidelle - Ну Почему 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7D9FAA0DFA11CA3DB691A888F7B04406E4348E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101115   (896127) от 06.02.2017
+
+VA - Хиты зимы. За рулем. Выпуск 50/50 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896127.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леонидыч - Ночной Клуб 2:26
+002. Alma - Requiem 3:04
+003. Татьяна Чубарова - Тебя Любить Нельзя А Хочется 4:03
+004. Dua Lipa - Thinking 'bout You 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B033C1B76E1A8CD3EC8DC2DF20B1AA0BA2282738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101250   (896077) от 06.02.2017
+
+VA - 70s: The Collection (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Doobie Brothers - Listen To The Music (Edit)  3:48
+02.  Foreigner - Hot Blooded  3:05
+03.  Chaka Khan - I'm Every Woman  3:33
+04.  Sister Sledge - We Are Family  3:37(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28857D0768258ABCC735950827596F1C4BB8C21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993277   (895898) от 05.03.2016
+
+VA - Блатной хит 4 (2016) [MP3|256 кб/с] <Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дядя Юра - Понты
+002. Виктор Королёв - Три Часа
+003. Сибирь - На Канарах И На Кипре
+004. Стас Притчин - Счастье(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 06:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88E11C77D710FF9DAB7C89B82E7604B7D058143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101418   (895872) от 06.02.2017
+
+VA - Top 100 Зайцев.Нет Январь 2017 [MP3|192-320 Kbps] <Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LP - Lost On You
+02. Монатик - Кружит
+03. Наргиз - Вдвое?м (feat. Максим Фадеев)
+04. Баста - Выпускной (Медлячок)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EBE1D7286410DE27AD88CCEF48370FD894D85D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993282   (895833) от 05.03.2016
 
 VA - Любимая женщина. Душевный шансон (2016) [MP3|256 кб/с] <Шансон>
@@ -560,209 +763,6 @@ VA - Music For Intensive Sports: Hardstyle Dance (2020) [MP3|320 Kbps] <Hard Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF4F07FE86ECF16FDE8DDED2DCAC9E4899FBB6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370542   (895116) от 28.03.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 27.03.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Everything I Wanted 4:05
-02. The Weeknd - Blinding Lights 3:22
-03. Макс Барских - Лей, не жалей 3:30
-04. Carla Morrison - Disfruto (Audioiko Remix) 3:16(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80522300BEBC77C2F473798569704C441AF21B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370650   (894988) от 28.03.2020
-
-Zucchero - 100% Zucchero (2020) [MP3|320 Kbps] <Rock, Pop Classical>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Baila (Sexy Thing) (Remastered 2017)
-02. Zucchero - Baila Morena
-03. Zucchero - Blue (English Version-Remastered 2007)
-04. Zucchero - Cosi Celeste (Remastered 2017)(   Читать дальше...   )Жанр: Rock, Pop ClassicalПродолжительность: 03:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3357936BC807FE6725A9341B3B2CA844C086C5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370683   (894982) от 28.03.2020
-
-Nazareth - 100% Nazareth (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One from the Heart
-02. Where Are You Now
-03. Love Leads to Madness
-04. I Don't Want to Go On Without You (2010 - Remaster)(   Читать дальше...   )Жанр: RockПродолжительность: 02:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EAF18EE6971813081E24A7E73E3CB333DE15C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370515   (894974) от 28.03.2020
-
-Slade - 100% Slade (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightning Never Strikes Twice
-02. Lock Up Your Daughters
-03. Lock Up Your Daughters (Live)
-04. Look at Last Nite(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 07:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731469DAF6067BD517CA0022027E5049092A6339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370393   (894820) от 28.03.2020
-
-VA - 100% Blues Ballads & Slow Blues (2020) 5CD [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Erickson - No Reply
-02. Johnny Littlejohn - Drifting
-03. Blue Stew - Bringing Home The Blues
-04. Jimmy Johnson - Your Turn To Cry(   Читать дальше...   )Жанр: BluesПродолжительность: 24:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEEEB2853FE7A690539536BEE7BEF2187FFBC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101528   (894780) от 07.02.2017
-
-VA - Танцевальная зима. Снежная сотка версия №8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894780.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Гурченко - Я Уезжаю 3:20
-002. Dave Till Feat. Big Dawg - Real Love 3:41
-003. София Куценко - Луна 3:34
-004. Dnce - Zoom 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB9A1BCE3833926C3E6D0CBB020E624F3AB4B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101513   (894733) от 07.02.2017
-
-VA - Вечеринка в стиле радио Шансон (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894733.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Куприк - Какая Ты Красивая 3:12
-002. Елена Конькова - За Пазухой 3:10
-003. Владимир Ворон & Галина Пахомова - Вернись Любовь 3:36
-004. Елена Мороз - Когда Ты Рядом 3:35(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399F7DCCEBCE6AB17FFE87D35B5B1C14EE6599D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

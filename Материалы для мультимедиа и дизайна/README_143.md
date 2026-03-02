@@ -1,3 +1,31 @@
+###  Публикация: 1222623   (685152) от 29.04.2018
+
+Векторный клипарт - Football Retro Labels 4 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Футбольные ретро-эмблемы
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1283CED04D74E46653D87DD0E71387283587F968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507281   (685149) от 07.06.2012
 
 Растровый клипарт - А мы уходим - в небо [JPEG]
@@ -654,35 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88E544ABE28C321CC42FB74B66EE9EE9381FF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535638   (683827) от 07.03.2022
-
-3D print - Loot Studios - Welcome Pack 2.0 - DnD Miniatures [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Print awesome minis at home!
-Every month you will receive dozens of high quality minis ready to print. Click below to check this month's bundle.
-
-Get your loot(   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5F68D8AC727E45B34D428F60BC363ED97195C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

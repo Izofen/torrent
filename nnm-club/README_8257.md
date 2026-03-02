@@ -1,193 +1,22 @@
-###  Публикация: 1531912   (718735) от 17.02.2022
+###  Публикация: 892657   (719186) от 26.04.2015
 
-Lucifer - Lucifer IV (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Doom Metal, Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangel of Death (3:35)
-02. Wild Hearses (4:56)
-03. Crucifix (I Burn for You) (3:51)
-04. Bring Me His Head (4:25)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, RockПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219439   (718734) от 05.08.2020
-
-VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, Relax>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megabyte - Valee De Mai    		(08:12)
-02. Dansing Fantasy - Nautilus    	(04:22)
-03. Venja - Eliah`s Ascension    	(04:14)
-04. Software - Island Sunrise    	(02:51)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531908   (718733) от 17.02.2022
-
-Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhino Attack
-02. Arrival
-03. Lovin Easy
-04. Steel Rhino(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6438165F8CD2E45880559FF156622E3F4C51415B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531781   (718732) от 17.02.2022
-
-Ирина Токмакова | Где спит рыбка (1963) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник небольших четверостиший, проиллюстрированных художником В.Конашевичем.Жанр: СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A204E51F96FF1DE766B42E18DACE5B44A5F5464D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327808   (718731) от 05.08.2020
-
-Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter 		 - Vivaldi	(05:25)
-02. Sarabande         	 - Handel	(04:36)
-03. Ave Maria 		 - Caccini	(05:16)
-04. In the Hall of the Mountain King 	 - Grieg 	(02:48)(   Читать дальше...   )Жанр: Instrumental, crossoverПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531866   (718730) от 17.02.2022
-
-Harold Mabern - The Iron Man: Live At Smoke (2018) 2CD, Smoke Sessions Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718730.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Few Miles From Memphis [7:32]
-02. I Get A Kick Out Of You [8:08]
-03. I Know That You Know [4:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F0ED2E6E56D8DBF2113CA56F0536088DEFF8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400487   (718729) от 05.08.2020
-
-Paint.NET 4.2.13 Final [Multi/Ru]
+SAM CoDeC & DeCoDeR Pack 2015 5.85 [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718729.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Paint.NET - Простой, но мощный и удобный редактор графики. Позиционируется как отличная замена стандартному MS Paint из поставки Windows. Поддерживаемые форматы: BMP, IPEG, PNG, TIF, GIF, TGA и собственный формат PDN. Основные возможности: работы со слоями, применение эффектов, работа со сканером и камерой, коррекция красных глаз, масштабирование от 1% до 3200%. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Сейчас существует множество различных кодек-паков, но подбор компонентов в них не является оптимальным и не дает возможности просмотра максимального числа форматов файлов без поиска дополнительных декодеров или фильтров. SamLab предлагает свой вариант подборки нужных декодеров и кодеков для проигрывания и упаковки мультимедийных файлов. Теперь все декодеры, которые необходимы для просмотра видео и прослушивания музыки, а также кодеки, необходимые для упаковки и конвертирования мультимедийных файлов, будут всегда (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:101F35A74B40B9644C2E922932E9BECCF0CE1B68
+magnet:?xt=urn:btih:AD364F8CA9FBFFABE2C398D94C027760E8B09704
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,47 +24,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532004   (718728) от 17.02.2022
+###  Публикация: 208153   (719169) от 07.06.2010
 
-TinkerTool System 7 v7.85 [Multi]
+Пробуждение / Awakenings (1990) [H.264] HDTVRip
 
->>Архив торрентов
->>Архив 4Apple
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718728.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_719169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2022Разработчик: © 2022 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E40506E9CA78963D312859312960030F6B2878C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400417   (718727) от 05.08.2020
-
-Возвращение мушкетеров / The Return of the Musketeers (1989) WEB-DLRip [H.264/720p]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718727.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой экранизации романа Дюма всем мушкетерам уже за сорок. Д`Артаньян прозябает в лейтенантах, Арамиса интересуют больше женщины, нежели религия, Портос богат, но несчастлив, Атос потихоньку спивается. И вот однажды всех четверых вновь вместе собирает приказ королевы. Теперь их главная соперница - дочь миледи, жаждущая отомстить за смерть матери.Производство: Великобритания, Франция, Испания / Ciné 5, Fildebroc, Iberoamericana Films ProducciónЖанр: Боевик, мелодрама, комедия, приключенияРежиссер: Ричард ЛестерАктеры: Майкл Йорк, Оливер Рид, Фрэнк Финлей, С. Томас Хауэлл, Ким Кэтролл, Джеральдин Чаплин, Рой Киннер, Кристофер Ли, Филипп Нуаре, Ричард ЧемберленПеревод: Профессиональный одноголосый, профессиональный двухголосыйСубтитры: АнглийскиеПродолжительность: 01:42:20
+Доктор Малколм Сэйер, застенчивый врач и ученый, использует экспериментальные препараты, чтобы «пробуждать» обездвиженные жертвы редкого заболевания. Леонард был первым пациентом, получившим это неопробованное лечение. Его пробуждение, наполненное благоговением, страхом и энтузиазмом, приводят как бы ко второму рождению и самого Сэйера по мере того, как пациент открывает для себя и доктора простые радости жизни. Воодушевленный чудесным выздоровлением Леонарда, Сэйер дает лекарство другим больным.Жанр: ДрамаРежиссер: Пенни Маршалл.Актеры: Роберт Де Ниро, Робин Уильямс, Джули Кавнер, Рут Нельсон, Джон Хёрд, Пенелопа Энн Миллер, Элис Драммонд, Джудит Мэлина, Бартон Хейман, Джордж Мартин и др.Продолжительность: 02:00:36
 
 ## Скачать торент
 ```bash
@@ -247,51 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531886   (718726) от 17.02.2022
+###  Публикация: 208231   (719166) от 07.06.2010
 
-Airtool 2 v2.3.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захват трафика Wi-Fi - важная задача анализа протокола. Если вы пытаетесь решить проблемы с подключением к Wi-Fi, роумингом или конфигурацией, анализируете производительность своей сети или просто изучаете Wi-Fi, вам, безусловно, потребуется выполнить захват трафика. Airtool дает возможность сделать это самым простым способом.Тип издания: macOS SoftwareРелиз состоялся: 17.02.2022Разработчик: © 2022 Intuitibits LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9171B8CFCEFC2966633A37BAE8D60FD08AC769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531937   (718725) от 17.02.2022
-
-HitPaw Watermark Remover 1.2.2 [Multi/Ru]
+Готика / Gothika (2003) [H.264] BDRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718725.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_719166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда вам нужно быстро удалить водяной знак с одного из ваших изображений или видео, лучше всего прибегнуть к специализированным программным решениям, чтобы гарантировать получение высококачественных результатов. HitPaw Watermark Remover - одна из таких утилит. В общем, HitPaw Watermark Remover может пригодиться, когда вам нужно «стереть» водяной знак с ваших изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2022Разработчик: © 2022 HitPaw. Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Фильм повествует о женщине-психиатре, которая однажды оказывается пациенткой больницы для невменяемых преступников, где она прежде работала.
+
+Вдобавок ко всему, ее обвиняют в совершении жестокого убийства, о котором она ничего не помнит. Пытаясь разобраться в происходящем, она сталкивается с необъяснимыми мистическими происшествиями…Жанр: Ужасы, Триллер, ДетективРежиссер: Матьё Кассовиц.Актеры: Хэлли Берри, Роберт Дауни мл., Чарльз С. Даттон, Джон Кэрролл Линч, Бернард Хилл, Пенелопа Крус, Дориан Хэрвуд, Бронуэн Мэнтел, Кэтлин Мэкки, Мэттью Дж. Тейлор и др.Язык субтитров: 1. Французские 2. Немецкие 3. ЧешскиеПродолжительность: 01:38:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A7106677CCE1BA68E69C4E7256990139EA0E397
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,25 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400557   (718724) от 05.08.2020
+###  Публикация: 1285672   (719163) от 27.02.2019
 
-BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough's Wonder of Eggs (2016) DVB [H.264]
+Bob Graf - At Westminster (1958) 1992, Delmark Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
 
->>Зарубежные TV-бренды
->>BBC
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718724.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1862 г. американец Томас Хиггинсон написал: «Если под страхом смерти меня попросят, не размышляя, назвать самый совершенный предмет во Вселенной, то я рискну сказать, что это яйцо птицы». Дэвид Эттенборо может сказать то же самое. Яйцо — это замечательная конструкция, которая защищает новую жизнь от внешнего мира и в то же время позволяет ей дышать. Оно достаточно (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярный, биологияРежиссер: Майк Бёркхед, Бет ДжонсПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:21
+01. Bernie's Tune [7:31]
+02. Street of Dreams [6:30]
+03. Dear Old Stockholm [14:06]
+04. Funky Ride [5:15](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F35E8C94A2426AFCDB09E3AFB39DCF97DAC5045C
+magnet:?xt=urn:btih:EA5A6766F7EDABF3122CF2931311EBECE0B6EC52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +107,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531904   (718723) от 17.02.2022
+###  Публикация: 1285677   (719162) от 27.02.2019
 
-Los Havtanos - Иди ко мне / Ven A Me (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock, Reggae, Latin>
+Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Thing [5:00]
+02. Sprauncy [7:43]
+03. Squiggles [4:44]
+04. Looking for Turner [5:02](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8159097C286DD02384266F0814B411575D71B7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285762   (719161) от 27.02.2019
+
+NIIGHTS - Hellebores (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:46)
+02. Generator (04:18)
+03. So Into You (02:58)
+04. Trail of Blood (05:12)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66FEE5B18EC100FCCA256954A44D875108769EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285776   (719160) от 27.02.2019
+
+Thornbridge - Theatrical Masterpiece (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718723.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1 - Иди ко мне:
-01. Иди ко мне (4:16)
-02. Мама (3:51)
-03. Корабли (3:43)(   Читать дальше...   )Жанр: Rock, Reggae, LatinПродолжительность: 00:54:38
+01. Take To The Oars (1:28)
+02. Theatrical Masterpiece (3:46)
+03. Keeper Of The Royal Treasure (4:13)
+04. Revelation (6:24)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:942950FF5B39411B5415C0CF417D7B808DCFDB47
+magnet:?xt=urn:btih:7C71E220E7DC9766DF8AC9996E85DEB7C48BF33D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,25 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400562   (718722) от 05.08.2020
+###  Публикация: 1285595   (719159) от 27.02.2019
 
-BBC. Кухня против науки. Кулинарный вызов / Chef vs. Science — The Ultimate Kitchen Challenge (2016) DVB [H.264]
+VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
 
->>Зарубежные TV-бренды
->>BBC
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718722.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На этой кухне встретятся 2 гиганта. Шеф-повар и учёный. Известный кулинар, отточивший своё мастерство годами опыта и тренировки. Ученый-материалист, человек, разбирающийся больше в пластмассе, чем в готовке. Так смогут ли научные открытия помочь ему «переготовить» профессионального шефа? И как будет выглядеть кухня с научной точки зрения?Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярныйРежиссер: Джеф УилкинсонПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 00:50:03
+01. D' de Kabal vs Franco Mannara - Ils voudraient que nous soyons cela (03:07)
+02. Achab - Black Block (04:08)
+03. La Twal - Sog Nig Keynmol / Ne dis jamais (04:17)
+04. Les Ogres de Barback - Grand mère (08:34)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:13:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6CE28546BC3E42B7A491154B0F07EC166F69888
+magnet:?xt=urn:btih:91133AEB9F917822221113C48466AA33BF12755E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,26 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531883   (718721) от 17.02.2022
+###  Публикация: 1285687   (719158) от 27.02.2019
 
-WiFi Explorer Pro 3 v3.4.3 [Multi]
+Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718721.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
-WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2022Разработчик: © 2022 Adrian Granados-MurilloПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и др.
+01. The Ruby and the Pearl [4:31]
+02. That's All [4:23]
+03. Corcovado (Quiet Nights of Quiet Stars) [3:20]
+04. I Only Have Eyes for You [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0B2E2D929C391D6840183BED4695DBF9A028BF5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,28 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 274707   (718720) от 05.08.2020
+###  Публикация: 1285622   (719157) от 27.02.2019
 
-VA - Love Story & Many More (2001) (2CD) [FLAC|Lossless|tracks + .cue] <Instrumental>
+Chris Potter - Circuits (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718720.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1
-01. Love Story - Paul Mauriat 			  (03:02)
-02. Love Is Blue - Paul Mauriat 		  (02:38)
-03. Mamy Blue - Paul Mauriat 			  (02:49)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:08:11
+01. Invocation (02:08)
+02. Hold It (06:49)
+03. The Nerve (08:30)
+04. Koutomé (06:47)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:ACE949F0AD89D81525CFC9997644B668DD03FD96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,28 +281,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531465   (718719) от 17.02.2022
+###  Публикация: 1285606   (719156) от 27.02.2019
 
-The Native American Chanters - Native American Chants & Dances - The Native American Chanters (2008) [MP3|320 Kbps] <Native American, New Age, World>
+RightFont 5 v5.3.3 [En]
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718719.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Circle Of Fire (04:59)
- 02. Counterclockwise Circle Of Dance (05:38)
- 03. Return From River Island (06:09)
- 04. Dance Of The Warrior (05:57)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 00:59:53
+Профессиональное приложение для управления шрифтами, которое может использовать любой пользователь.
+RightFont - менеджер шрифтов с красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам легко управлять всеми своими шрифтами. B RightFont 5. наконец-то появилась библиотека шрифтов. Теперь вы можете организовывать шрифты и шрифты в библиотеке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2019Разработчик: Markly TeamПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
+magnet:?xt=urn:btih:57294C400F62742A2CF382591E274AA446BD3756
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,28 +308,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 984165   (718718) от 05.08.2020
+###  Публикация: 1285450   (719155) от 27.02.2019
 
-Spatialize - Discography 9 Releases (2004-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
+VA - German Top 50 Official Dance Charts 22.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
+02. Calvin Harris - Giant
+03. Robin Schulz - Speechless (feat. Erika Sirola)
+04. Hugel - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCAB0CA0332FF15D976AC241214BC87CE8496B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285659   (719154) от 27.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718718.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scarlet Sundown (06:31)
- 02. Fluid Blue (05:11)
- 03. Clarity (Original Version) (06:10)
- 04. Praise (04:07)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill, Downtempo, Dub, Ambient •Продолжительность: 06:09:35 •
+01. Brian Eno - An Ending (Ascent)
+02. Cosmic Gate & Foret - Need to Feel Loved
+03. Marshmello featuring Bastille - Happier (Markus Schulz Festival Mix)
+04. Andrew Bayer featuring Alison May - In My Last Life (In My Next Life Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A355761571A799DDCEC088ED6D4AF51BC811731
+magnet:?xt=urn:btih:7C405A924F0F4651B7FE76844E1F175E34613603
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532031   (718717) от 17.02.2022
+###  Публикация: 1399971   (719153) от 05.08.2020
 
-Export for iTunes 3.1 [En]
+Ка тет - Острые края (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>Программы для macOS
->>Аудио и видео редакторы для macOS
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718717.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Export for iTunes -  экспортируйте свои плейлисты и альбомы из iTunes (или из нового музыкального приложения на MacOS Catalina) в любую локальную папку, внешнее хранилище, SD-карту или USB-накопитель. Вы можете легко перенести свои плейлисты на автомобильную стереосистему или любой другой медиаплеер. Конвертируйте файлы aac / m4a в mp3 для лучшей совместимости с большинством (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.02.2022Разработчик: © 2022 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+01. Ноктюрн [03:00]
+02. Двойки [03:02]
+03. Джефф Джарретт [02:57]
+04. Проспект [02:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:203E375E5B9F9A7AAA7B69E1A167C75AC316D9BD
+magnet:?xt=urn:btih:9CF0097E4BFC2E81F97D08306763CE5473F5E75A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,24 +395,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531956   (718716) от 17.02.2022
+###  Публикация: 1400509   (719152) от 05.08.2020
 
-VA - Chillout Desires (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
+Thundermother - Heat Wave (2020) [MP3|320 Kbps] <Hard Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718716.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Innate Joy - I Feel (5:49)
-02. Zirkadian Sender - Assez Vintages (5:47)
-03. Von Gauss - Mild Air (5:52)
-04. Logophilia - Sandy Dreams (5:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:11
+01. Loud and Alive (03:56)
+ 02. Dog from Hell (03:38)
+ 03. Back In '76 (03:34)
+ 04. Into the Mud (03:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6968B90D0E33FFC8965C83DD6FD19CD5A8E3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400540   (719151) от 05.08.2020
+
+В доме у Санта Клауса / The Shanty Where Santy Claus Lives (1933) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бездомный сирота мерзнет на улице накануне Нового Года. Но приходит Санта Клаус и везет его к себе домой, где много игрушек и веселья.Производство: США, Warner Bros.Жанр: Рисованная анимация, Музыкальный, КороткометражныйРежиссер: Хью Харман, Рудольф АйсингПеревод: Многоголосый профессиональныйЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 00:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3246CB092E668E32E84A0237B8133E18BF753698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399970   (719150) от 05.08.2020
+
+ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крушим [04:05]
+02. Не святой [04:13]
+03. Улица сезам [03:39]
+04. Сиять [04:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400449   (719149) от 05.08.2020
+
+Джонатан Коу | Дом сна (2020) [MP3]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_719149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонатан Коу «Дом сна» – ироничный и виртуозно написанный роман о любви, одиночестве, утрате и безумии. У героев книги запутанные отношения со сном – они спят слишком мало, слишком много, не спят вовсе, видят странные сны, не видят снов никогда… Двенадцать лет назад нарколептичка Сара, кинофанат Терри, маниакальный Грегори и романтик Роберт жили в мрачном особняке (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:11:56
 
 ## Скачать торент
 ```bash
@@ -549,28 +505,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531830   (718715) от 17.02.2022
+###  Публикация: 1400474   (719148) от 05.08.2020
 
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Зальцбург (Австрия) - Бавария (Германия) (16.02.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Капитанский ром - Блуждающий огонь (2020) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
 
->>Спорт и активный отдых
->>Футбол
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718715.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Зальцбург (Австрия) - Бавария (Германия) (16.02.2021)
-СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
-Судья на линии 1: Барт Стюарт (Англия)
-Судья на линии 2: Беннетт Саймон (Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:45
+1. Блуждающий огонь
+2. Казнь пирата
+3. Исполнитель желанийЖанр: Horror Punk, Folk PunkПродолжительность: 00:09:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:485D399500FA44F1D0E5CAA05959558B28553374
+magnet:?xt=urn:btih:9D6033EE7717317BB81E7B55881D4C0034DDF9EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531753   (718714) от 17.02.2022
+###  Публикация: 1400365   (719147) от 05.08.2020
 
-Digital Infinity - Digital Infinity (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
+VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718714.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Radiance (4:39)
-02. Dreams (5:49)
-03. Black Sky (4:57)
-04. Scars (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 02:14:44
+01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:41)
+02. Poolwave - African Market (Jazzman´s Cut) (6:11)
+03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
+04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:44:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE9F42E5916DB4846E87F62C58A55F8C5C23139B
+magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,112 +562,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532023   (718713) от 17.02.2022
+###  Публикация: 1400208   (719146) от 05.08.2020
 
-SignFlow - eSign PDF Editor for Mac 1.1 [En]
+VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WeAreTwo - Could Have Been Us (Dreamell Remix) [05:09]
+02. Bruce Sheroy - Bai Fen Bai (DJ Tecklogix Remix) [05:00]
+03. Walter Gardini - In The Deep [04:51]
+04. JoioDJ - Sensuality (H@K Club Mix) [07:52](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BD710A9F700313E981BDA65E6287D24B20B88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400427   (719145) от 05.08.2020
+
+The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хорошо одному [00:03:27]
+02. Танцуй [00:02:55]
+03. Свободно [00:03:36]
+04. Там, где нас нет [00:03:19](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F8F7971BF5F6644943D66472AA699C0C6A2E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400364   (719144) от 05.08.2020
+
+VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
+02. Housework - Culture Vibes (Drumflow Cut) (6:12)
+03. Clublife - Different Things (Poolside Mix) (6:17)
+04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 05:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60469698DFE0A1DE05CE2A359EA5BA41DE68B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400426   (719143) от 05.08.2020
+
+Модель Поведения - Признаки прошлого (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный завет [00:03:16]
+02. Советский ньювейв [00:03:23]
+03. Форд Эскорт [00:03:15]
+04. Насквозь [00:02:43](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57FDE40DCDB1A2E23074DAE6DB1A5B0A0C50C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400466   (719142) от 05.08.2020
+
+Kansas - The Absence of Presence (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Absence Of Presence (08:22)
+02. Throwing Mountains (06:21)
+03. Jets Overhead (05:17)
+04. Propulsion 1 (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7737EAED7A46723D9C1D424F0B9B3139A9C31714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400311   (719141) от 05.08.2020
+
+Прп. Паисий Святогорец и др.| Всегда радуйтесь. Советы и мысли святых отцов и современных греческих проповедников (2019) [FB2, EPUB]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718713.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_719141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SignFlow - это быстрый редактор PDF для электронной подписи, который позволяет вам подписывать PDF-документы цифровой подписью, заполнять, читать, редактировать и комментировать PDF-файлы, упрощая рабочий процесс редактирования и подписания. SignFlow упрощает чтение, аннотирование, редактирование, электронную подпись, систематизацию, заполнение и защиту PDF-файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531831   (718712) от 17.02.2022
-
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Интер (Италия) - Ливерпуль (Англия) (16.02.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. 1/8 финала. Интер (Италия) - Ливерпуль (Англия) (16.02.2021)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-Судья на линии 1: Сокольницкий Павел (Польша)
-Судья на линии 2: Листкевич Томаш (Польша)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B309A11C63A5501339FB4C299F4BB498C5D72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129866   (718711) от 30.04.2017
-
-Газета | Ждём гостей №4 (90) (2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие кулинарные рецепты на все случаи жизни - к торжествам и праздникам и повседневные блюда. Журнал поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.
-Каждый рецепт пошагово обьясняется с фото.
+«Всегда радуйтесь. Непрестанно молитесь. За всё благодарите» — в этих апостольских словах выражены все основы духовной жизни.
 
-Приятного аппетита!Жанр: КулинарияФормат: PDF
+Христианин — человек светлый, излучающий радость. Но в чём заключается истинная радость? Где её искать и как сохранить? Святые отцы и современные греческие проповедники открывают нам из своего опыта секреты радостной жизни.
+(   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CBC46C451510A6C3C7C87B0CE03D0FC8FF3E690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130019   (718710) от 30.04.2017
-
-VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim McNichols - Better off Alone (Summer Pool Party Mix)
-02. Michael Ribeira - Ecuador (Slowsphere Remix)
-03. Damon Paul, Beccy - I Was Made for Lovin' You (Patricio Amc Remix)
-04. Tenishia & Sue Mclaren - Strong (Chill Out Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

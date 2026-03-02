@@ -1,3 +1,29 @@
+###  Публикация: 1771465   (31769) от 06.01.2025
+
+Фоны - Green Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31769.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 качественных, премиальных текстур в зеленом тоне из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 3356х4817 - 9344х6208
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA93B0A04660C15AB86A77A8C628F63F07D75D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771570   (31726) от 07.01.2025
 
 Шаблоны - Photowhoa - 100 Photography Business Cards Bundle [PSD]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C63FBE9C141DA8FB31E201BB583C66380D03A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772532   (31290) от 11.01.2025
-
-Пресеты - Anarogu Film Collection - V3 Presets [XMP, DNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пресеты Anarogu Film Collection V3 черпают вдохновение из кино и подходят для всех жанров фотографии, включая портреты, уличную фотосъемку, lifestyle и пейзажи.Формат: XMP, DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4310334EC98DEB05C0CB083917373811515AF62B
 ```
 
 https://mybot314.ru/tekegram_catalog/

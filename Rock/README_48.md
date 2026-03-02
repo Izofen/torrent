@@ -1,3 +1,61 @@
+###  Публикация: 929665   (518508) от 20.08.2015
+
+Ideal Zero - In Perfect Darkness (2014) [MP3|320 кб/с]<Alternative Rock , Heavy, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before We Drown
+02. Little Blue Man
+03. Don't Give Up
+04. Walls(   Читать дальше...   )Жанр: Alternative Rock , Heavy, Female VocalПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5B7574D7B7AF2BDE01522265906E38A9AF69FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560395   (517803) от 02.07.2022
+
+Lobate Scarp - You Have It All (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conduit (7:00)
+02. Nothing Wrong (6:17)
+03. In The Night I (0:55)
+04. Life-Line (5:55)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB49CFF8681B42CBFF27C28A7230358766035789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560549   (517715) от 02.07.2022
 
 Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbps] <Progressive Rock, Experimental, Ambient>
@@ -708,70 +766,6 @@ Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DDC967E1C39009B3CB84785510EA386A71AB5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562081   (509020) от 09.07.2022
-
-Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together We Run (4:49)
-02. Don't Give Up On Us (5:23)
-03. Still Believe In Love (5:16)
-04. You Got The Best Of Me (5:33)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EF326AB40E7DC1C57C9A526002302F071BCD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538901   (508642) от 24.08.2012
-
-Mungo Jerry - Cool Jesus (2011) [MP3|320 кб/с]<Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Jesus
-02. John Henry
-03. Far Away
-04. Let's Rock
-05. Give Us A Song
-06. Hello Baby
-07. Just Her Way
-08. Going Up The River
-09. You Can Get It If You Want It
-10. I Lie Awake(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89037AB40DC77916A35D09CCEC1726B7B5D84FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

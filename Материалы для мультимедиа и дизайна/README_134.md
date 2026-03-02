@@ -1,3 +1,29 @@
+###  Публикация: 1401544   (709164) от 10.08.2020
+
+Стили - The Hungry JPEG - Gold Mine - 34701 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709164.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 золотых стилей для текста.Формат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33565A5C0DEDE4F8BA9EF362A05F432A1025127D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401546   (709160) от 10.08.2020
 
 Векторный клипарт - Watercolor set of bouquet and flower elements [EPS]
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56E6EAB5663EF7B366826C8DD816A3C3394B3844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220396   (704409) от 19.04.2018
-
-Векторный клипарт - Vector Money Collection #2 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Деньги
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D1B72CAD04010185E4E4EF7792E69F59B21CF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

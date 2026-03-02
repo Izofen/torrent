@@ -1,3 +1,32 @@
+###  Публикация: 459570   (365485) от 28.10.2015
+
+VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24 Black - All She Wrote
+02. System of a down - Attack
+03. Scars On Broadway - Babylon
+04. Ill Nino - This Is War(   Читать дальше...   )Жанр: Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk RockПродолжительность: 03:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F792E7D36FCAED26D09A0C725FC6A314E0F302FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328162   (365372) от 29.09.2019
 
 The Beatles - White Album De-Noised From Demos & Takes 2CD (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7782A431B4D348121A39C032B85BBF9696F9086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577731   (350018) от 21.09.2022
-
-Motley Crue & Vince Neil - Collection (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motley Crue это целая эпоха в мире музыки. В сборник вошли лучшие песни группы. Некоторые альбомы сохранил полностью, из каких то, что то вырезал. Так что, любители ранних полноценных альбомов проходите с камнями мимо. Начиная с 94 года, как и многие рокеры того времени, команда отравилась альтернативой и слушать их стало пыткой. Очухались ребята только к 2000 году. (   Читать дальше...   )01. Motley Crue - Wild Side
-02. Motley Crue - Girls, Girls, Girls
-03. Motley Crue - Dancing On Glass
-04. Motley Crue - Bad Boy Boogie(   Читать дальше...   )Жанр: RockПродолжительность: 05:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
 ```
 
 https://mybot314.ru/tekegram_catalog/

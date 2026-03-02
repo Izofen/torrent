@@ -1,3 +1,61 @@
+###  Публикация: 1443319   (1035779) от 28.01.2021
+
+Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vorbei (3:44)
+02. Nachtleben (3:39)
+03. Niemand (5:38)
+04. Raus Hier (3:18)(   Читать дальше...   )Жанр: Krautrock, Pop RockПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42658B7350E87B8DB9D38ABFD816C96C63645627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443526   (1035469) от 29.01.2021
+
+Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild and Free (04:44)
+ 02. Run (04:49)
+ 03. My Loveless Lullaby (05:04)
+ 04. Waltz for the Movies (01:43)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7808B8D21B55F0061B90B8A7D11842BD4770DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443990   (1034617) от 01.02.2021
 
 VA - 70's Rock Classics (2021) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ Ville Valo - Neon Noir (2023) [MP3|320 Kbps] <Gothic-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07505F8CB077FF489E8252EEFF3A4EB6ECAFCFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449610   (1029731) от 22.02.2021
-
-Die Vision - Torture (серия "Другие восьмидесятые") (1990) CD, Album, Reissue, Remastered, 2018, AMIGA, Sony Music [MP3|320 Kbps] <Goth Rock, Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Sunset
-02. Gimme All Your Love
-03. Take Your Body & Move
-04. I Love You(   Читать дальше...   )Жанр: Goth Rock, Post Punk, New WaveПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC8113FD0D48CF2858BE0ECC3086F6C64C75C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623079   (1029627) от 31.03.2023
-
-New Candys - Vyvyd (2021) [MP3|320 Kbps] <Alternative Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twin Mime
-02. Zyko
-03. Factice
-04. Begin Again(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BA191959659109BE5AB8A02B9D0F862D68DAB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

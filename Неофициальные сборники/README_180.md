@@ -1,3 +1,203 @@
+###  Публикация: 1203238   (788431) от 01.02.2018
+
+VA - Новинки С Разных Популярных MP3 Сайтов Vol.69 (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Arash feat. Helena  -  Dooset Daram (FIlatov & Karas Remix)  2:58
+002.  DJ Aligator feat. Talal  -  Agmal Hayaa (Beautiful Life)  3:36
+003.  Тати  -  Связки металлических ключей (Astero Club Remix)  4:20
+004.  Filatov & Karas feat. Лигалайз  -  Ещё один день (Denis First & Reznikov Radio Mix)  3:33(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 05:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891A7DD3839026A76A07BFBB19CA0DB5164720CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276197   (788398) от 15.01.2019
+
+Мальбэк Feat Сюзанна - Равнодушие (2017) Remix [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788398.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мальбэк - Равнодушие (Feat Сюзанна Symbolnatic) RemixЖанр: TrapПродолжительность: 00:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741BB8E9AB024E31837DCAF4F9BD724EC34494E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511859   (788373) от 22.11.2021
+
+Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)(1990) Bootleg 3cd-box [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paint It Black
+02. 2000 Light Year From Home
+03. Sympathy For The Devil
+04. Gimme Shelter(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F038E683F2B3AF1B0D2D86BC3CB1604D602A1642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203519   (788238) от 02.02.2018
+
+VA - Progressive Psychodelic Trance Vol.2 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Tone  -  Spirit Technology (Original Mix)  7:28
+02.  Static Movement & Mindwave  -  Sources (Original Mix)  8:14
+03.  Arunarush  -  Reactivate (Original Mix)  7:28
+04.  Juiced  -  Under The Rain (Original Mix)  5:20(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276409   (788231) от 16.01.2019
+
+VA - New Music Releases Week 52 of 2018 (2018) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788231.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Altson 45 - Back To You
+002. Clarv - Blizzard
+003. Savoir Adore - When The Summer Ends (Rac Mix)
+004. Bbno$, Y2k, Lewis Grant - Thankful(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3BA139987C8179F64F9469E282BDBBEC5898F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276413   (788222) от 16.01.2019
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maite Kelly - Die Liebe Siegt Sowieso
+02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
+03. Andrea Berg - Ja Ich Will (DJ Edition)
+04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276410   (788219) от 16.01.2019
+
+VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dzeko, Riggi & Piros, Veronica - Heaven (Feat. Veronica)
+002. Lost Kings, Wiz Khalifa, Social House - Don't Kill My High
+003. The Regrettes - Don't Stop Me Now
+004. Artlec - Void(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203595   (788200) от 02.02.2018
 
 VA - Elite Driving Trance Anthem (2018) [MP3|320 Kbps] <Uplifting, Vocal, Progressive, Emotional, Melodic>
@@ -539,209 +739,6 @@ VA - Uplifting Language Adaptation (2019) [MP3|320 Kbps] <Melodic, Emotional, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79631A645F1265399D613866713F59A0079C54E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276658   (787628) от 17.01.2019
-
-VA - Billboard Hot 100 Singles Chart 19.01 2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-002. Halsey - Without Me
-003. Ariana Grande - thank u, next
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B6C831E2C25E234DE041C0615FA77C9E9F6E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512295   (787471) от 24.11.2021
-
-VA - Beatport Electro House: Sound Pack #370 (2021) [MP3|320 Kbps] <Electro, House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Detroit Experiment - Think Twice
-002. Yves Murasca & Rosario - Time
-003. Marcelo Pm - Strangers
-004. Gerardo Moro - District(   Читать дальше...   )Жанр: Electro, House, ClubПродолжительность: 10:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B307CD60892564395280CF1863029F2AE1C35FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512330   (787469) от 24.11.2021
-
-VA - Synthwave Dream (Vol.03) (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787469.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karlo Wanny - Among Us
-002. Shock Therapy - You Were The Moon
-003. Koreless - White Picket Fence
-004. Quiqui - Everything About You(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7460E2D405625CD6595733C64529051BFA0852D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512363   (787468) от 24.11.2021
-
-VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Important - Except
-002. Sonic Art - Orbital Journey
-003. Rey&Kjavik - Zula
-004. 808 Lounge - Changes(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 08:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512356   (787467) от 24.11.2021
-
-VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Q-Green - Bubbles
-002. Hardchemist - Red Dragon
-003. Bearface - Live For Life
-004. Alex Tb - Cyberpunk(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512284   (787465) от 24.11.2021
-
-VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Divas Of Color - One More Time
-002. Quantum Divas - All Be Free
-003. Allovers & Masaki Morii - Addicted
-004. Nto X Monolink - Beyond Control(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512298   (787464) от 24.11.2021
-
-VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joseph Diaz - Funky Guitar
-002. Qlank - Badd
-003. Filter B - Tales From The Inside
-004. Joel Carry - Strong Enough(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13236CB64ADE3E4F2F73E39FC1F87D141E2FD12
 ```
 
 https://mybot314.ru/tekegram_catalog/

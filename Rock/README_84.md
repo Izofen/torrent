@@ -1,3 +1,32 @@
+###  Публикация: 1649294   (207839) от 28.07.2023
+
+The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) ROAR Records[MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (Remastered 2009) [03:33]
+02. Brown Sugar (Remastered 2009) [03:50]
+03. Miss You (Remastered) [04:49]
+04. Beast Of Burden (2009 Mix) [04:25](   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 02:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649761   (207684) от 29.07.2023
 
 Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 Kbps] <Rock, Folk, World, Country>
@@ -288,35 +317,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653938   (205923) от 18.08.2023
-
-VA - Abbey Road Reimagined – A Tribute To The Beatles (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Durga Mcbroom, Jackie Lomax, Snowy White – Come Together (04:00)
- 02. Charles Jones, Sonny Landreth – Something (03:42)
- 03. Roger Joseph Manning, Jr. – Maxwell’s Silver Hammer (03:39)
- 04. Eric Dover, Carmine Appice – Oh! Darling (03:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326F1CA6FDEAD337AB515D9B2831D137628FBF52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654327   (205803) от 20.08.2023
 
 VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
@@ -339,35 +339,6 @@ VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ECB36B229D217547B26DA4F86233B2DB7BA2839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653238   (205564) от 15.08.2023
-
-JJ Chardeau - Ombres And Lumieres: In Terra Cognita 2 - Europa 1: Occidentalis (2023) [MP3|320 Kbps] <Progressive Rock Opera>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Donibane Lohitzue (04:54)
- 02 - Eire (05:37)
- 03 - Iceland & Fire (03:03)
- 04 - Scandinavia (07:32)(   Читать дальше...   )Жанр: Progressive Rock OperaПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC52D649FD2424F70111605FCB41B127D2379856
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -739,6 +710,35 @@ VA - 100 Greatest Guitar Solos (2004) (Первая раздача Клуба)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AA13448771B235441F13E6DB4E667F0B9079556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588041   (191835) от 03.11.2022
+
+Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of New Orleans
+02. Janie, Don't Take Your Love To Town
+03. Midnight In Chelsea
+04. Ugly(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 01:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F970A15B229FD54A0F8E9F61A25B1F8F12680D
 ```
 
 https://mybot314.ru/tekegram_catalog/

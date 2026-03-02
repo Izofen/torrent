@@ -1,22 +1,25 @@
-###  Публикация: 1188120   (763185) от 01.02.2019
+###  Публикация: 1521936   (763661) от 04.01.2022
 
-Викинги / Vikings (2017) WEB-DL [H.264/1080p-LQ] (сезон 5, серии 1-20 из 20) OmskBird [AD]
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 4 (2019) [AAC|~349 Kbps] <Lounge, Chill Out, Downtempo>
 
->>След.
->>Сериалы с рекламой
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763185.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал рассказывает об отряде викингов Рагнара. Он восстал, чтобы стать королём племён викингов. Норвежская легенда гласит, что он был прямым потомком Одина, бога войны и воинов.Производство: Ирландия, Канада / World 2000 Entertainment, Take 5 Productions, Shaw MediaЖанр: боевик, драма, мелодрама, военный, историяРежиссер: Йохан Ренк, Киаран Доннелли, Кен ДжироттиАктеры: Клайв Стэнден, Гэбриел Бирн, Кэтрин Уинник, Джессалин Гилсиг, Джордж Благден, Густаф Скарсгард, Торбьорн Харр, Владимир Кулих, Донал Лог, Айван Кэй и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:46:00 серияРеклама: присутствуют голосовые вставки рекламы
+01. Impatient (Original Mix) (8:40)
+02. DJ Artak, Angel Falls - I'm Trapped in You (Rayan Myers Remix) (7:48)
+03. Rayan Myers, Alaera - Closed Your Door (Original Mix) (7:11)
+04. Borrowing (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DE5743F06D674CD3A485AB01FEBD4C6C97494F3
+magnet:?xt=urn:btih:D47C796ABCD4706AF8570640E8CDA9159071EE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279934   (763184) от 01.02.2019
+###  Публикация: 1521931   (763660) от 04.01.2022
 
-Windows 7 Professional SP1 x64 Game OS 2.3 by CUTA [Ru]
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 2 (2018) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
 
->>3
->>4
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763184.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Windows 7 PROFESSIONAL Rus SP1 x64 Game OS - это сборка, основанная на лицензионном образе Windows 7 PROFESSIONAL SP1 rus VL, в которую интегрированы обновления и применены настройки и твики для улучшения стабильности и увеличения производительности системы. Данная сборка отлично подходят для игрового компьютера и рекомендуется для установки на SSD, так как занимает (   Читать дальше...   )Язык интерфейса: Русский
+01. Equilibrium (Original Mix) (6:45)
+02. Found Tranquillity (Rework) (7:22)
+03. Amorousness (Original Mix) (6:40)
+04. Yearning (Original Mix) (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDC544222AF82A59570C017F00BF13F1BF2E59D4
+magnet:?xt=urn:btih:C24FF2DF9E1D0F9A41BB661C9F97626055959592
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214856   (763183) от 23.03.2018
+###  Публикация: 1521768   (763659) от 04.01.2022
 
-VA - This Wild West (2018) [MP3|320 Kbps] <Funk Blues, Rock Blues, Country>
+bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Peace (2:22)
+02. bcalm, Banks, Purrple Cat - Firelight (2:24)
+03. bcalm, Banks, Fletcher Reed - Comfort (2:18)
+04. bcalm, Banks, Fletcher Reed - Sleep Patterns (2:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo FiПродолжительность: 00:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A435D9ACD5347950F0FB31B3764E9A35D6DC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521929   (763658) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exalted to God (Original Mix) (5:25)
+02. Warm Heart (Original Mix) (6:37)
+03. Iris Dee Jay, Maria Opale - For You (Rayan Myers Remix) (4:12)
+04. Pleasant Calmness (Original Mix) (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CAFE0B2B1AFC0DFBADAA79702AE206D6F6E534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279682   (763657) от 01.02.2019
+
+Шон Иган | David Bowie: встречи и интервью (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрастное ограничение: 16+
+
+В этой книге собраны лучшие интервью с Дэвидом Боуи, которые он давал на протяжении почти всего своего творческого пути. Каждое из них – это один из этапов его невероятного путешествия через эпохи, образы, альбомы, хиты, каждое – возможность заглянуть через плечо гения поп-музыки. И во всех он невероятно точен и внимателен к собеседникам.Жанр: Биографии и мемуары, Зарубежная литература о культуре и искусстве, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673CF8E57B3C5588DC610743E3CC128D5353707F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279679   (763656) от 01.02.2019
+
+Крис Хит | Robbie Williams: Откровение (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Хит работал в тесном сотрудничестве с Робби Уильямсом в течение многих лет и в этой книге Робби выставляет свою жизнь в самом неприглядном виде, беспощадно перечисляя все свои промахи, недостатки и разочарования.Жанр: Биографии и мемуары, МузыкаПеревод: Александр БеляевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234477FF13092AACA6291D32BEDC99AC254F94B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280128   (763655) от 01.02.2019
+
+Telegram Desktop 1.5.10 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44182B95FC47A11CCE6CDD74BF5A47E97ED9C54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279945   (763654) от 01.02.2019
+
+Desktop Curtain 3.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Desktop Curtain - это простой инструмент, чтобы скрыть беспорядок на рабочем столе и помочь вам сосредоточиться на основной задаче. Это идеальный вариант для преподавателей, ведущих, писателей, разработчиков и кого-либо еще, кто ненавидит беспорядок и/или тем, кому необходимо делать скриншоты с чистых фоновых изображений.
+
+Зачем тратить время на перемещение файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2019Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA11EF5AAE1AA2DFFC44B4A2B33E7844BD35F93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280144   (763653) от 01.02.2019
+
+VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763183.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arthur Neilson — When It's Over
-02. Sunny Sweeney — Better Bad Idea
-03. The Cadillac Three — This Accent
-04. Heart & Feather — Cold Wind(   Читать дальше...   )Жанр: Funk Blues, Rock Blues, CountryПродолжительность: 03:07:27
+001. Teknova - Katyusha 2K19 (Melbourne Bounce Mix) 3:16
+002. Adam K & Soha - Need To Feel Loved (Extended Mix) 5:32
+003. Triplo Max - Shadow 2:57
+004. Scooter - Move Your Ass! (Noisecontrollers Remix) 3:27(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:18:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4CEF9CEFE09E2FB3968DE0BA8326B96B8B246BA
+magnet:?xt=urn:btih:836D1D0445EE56B9E5D2F0DAB507F846CC55052F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214873   (763182) от 23.03.2018
+###  Публикация: 1280072   (763652) от 01.02.2019
 
-Журнал | 4x4 Club №4 (235) (апрель 2018) [PDF]
+Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
 
->>Автомобили
->>Автомобильные журналы
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763182.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание представляет результаты испытаний новейших моделей полноприводников, захватывающие рассказы о путешествиях и приключениях в стиле 4х4, об ралли - и трофи-рейдах и джип-триале, о способах подготовки внедорожника для преодоления офф-роуда, повышения его мощности и управляемости.Жанр: Автомобильный журналФормат: PDF
+01. First World Problems 05:57
+02. Black Roses 02:38
+03. Breathe And Breathe Easy (The Everness Of Now) 03:27
+04. The Dream And The Dreamer 05:37(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:42:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04502C96165AE7F4076F6679FC0701E2455F9A06
+magnet:?xt=urn:btih:27DD3CE4884AD5CEB23CE7934A15879C908EEEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +280,279 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214716   (763181) от 23.03.2018
+###  Публикация: 1280065   (763651) от 01.02.2019
 
-VA - Fun Club (2018) [MP3|320 Kbps] <Reggae Fusion, Indie Dance, Groove, Nu-Disco>
+Privacy Eraser Free 4.47.0 Build 2768 + portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1F3692A67C01F6ED880F136F349E3FCE95A14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280082   (763650) от 01.02.2019
+
+НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рай
+02 - Проснись
+03 - Ау
+04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280099   (763649) от 01.02.2019
+
+Керри Борзилло | Nirvana: со слов очевидцев (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга отделит факты от домыслов и прояснит мифы и ложь, которые наросли на группе и ее членах, а также на беспокойной жизни ее вокалиста при помощи простой и прямой хроники, поденной фиксации их карьер и жизней.Жанр: Биографии и мемуары, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254BFB75BFEFA2BB30553B24493C39D457CBDF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280127   (763648) от 01.02.2019
+
+VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Minds - Broken (Fitness Version 135 BPM)
+02. Morgana - Ruin My Life (Fitness Version 135 BPM)
+03. Kyria - Party for One (Fitness Version 135 BPM)
+04. Kino - Money (Fitness Version 135 BPM)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EAFF7A029FEC1EF88CE2BE0858E735E05062CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280140   (763647) от 01.02.2019
+
+VA - Kontor Top Of The Clubs Vol.81 (2019) [MP3|320 Kbps] <Trance,House,Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prince Karma - Later Bitches 3:16
+02. Max David - Vibez 2:38
+03. Achtabahn - Boten Anna 2:50
+04. Calvin Harris & Sam Smith - Promises 3:31(   Читать дальше...   )Жанр: Trance,House,Club, DanceПродолжительность: 05:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3215621407BDC6937FDABEC2741E805D2E0C367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280007   (763646) от 01.02.2019
+
+Greed 3: Old Enemies Returning (2017) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дочь Гудвина Сара снова связывается с вами, и у нее есть плохие новости. Чудотворное исцеление ее отца снова находится под угрозой. Похоже, что старые враги доктора Гудвина вернулись в лабораторию понтонов, и на этот раз они даже готовы убить, чтобы взять на руки чудо-лекарство, которое лежит в стенах ныне покинутой лаборатории. С помощью Сары вам нужно найти правду (   Читать дальше...   )Тип издания: UnofficialРазработчик: Urchin GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D2C20FD98723A5F66934D8E3FEBEC8F825C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279989   (763645) от 01.02.2019
+
+Beirut - Gallipoli (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Die (03:16)
+02. Gallipoli (04:06)
+03. Varieties of Exile (05:27)
+04. On Mainau Island (02:13)(   Читать дальше...   )Жанр: Indie Folk, Alternative RockПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE0DBC23BF656C3D9334D3E26ABF06EE119D217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280001   (763644) от 01.02.2019
+
+VA - Elements Trance: Extended Mix (2019) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Kunnari - This Fire
+002. Fuenka - Lanesra (Original Mix)
+003. Adnane Touzani - Raikiri (Extended Mix)
+004. Mr. Greidor - Trancestation(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D3D70995219E34250871D2F5F7D77E759D9C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279919   (763643) от 01.02.2019
+
+Wondershare DVD Creator 5 v5.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
+Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2716E55E9B74CA433B955474E0C334E98E7DAAB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280162   (763642) от 01.02.2019
+
+VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763181.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Avicii - Lonely Together 3:02
-02. Dj Snake - A Different Way (Devault Remix) 3:36
-03. Kygo - Stargazing 3:57(   Читать дальше...   )Жанр: Reggae Fusion, Indie Dance, Groove, Nu-DiscoПродолжительность: 03:17:14
+CD 1:
+01. Ava Max - Sweet But Psycho 3:08
+02. HUGEL feat. Amber Van Day - WTF 2:41
+03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2EA29D79038FE42EE911B97585DC5D5D18348A7
+magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,141 +560,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214738   (763180) от 23.03.2018
+###  Публикация: 1280093   (763641) от 01.02.2019
 
-Журнал | Профиль №10 (март 2018) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B3496DA5E6DECFE614C9535C4B8FA4DEF54DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214753   (763179) от 23.03.2018
-
-VA - Club Night Vol.6 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763179.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Madison Mars & Caslin  -  All They Wanna Be (Original Mix)  2:48
-002.  W&W & Groove Coverage  -  God Is A Girl (Extended Mix)  4:10
-003.  Vicetone & Cozi Zuehlsdorff  -  Way Back (Original Mix)  3:29
-004.  MARUV & Boosin  -  Drunk Groove (Mike Tsoff & German Avny Remix)  4:37(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70C1D7449163440E03ECE536922A5505A79D646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214853   (763178) от 23.03.2018
-
-VA - Music And Wine Vol.1 (25 SoulSetters) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Butler  -  Jazzabel (Original Mix)  3:05
-02.  Daniele Soriani  -  Baleares (D-Soriani Jazzy Mix)  4:36
-03.  Velvet Dreamer  -  1000 Miles Away (Simon & Florzinho Remix)  7:12
-04.  Mo'jardo  -  Loose Change (Original Mix)  4:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7077D78305988C34DE462F5BF4A606B666E90CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214723   (763177) от 23.03.2018
-
-Векторный клипарт - Happy Easter holiday with eggs and bunny #14 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-С праздником Пасхи
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9182E392A9BDA598C22571EDC68E5592B7DC2142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214800   (763176) от 23.03.2018
-
-MediaInfo 18.03 [Multi/Ru]
+BestReminder v2019.02.01.11 Final [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763176.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MediaInfo предоставляет подробную информацию об аудио и видео файлах.
-Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду.
-Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.
-Показав сведения о файле, программа тут же посоветует, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:508DED302A71A1E41349CFB7F7FADCD7DE88184C
+magnet:?xt=urn:btih:513B83CF719D426A3D6DB89E6831838683745635
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,52 +589,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214778   (763175) от 23.03.2018
+###  Публикация: 1279952   (763640) от 01.02.2019
 
-Люди Икс: Первый класс / X: First Class (2011) HDRip [H.264] [MP4|1280x544]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о том, как сформировались профессор Ксавьер и Магнито, о процессе основания школы профессора для детей-мутантов и, наконец, о том, что же произошло между двумя закадычными друзьями и почему они расстались.Производство: США, ВеликобританияЖанр: Фантастика, Боевик, ПриключенияРежиссер: Мэттью ВонАктеры: Джеймс МакЭвой, Майкл Фассбендер, Кевин Бейкон, Роуз Бирн, Николас Холт, Лукас Тилл, Дженнифер Лоуренс, Калеб Лэндри Джонс, Зои Кравиц, Дженьюэри ДжонсПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (форсированные, полные)Продолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075FAA5CF8A6B7507D88D47A42AA7E8366403632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214702   (763174) от 23.03.2018
-
-SMPlayer 18.3.0 + Portable [Multi/Ru]
+Mozilla Thunderbird 60.5.0 Portable by PortableApps [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763174.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
-Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C2ED8673FFADA899F884408DADCE3253769F783
+magnet:?xt=urn:btih:73A440266B88B1D292C44816B8EFFF5419B2D9EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,28 +615,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214625   (763173) от 23.03.2018
+###  Публикация: 1280078   (763639) от 01.02.2019
 
-David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763173.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Watching for Nephele 3:55
-02. Serinus Rising 5:07
-03. Night Tide 6:29
-04. Diving Skywards 3:44(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:18:09
+01. Sola (3:24)
+02. Apaga la Luz (3:32)
+03. Le Pido al Cielo (4:07)
+04. Luis Fonsi & Ozuna – Imposible (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB1F9E576903B49C49E1D8D2B58348413ADF59D1
+magnet:?xt=urn:btih:BFA6AC37E87D10C99DCCC7CEC8B0392EF2C29C9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,28 +644,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214763   (763172) от 23.03.2018
+###  Публикация: 1280074   (763638) от 01.02.2019
 
-VA - Coffee Bar Lounge Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
 
->>Electronic
->>Easy listening
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763172.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763638.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Twentyeight feat. Tesz Millan  -  In My Arms (Original Mix)  4:30
-02.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
-03.  Chambre 19  -  La Pluie D'ete (Original Mix)  5:59
-04.  Weathertunes  -  Hymn Of Peace (Original Mix)  4:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:18
+1. Твоя девочка
+2. Без ума
+3. Под красной луной
+4. По приколу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91789E54CDEACF1797F3B866010BC94DF40F473F
+magnet:?xt=urn:btih:AFECDB9D2349F7058FC94439AD73509ED29F0567
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,142 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214749   (763171) от 23.03.2018
+###  Публикация: 1394141   (763637) от 05.07.2020
 
-VA - Vocal Trance Collection Vol.10 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Delacey - Destiny (Radio Edit)
-02. Standerwick & HALIENE - Deep End (Club Mix)
-03. Elypsis & Fenna Day - Who You Are (Extended Mix)
-04. Roman Messer & Betsie Larkin - Unite (Omnia Extended Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1140F7690F62F7F992071B0410FECFDF272C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214868   (763170) от 23.03.2018
-
-Журнал | Men's Health [Россия] №4 (апрель 2018) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men’s Health – главный мужской журнал во всем мире. Новости и статьи, советы экспертов и блоги, конкурсы и подарки. Всё про жизнь для современного мужчины.
-Основные темы: мужское здоровье и спортивная форма; физические упражнения и видео-энциклопедия фитнеса; секс и психология отношений; правильное питание и профилактика заболеваний; еда и рецепты; домашняя кулинария (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAB7D1940A44B621CA2F950CC232740C12CA3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214703   (763169) от 23.03.2018
-
-Мот - Какие люди в Голливуде (Или премия "Оскар" с субтитрами) (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763169.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Карты. Деньги. Две тарелки
-2. Побег из шоубиза
-3. Общество модных поэтов
-4. Ча-ча ленд(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D015CEBDF77732AC76D22C0CC01B5C20B4E96627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214762   (763168) от 23.03.2018
-
-VA - Cherry Blossoms Springtime Chill Vol 1 (Finest Ambient And Background Music To Relax) (2018) [MP3|320 Kbps] <Chillout, Ambient, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Artenovum  -  Garden Of Deep Moods (Mystic Sound Mix)  6:12
-02.  Jean Mare  -  Sine Cascading (Sunset Chill Mix)  4:24
-03.  Bernon  -  Cool Day Of April (Cosmic Chillout Mix)  5:26
-04.  Richard Bonnee  -  Shining Bright (Short Radio Mix)  6:15(   Читать дальше...   )Жанр: Chillout, Ambient, RelaxПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A772E590B413934ECE19BD76F2E3AE2C5081CFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214827   (763167) от 23.03.2018
-
-Фигурное катание. Чемпионат Мира 2018. Милан (Италия). Женщины. Короткая программа (21.03.2018) WEB-DL [H.264/720p-LQ]
+GridinSoft Anti-Malware 4.1.52.4980 RePack & Portable by 9649 (05.07.2020) [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763167.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763637.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 марта 2018 года, среда. 12:45 МСК
-Чемпионат Мира по фигурному катанию 2018 года. Милан (Италия)
-Женщины. Короткая программа
-Арена: Медиоланум Форум (Милан, Италия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:57:12
+GridinSoft Anti-Malware - антивирусная утилита, разработанная специально для удаления вредоносных программ без необходимости вручную править системные файлы и реестр. Обнаруживает и удаляет: шпионское и рекламного ПО, ПНП, трояны с удаленным доступом, интернет-черви. Она удаляет дополнительные системные изменения, которые осуществляют некоторые вредоносные программы, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:516DE3457D1DEDE40BFAEA9716F4DC75B7EFDD09
+magnet:?xt=urn:btih:9BD48BD0C4E3F42CB3EE67BE7C529719D6EC0A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,185 +699,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214568   (763166) от 23.03.2018
+###  Публикация: 1394606   (763636) от 05.07.2020
 
-Ю. П. Фролов | От инстинкта до разума (1952) [DJVU]
+Проекты - Motion Array - Island Slideshow - 44969 [AEP]
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763166.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763636.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор увлекательно и вместе с тем доступно излагает на высоком теоретическом уровне богатый научный материал, в котором он показывает роль нервной системы на разных ступенях эволюционного развития животных. Научно обосновывая единство животного мира и человека, автор вместе с тем убедительно показывает социальную специфику человека. Человек в своей деятельности руководствуется (   Читать дальше...   )Жанр: История, науковедение, биология, физиологияФормат: DJVU
+«Island Slideshow» - это яркий и солнечный шаблон After Effects, с реально снятыми кадрами на красивом острове с великолепными панорамами висящих рамок для фотографий, раскачивающихся на ветру. Этот шаблон содержит 10 заполнителей фото / видео и 10 редактируемых текстовых слоев.
+Прекрасный способ показать свои фото из путешествия или отпуска. Впечатлите свою аудиторию (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D3E4BC17D5B74CEB5D737721F978A74901DB322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214746   (763165) от 23.03.2018
-
-Вера Чиркова | Принцесса для младшего принца (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послушайте завершающую книгу серии про секретаря для младшего принца. Приключения героев продолжаются, и развязка близка…
-Покинув Землю, Иллира ле Трайд возвращается с приёмными родителями и названой сестрой в их родной мир. Однако граф Хингред ле Трайд, приёмный отец Иллиры, и члены его семейства оказываются перед выбором: отдать невинных на растерзание банде убийц (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 10:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19173FCB02C1061E9473BDDDE8D102C59DB7833C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214564   (763164) от 23.03.2018
-
-В. И. Громов | Из прошлого Земли (1951) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всегда ли Земля была такой, как теперь? Всегда ли в лесах росли знакомые нам деревья и водились такие же звери? Всегда ли был такой климат, как сейчас, и жили такие же люди? Если спросить об этом стариков, то некоторые из них, пожалуй, скажут, что раньше река была ближе к деревне или дальше от неё, что леса были обширней, дичи всякой в них было больше, что в реках (   Читать дальше...   )Жанр: История, науковедение, геология, палеонтология, археологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF727784CD00F6B5B08B546577861A77EF070C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319683   (763160) от 06.04.2011
-
-Робинзон Крузо (1946) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робинзон Крузо в силу обстоятельств вынужден отправиться в морское путешествие простым моряком. Но его звезда оказалась несчастливой. Корабль потерпел катастрофу, и Робинзон Крузо попадает на необитаемый остров. Впереди — долгие годы опасных приключений и борьбы за жизнь.Жанр: ПриключенияРежиссер: Александр АндриевскийАктеры: Павел Кадочников, Юрий Любимов, Анатолий Смиранин, Е. Саникидзе, В. ПавленкоПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1D961F6E25B1D80E031E9EC1486A83B7DF8346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319558   (763155) от 06.04.2011
-
-Журнал | Сабрина. Спецвыпуск №5. Узоры [2011] [JPEG]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал содержит схемы и условные обозначения для вязания на спицах различных узоров - ажурных, с косами, фантазийных.
-
-Официальный сайт издания - http://modnoerukodelie.ru/issues/knitting/4348/Формат: JPEG
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319191   (763152) от 06.04.2011
-
-Гарри Поттер и Дары смерти: Часть 1 / Harry Potter and the Deathly Hallows: Part 1 (2010) DVD-9 [Лицензия]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарри Поттера ждёт самое страшное испытание в жизни - смертельная схватка с Волан-де-Мортом. Ждать помощи не от кого - Гарри одинок, как никогда… Друзья и враги Гарри предстают в совершенно неожиданном свете. Граница между Добром и Злом становится всё призрачнее…Жанр: боевик, фэнтези, приключения, детективАктеры: Дэниэл Рэдклифф, Эмма Уотсон, Том Фелтон, Руперт Гринт, Хелена Бонем, Картер Рэйф, Файнс Клеманс, Поэзи Бонни, Райт Рис Иванс, Алан РикманПеревод: Дублированный (русский и украинский)Субтитры: Russian, English, Arabic, Hebrew, PortuguesПродолжительность: 02:20:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319336   (763148) от 06.04.2011
-
-Жизнь других / Das Leben der Anderen (2006) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто тысяч сотрудников, двести тысяч информаторов. Вместе они — щит и меч партии, знаменитое Штази. Их метод — подозрение. Жизнь других — их профессия.
-Популярный писатель и драматург Георг Драйман так бы и дожил до конца своих дней, обласканный вниманием благодарных читателей и абсолютно неинтересный для спецслужб, если бы не роман с известной театральной актрисой. (   Читать дальше...   )Производство: Германия, Франция / Arte, Bayerischer Rundfunk (BR), Creado Film, Wiedemann & Berg FilmproduktionЖанр: Триллер, драма, детективРежиссер: Флориан Хенкель фон ДоннерсмаркАктеры: Ульрих Мюэ, Себастьян Кох, Мартина Гедек, Ульрих Тукур, Томас Тиме, Ханс-Уве Бауэр, Фолькмар Кляйнерт, Матиас Бреннер, Чарли Хюбнер, Херберт КнаупПеревод: ДублированныйПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B08E69E0E7F5E505A8D8CF4294C6C8CBD8BED8
+magnet:?xt=urn:btih:E0E94FF598D04147E72C223B9E83F695F263A85E
 ```
 
 https://mybot314.ru/tekegram_catalog/

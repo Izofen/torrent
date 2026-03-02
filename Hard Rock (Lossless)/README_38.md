@@ -1,3 +1,67 @@
+###  Публикация: 1039260   (597624) от 31.07.2016
+
+Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Love (5:31)
+02. What Is and What Should Never Be (4:51)
+03. The Lemon Song (6:24)
+04. Thank You (5:01)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 0:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6837C619F5B0C9D55AE5DB7EA89A7B781EF7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526702   (597300) от 24.07.2012
+
+Crucified Barbara - The Midnight Chase (2012) [FLAC|Lossless]<Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_597300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Crucifier (3:25)
+2. Shut Your Mouth (4:04)
+3. Into the Fire (3:40)
+4. Rules and Bones (4:46)
+5. Everything We Need (3:17)
+6. If I Hide (4:23)
+7. Rock Me Like the Devil (3:46)
+8. Kid From the Upperclass (4:05)
+9. The Midnight Chase (4:05)
+10. Count Me In (5:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039011   (597160) от 31.07.2016
 
 Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition, Remastered, 2015 [FLAC|image+.cue]<Classic Rock, Hard Rock>
@@ -687,64 +751,6 @@ CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF169A075857817CC0999801C557A57B3AF896B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552253   (587664) от 20.05.2022
-
-Jizzy Pearl - Hell, CA (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Hot Minute (03:41)
-02. Acid Babe (03:51)
-03. Gonna Take You Higher (04:02)
-04. Soul Mama (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA39FCEC8CA0F39B54F844DC2112CD10D76A71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301114   (587149) от 09.05.2019
-
-Whitesnake - Flesh & Blood (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good To See You Again
-02. Gonna Be Alright
-03. Shut Up & Kiss Me
-04. Hey You (You Make Me Rock)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDCFEEB428A2263086E03BFB60F65BB14B55C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

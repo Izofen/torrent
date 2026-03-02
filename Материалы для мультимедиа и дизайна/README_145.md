@@ -1,3 +1,32 @@
+###  Публикация: 1535706   (681909) от 08.03.2022
+
+3D print - MyMiniFactory - Jalissa - Miniature [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модель для настольных ролевых игр «Джалисса»:
+
+- версии 32 мм и 75 мм
+- одетая/топплесс/голая(   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6B94B7668C6A6A0FA6F5BA9B954CBC4992370D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535828   (681903) от 08.03.2022
 
 3D print - Cast n Play - Kings Castle - DnD Miniatures [STL]
@@ -647,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E8EAC46AF7A0541C4AD94116F2BBAB658F759C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508575   (678942) от 10.06.2012
-
-Растровый клипарт - Миры Lemmy-X [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы финского фотохудожника Lemmy-XРазрешение файлов: 1024х819 - 2000х2000Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CC32CAD861B495810B4484AB481A015BF274E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

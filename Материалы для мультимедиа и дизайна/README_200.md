@@ -1,3 +1,33 @@
+###  Публикация: 532818   (533877) от 09.08.2012
+
+Groove Monkee - MIDI Drum Loops[MIDI|EXE][ISO][английский]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Groove Monkee - MIDI Drum Loops - обширная коллекция профессиональных барабанных и перкуссионных петель в формате MIDI.
+
+- Производитель: Groove Monkee
+- Год выпуска: 26.07.2012
+- Формат: MIDI, EXEНазвание программы: Groove Monkee - MIDI Drum LoopsЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926597   (533302) от 10.08.2015
 
 Векторный клипарт - Забавный муравей / Funny Ant [EPS]
@@ -661,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EA6A3D8FCE80773B7076EF373BBAEBE91CE69DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312731   (530616) от 05.07.2019
-
-3D модели - SQUIR - Audi RS6 sedan 2015 [Mental Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530616.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки  AudiФормат: Mental Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5727D644EB999D280C868681FB86AE7BAB0E45B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

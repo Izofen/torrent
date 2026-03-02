@@ -1,3 +1,32 @@
+###  Публикация: 1411795   (423159) от 27.09.2020
+
+VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lo Blow - New Heirs
+002. Stillsuit - At The Speed Of Light
+003. Redline - Stand And Fight
+004. Only Attitude Counts - The Mirror(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 08:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200831B476CD2C52EB1166E1BC3EC49F7A5853BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411709   (422610) от 27.09.2020
 
 H.E.A.T - We Will Never Die (2020) Compilation, 2CD [MP3|320 Kbps] <Hard Rock>
@@ -716,35 +745,6 @@ VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413982   (406811) от 06.10.2020
-
-VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406811.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Disembodied - Burning Cupid
-002. Simbiose - Realidade
-003. Diploid - Dissolve Myself
-004. Skullcrack - What Did You Expect(   Читать дальше...   )Жанр: Hardcore, Hard Rock, MetalПродолжительность: 09:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC07ED411AFC28BDB98042EEFF0D8D8098F738E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

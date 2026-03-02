@@ -1,3 +1,177 @@
+###  Публикация: 1141815   (644859) от 13.06.2017
+
+VA - Trance Hits Top 20: 2017-06 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Susana - Only Summer Knows  4:12
+02.  Shinovi - Indian Summer  3:03
+03.  Mark Sherry - Gravitational Waves (Marco V Timelapse Remix)  3:47
+04.  Rafael Osmo - Renaissance (Giuseppe Ottaviani Remix)  2:55(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1474CFEF542B4DA0368C1D1218D481C5B4FD473B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142054   (643109) от 14.06.2017
+
+VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Air-T - Moments Of Life (Radio Drive Mix)  3:09
+02.  Philip Mayer - Darkside (Radio Edit)  4:04
+03.  Surisan - Where Have You Gone (Trancephonic Radio Edit)  3:07
+04.  DJ Rosso - I Will Try (Radio Edit)  3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C0C4ACF098D501C9666A93F5B8BA9A14444C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292770   (643085) от 31.03.2019
+
+VA - Back To The Trance (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Source - S.O.S. (Eddie Lung Remix)
+02. Mahaputra - I found you
+03. Paul Cry - Velvet (Anyosel Remix)
+04. Ula - Meruem (Icedream Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4FB309DB4D15D475B5AF4E888F53A7806CE8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228074   (641206) от 29.05.2018
+
+Guido Hermans - Against the Tide (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Would Do Without Sound? (Intro Track)
+02. Once Upon A Time in Outer Space (Original Mix)
+03. Creepy Business (Original Mix)
+04. Until We Meet Again (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5E3E5EDA2D6144D8E064951D50AE7E7741EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228051   (641204) от 29.05.2018
+
+VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beyond Vision - Mesmerized (Ibiza Trance 2018 Exclusive)
+02 Dj K-Mixx - Nocturnal Bliss (Ibiza Trance 2018 Exclusive)
+03 Marcel Woods - Lemon Tree (Daxson Remix) (Ibiza Trance 2018 Exclusive)
+04 Spark, Shade - Not Even Close (Tony Day Remix) (Ibiza Trance 2018 Exclusive)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8916A0A26EDDF79F02B583F545DFC51A8D6721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228056   (641203) от 29.05.2018
+
+VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beat Service & Cathy Burton - Love Is Your Home (Radio Edit)
+02 Aurosonic & Cathy Burton & AxelPolo - Loving Overflow (Radio Edit)
+03 Cathy Burton & Omnia - Hearts Connected (Radio Edit)
+04 4 Strings & Cathy Burton - Safe In The Storm (Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C242258359EFBACE451496020C51178F67D10AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228255   (639411) от 30.05.2018
 
 VA - Redux Frankfurt Selection (Mixed by A-Tronix & Sven E) (2018) [MP3|320 Kbps] <Trance>
@@ -571,180 +745,6 @@ VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F247EF78257DC98337DC4CE00A009E2EC528727B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230348   (617386) от 11.06.2018
-
-VA - Russian Trance 2018  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - Forever (Extended Mix)
-02. Ruslan Radriges & Twin View - Siberia (Original Mix)
-03. Feel - The Nutcracker (Extended Mix)
-04. Elite Electronic & Sandro Mireno - Heaven Song (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 04:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6626EFA20606F9011D920DD843D468DB5509F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295801   (617017) от 14.04.2019
-
-VA - Black Hole Trance Music (04-19) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix) 06:52
-02. Dustin Husain - Hour Of Twilight (Extended Mix) 07:15
-03. Eddie Murray feat. Veronica Moran - Adrift (Extended Mix) 06:43
-04. Formal One - Be Like Me (Extended Mix) 06:15(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DD0C7E256DF3A66BEA6BF488B5ED7BCD97752B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230457   (615710) от 12.06.2018
-
-Syn Drome - Silence Vol. 40 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Syn Drome - Deserted City (Original Mix)
-02.Syn Drome - Afeeliya (Original Mix)
-03.Syn Drome - Dilemma (Original Mix)
-04.Syn Drome - Gravity (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DCD864850527FB52AB1C916190D021D5AF4475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545426   (614688) от 19.04.2022
-
-VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XiJaro & Pitch - Rescue Me (Extended Mix) [07:18]
-02. Cosmic Gate - Retrospection (Extended Mix) [06:51]
-03. Paul Ryan - Stars (Solarstone Extended Retouch) [06:55]
-04. Activa - Return to Life (Roman Messer Extended Remix) [06:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D07DC86E5BC295E0C22AFFAAC57EECA712BBC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684903   (614182) от 31.07.2013
-
-VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Always Loved, Never Forgotten - The Day Will Come (Original Mix)
-02. Robert Lyttle - Never Forget (Sean Murphy Remix)
-03. RAM - RAMplify (Original Mix)
-04. Ico - And She Made It All Of Light (Original Mix)(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 204:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF96E6F0077A31B08E5B2722490B7D054A2EABE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296309   (613574) от 16.04.2019
-
-VA - Practikally Forbidden Vol. 1 (Mixed by Nathan Revely & Ashley Bradbury) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Revely - Practikally Forbidden Vol. 1 On The Beach (Continuous DJ Mix)
-Practikally Forbidden Vol. 1 On The Beach:
-01. Christopher Corrigan - No Winter (Original Mix)
-02. DJ Marko feat. Future State - Sunrise (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2ADCD750E185653B45D80126738E10E9E26E495
 ```
 
 https://mybot314.ru/tekegram_catalog/

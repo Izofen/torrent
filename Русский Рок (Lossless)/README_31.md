@@ -1,3 +1,61 @@
+###  Публикация: 1412475   (417919) от 29.09.2020
+
+Аквариум - Песни Джорджа (2020) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пой, Пой Лира
+2. Хорал
+3. 15 Голых Баб
+4. Менуэт Земледельцу(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634D1BFEE473933D760D6FAB1808CAD33CFE7A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710521   (416095) от 14.10.2013
+
+Мара - Почувствуй разницу (2013) 2CD [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_416095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro   (0:58)
+02.  Новое время   (2:51)
+03.  Angel Schlesser   (4:07)
+04.  Невзаимная любовь   (3:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E2DCCBC34ADA9CEB3346FFC18CF3480213368F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 146816   (414743) от 19.10.2009
 
 Аквариум - Пушкинская 10 (2009) [WavPack|lossless]<rock>
@@ -713,64 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252869   (388026) от 07.10.2018
-
-Сымон-Музыка - Сымон-Музыка (2011) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сымон-Музыка (5:21)
-02. Разважанне Аб Смерцi (3:55)
-03. Родны Край (3:35)
-04. Крыж Няволi (4:22)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8F90C24DFBFDD793E9C8A2FEB82E8154653786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574075   (387958) от 04.09.2022
-
-Мария-Режина - 4 альбома (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'N' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Золотой капрал
-02. Королева песков
-03. Распад
-04. Голем(   Читать дальше...   )Жанр: Hard 'N' HeavyПродолжительность: 02:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DFC993C3D23772516C06911D5A188FBCA78767
 ```
 
 https://mybot314.ru/tekegram_catalog/

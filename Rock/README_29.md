@@ -1,3 +1,67 @@
+###  Публикация: 207073   (723188) от 05.06.2010
+
+SAM GOPAL - Escalator (1969) [MP3|320 kbps]<Old Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_723188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Embrace (3:20)
+02. The Dark Lord (3:40)
+03. The Sky Is Burning (2:30)
+04. You're Alone Now (3:41)
+05. Grass (4:03)
+06. It's Only Love (4:18)
+07. Escalator (2:49)
+08. Angry Faces (4:03)
+09. Midsummer Night's Dream (2:14)
+10. Season Of The Witch (4:27)(   Читать дальше...   )Жанр: Old Psychedelic RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218729   (721385) от 10.04.2018
+
+Mgzavrebi - Krebuli (The Best) (2018) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Me Movigone
+2. Gaigvidza Bunebam
+3. Dzala Ertobashia
+4. In Vino Veritas(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D69FB90E0DCB748E0BF1A192D8F0290C9DE8F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024021   (719841) от 07.06.2016
 
 Pink Floyd - Wall In Progress 1978-1979 (1979) [MP3|320 кб/с] <Progressive rock, Art rock>
@@ -681,64 +745,6 @@ Trapeze - Medusa (1970) Remastered, 1994, Threshold Records [MP3|320 кб/с] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3932C231AD79DBF457C483C865BBC0C10B198395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533528   (705180) от 24.02.2022
-
-Beth Hart - A Tribute To Led Zeppelin (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705180.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whole Lotta Love
-2. Kashmir
-3. Stairway To Heaven
-4. The Crunge(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8F452F4DF33A3C4F6E34B6A006E31184FE8A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220383   (704488) от 19.04.2018
-
-Blackball Bandits - Confrontation on the Extraterrestrial Highway (2016) EP [MP3|320 Kbps] <60's Surf Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Along Highway 375
-02. Azteca Verano
-03. Slalom Under the Pier
-04. Escape in Durango(   Читать дальше...   )Жанр: 60's Surf Rock, InstrumentalПродолжительность: 00:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CFBC11BC7F623BE9313900E6E623032DAC70D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

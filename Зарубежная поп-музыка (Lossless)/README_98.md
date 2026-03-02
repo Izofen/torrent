@@ -1,3 +1,119 @@
+###  Публикация: 1809511   (9739) от 31.07.2025
+
+Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Wants To Dance With Me (03:19)
+02. Take Me to Your Heart (03:31)
+03. I Don’t Want To Lose Her (03:35)
+04. Giving Up On Love (04:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2D2D9F70A1A0EC6EA45B3F67DD73E42A1F2D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809470   (9735) от 31.07.2025
+
+VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Medley And Jennifer Warnes - (I've Had) The Time Of My Life (04:50)
+02. The Ronettes - Be My Baby (02:40)
+03. Patrick Swayze - She's Like The Wind (03:53)
+04. Eric Carmen - Hungry Eyes (04:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811217   (8936) от 08.08.2025
+
+Thomas Anders - …Sings Modern Talking In the Middle of Nowhere (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8936.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Geronimo's Cadillac (Thomas' Version) (3:19)
+02. Riding on a White Swan (Thomas' Version) (3:55)
+03. Give Me Peace on Earth (Thomas' Version) (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7C52E9592031817538A2A07F7C220197A9074A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811494   (8680) от 10.08.2025
+
+VA - wake me up to 80s music (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roxette - The Look (3:57)
+02. Madonna - La Isla Bonita (4:02)
+03. Pet Shop Boys - It's a Sin (4:59)
+04. Fleetwood Mac - Everywhere (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70446614A6C610E9A68624DBA4FC45E63D44429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812600   (7769) от 15.08.2025
 
 Mylene Farmer - 86/97 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>

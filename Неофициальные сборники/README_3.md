@@ -1,3 +1,206 @@
+###  Публикация: 1845958   (1051073) от 04.01.2026
+
+VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Misha Miller & Alex Velea - Bam Bam (2:30)
+002. David Guetta & Sia - Beautiful People (3:07)
+003. Rudimental & Khalid - All I Know (2:56)
+004. Zerb & Ty Dolla Sign & Wiz Khalifa - Location (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846021   (1051027) от 04.01.2026
+
+VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyriq - Oh My Love (2:56)
+02. Katy Perry - bandaids (3:08)
+03. Полина Гагарина - Полина (3:30)
+04. Taylor Swift - The Fate of Ophelia (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845785   (1051005) от 03.01.2026
+
+VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Drive - Mrclaps  - (01:52)
+ 002 Gasoline Tongue - Noah Vale  - (02:43)
+ 003 Berliner Suffmarsch - Krawallonkel  - (04:14)
+ 004 County Queen - Jay Rosaa  - (04:58)(   Читать дальше...   )Жанр: Hard-Rock, Metal, CoreПродолжительность: 11:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3483B0A3AD94B8EC8CE88C3E69B12E72E83E696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845711   (1050927) от 06.01.2026
+
+VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария - Гордиев узел (5:15)
+02. Radio Tapok - Фрау чёрная смерть (3:37)
+03. Casual, Глобалис - Не жалей ни о чём (3:57)
+04. ГУДТАЙМС & Найк Борзов - Инопланетный гость (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 05:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845572   (1050789) от 02.01.2026
+
+Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - This Heart is Weary
+02 - Stay
+03 - When I’m No Longer Here
+04 - I Miss You So(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76612176BCBFE76C6184AFCD600E0542D371A9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845537   (1050788) от 02.01.2026
+
+Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Whispers in the Wind
+02 - My Foolish Heart Never Saw His Devotion
+03 - Hold Me Close, Don't Ever Let Go
+04 - At the End of the Wait(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE99E37B7DD8AEE82C04625120A4508F13D51C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845519   (1050787) от 02.01.2026
+
+VA - Blues compilation part 3 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Morgan Luna - Low River Prayer
+02 - Ai - Don't Let Me Go
+03 - Ai - The Water Still Knows Me
+04 - Ai - Where the Night Still Hurts(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80D79FB9A66DB6B92C4C9168DA6AA4F8AC11B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845195   (1050786) от 02.01.2026
 
 Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
@@ -542,209 +745,6 @@ Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844397   (1050328) от 29.12.2025
-
-VA - Merry Christmas At the Hammond Organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Denzel Sachs - Have Yourself A Merry Little Christmas [04:11]
-002. Jan Verkroost - Jingle Bells [02:33]
-003. Leigh Harline - When You Wish Upon [04:13]
-004. George Conedy - O Come All Ye Faithful [03:26](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 08:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEE1ABFB093D649D466FE828166E07581F82A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844729   (1050242) от 27.12.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAYE - WHERE IS MY HUSBAND! (3:16)
-02. Sabrina Carpenter - Tears (2:40)
-02. sombr - 12 to 12 (4:03)
-04. Ravyn Lenae - Love Me Not (3:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4321B881A160A1291079E75031225E15E5BD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844360   (1049992) от 26.12.2025
-
-Chris Rea - This is Chris Rea (2025) [MP3|320 Kbps] <Blues, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing to Fear (9:05)
-02. It's All Gone (7:27)
-03. Auberge (7:17)
-04. Curse of the Traveller (6:23)(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 03:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D41B3F4BD2244B1907DA7DBA5E85052793081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844451   (1049948) от 26.12.2025
-
-VA - Music News For Forum vol.153 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049948.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AILygoria - Надо танцевать (03:35)
- 002. 4k - Раскатали-закатал (03:15)
- 003. 5opka - Слава Боссу (03:06)
- 004. 6adman - 6 am in iran (01:45)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22CBE80E96E94E7DA283F1FCF3B3B4BC8EC83EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844134   (1049906) от 24.12.2025
-
-VA - No name compilation part 32 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - Roots Run Deep
-02 - Ruby Sinclair - Rain Keeps Talking
-03 - Evelyn Vance - I Got My Life
-04 - Ruby Sinclair - Sing Me a Song(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B0A0BE67C65CE0FA1E01B0A8A2C20D62ABCB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843774   (1049793) от 23.12.2025
-
-VA - No name compilation part 31 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Morgan Luna - Her Echo
-02 - Ai - Golden Threads
-03 - Ai - Indigo Embers
-04 - Morgan Luna - Hard Ground Mercy(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7562EAA9E04CB82B25C31AE22BFBFBD366FE698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843891   (1049779) от 23.12.2025
-
-VA - Муз. 2025 by Yuridar [MP3|320 Kbps] <Rock, Pop, Blues, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alibi Music - A Perfect Night
-02. Brent Amaker & The Rodeo - Man in Charge
-03. Charley Crockett - Run Horse Run
-04. Downriver - A Sad Story(   Читать дальше...   )Жанр: Rock, Pop, Country, OtherПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AC5D30AAEE0ACE7FF2E90324A06A4812A8A342
 ```
 
 https://mybot314.ru/tekegram_catalog/

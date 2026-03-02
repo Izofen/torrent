@@ -55,32 +55,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 162223   (987372) от 06.01.2010
-
-Joe Hisaishi - Nausicaa of the Valley of the Wind (1984) [Flac|Lossless]<OST>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Kaze no Tani no Naushika (Opening)Жанр: OST
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971713   (985678) от 03.01.2016
 
 The Herbalist OST (2015) [FLAC|Lossless|WEB-DL]<OST, Score>
@@ -103,105 +77,6 @@ The Herbalist OST (2015) [FLAC|Lossless|WEB-DL]<OST, Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7299D404E57523E7CE0C8D4BE40CABD57C7DB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740965   (984270) от 02.01.2014
-
-K-On! OST / Кэйон! OST (TV 1, TV 2, Movie) [2009-2012][MP3|320 kbps][55CD]<OST+OP+ED+Singles+Character Songs>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Cagayake!GIRLS (Digital Radical remix)
-02 - Don't say ''lazy'' (Siestail-crazy-rmx)
-03 - Fuwa Fuwa Time (High School Dance Party Remix)
-04 - Don't say ''lazy''(Akazukin-chan Goougokoro remix)(   Читать дальше...   )Жанр: Anime OSTПродолжительность: 38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB29D2FE10B2CCA974686EB4559CF1CAC81823BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611639   (981027) от 05.02.2013
-
-Jormungand OST / Jormungand: Perfect Order OST (2012) [MP3|320 CBR]<OST+OP&ED_Singles+Special_CD>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - L'ambition melodique
-02 - Gentle enemy
-03 - Jormungand - cruel mix
-04 - Memories of full moon
-05 - Funny jewelry
-06 - Training
-07 - Explain music
-08 - Sense of crisis
-09 - BookMan
-10 - R(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 1:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9FC92304D63B991CD110BA68C1B46236AC8656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164927   (979763) от 12.01.2010
-
-Yami to Boshi to Hon no Tabibito / Ями, Шляпа и те, кто путешествуют по книге [2003][FLAC]<OST>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Dream-Shadows (夢影深遠) (5:39)
-02. Scarlet Light of Dawn (黎明緋光) (4:17)
-03. Yellow Mist Upon the Ridge (稜線黄霞) (3:51)
-04. Clear Drops in the Azure Sky (碧空雫澄) (4:46)
-05. Blue Flow of Stardust (星屑藍流) (4:36)
-06. Brilliant Marks of Heat Haze (陽炎赫符) (3:37)
-07. Purple Clouds and Colorful Waves (紫雲彩波) (3:35)
-08. Sleep Adorned by Flowery Silhouettes (花影睡粧) (3:22)
-09. Sky-Mist in the Arctic Night (白夜天霧) (2:02)
-10. Cycle of the Moon and Rainbow (虹命月生) (3:51)Жанр: Anime OST
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -737,6 +612,115 @@ Koisuru Asteroid ED Single - Minori Suzuki - YozoraТип издания: OST (O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EE8A0B2671691415D633FCF37B3E667D835112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371100   (893201) от 29.03.2020
+
+Koi Suru Asteroid OST (2020) [FLAC|tracks] <OP+ED>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toyama Nao - Aruite Ikou! (Koisuru Asteroid OP)
+Koisuru Asteroid ED Single - Minori Suzuki - YozoraТип издания: OST (OP&ED)Продолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A6847D334FC7C2FC8DE800ABA6168DA0FCDB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869466   (891029) от 15.02.2015
+
+Kantai Collection Anime OST (2015|FLAC) <OP|ED>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(150218) Kantai Collection ED Single — Fubuki (Shiena Nishizawa)
+(150218) Kantai Collection OP Single — Miiro (AKINO from bless4)Жанр: J-PopПродолжительность: 00:00:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AD0353DC80D0C9E3C88A7ECE9EB1941A5A8B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869467   (887825) от 17.02.2015
+
+Rakuen Tsuihou -Expelled from Paradise- OST (2014|FLAC) <OST>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+(141112) Rakuen Tsuihou -Expelled from Paradise- Main Theme — EONIAN (ELiSA)
+(141210) Rakuen Tsuihou -Expelled from Paradise- Original Soundtrack (Wataru Maeguchi)Жанр: J-PopПродолжительность: 00:01:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1080FBCCDF79E5B68F01338C9DD3D84C8118B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372056   (886608) от 02.04.2020
+
+Oshi ga Budoukan Itte Kuretara Shinu | Если мой кумир споёт на Будокане, то я умру от счастья (2020) [MP3|320 Kbps] <OP+ED+Character Song>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раздача с ОСТами по Oshi ga Budoukan Itte Kuretara Shinu, пусть сам ОСТ только во флаке, зато всё остальное в мп3.  :mrgreen:Производство: Pony CanyonЖанр: OSTПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE3368002ED8FFC9383C6ECE175A5E926D5B677
 ```
 
 https://mybot314.ru/tekegram_catalog/

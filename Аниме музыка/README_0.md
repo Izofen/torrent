@@ -1,147 +1,3 @@
-###  Публикация: 1371100   (893201) от 29.03.2020
-
-Koi Suru Asteroid OST (2020) [FLAC|tracks] <OP+ED>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toyama Nao - Aruite Ikou! (Koisuru Asteroid OP)
-Koisuru Asteroid ED Single - Minori Suzuki - YozoraТип издания: OST (OP&ED)Продолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A6847D334FC7C2FC8DE800ABA6168DA0FCDB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869466   (891029) от 15.02.2015
-
-Kantai Collection Anime OST (2015|FLAC) <OP|ED>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(150218) Kantai Collection ED Single — Fubuki (Shiena Nishizawa)
-(150218) Kantai Collection OP Single — Miiro (AKINO from bless4)Жанр: J-PopПродолжительность: 00:00:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AD0353DC80D0C9E3C88A7ECE9EB1941A5A8B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640494   (888504) от 06.04.2013
-
-No.6 - Complete Soundtrack (OP, ED, OST) (2011) [MP3|320 kbps]<Soundtrack>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Meguriai ~Piano~ - 02:07
-02. Alone Without You - 02:19
-03. Revenge Of The Rat - 02:35
-04. Master Plan - 02:08
-05. Yagate Anta wa... - 02:09
-06. Soshite Kimi wa... - 02:16
-07. Rou - 02:30
-08. Manhunt - 02:19
-09. Buna no Mori de - 02:15
-10. Correctional Facility - 02:03(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984F96BEFAB7019141DF53CC09CD32C55BBC77A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869467   (887825) от 17.02.2015
-
-Rakuen Tsuihou -Expelled from Paradise- OST (2014|FLAC) <OST>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-(141112) Rakuen Tsuihou -Expelled from Paradise- Main Theme — EONIAN (ELiSA)
-(141210) Rakuen Tsuihou -Expelled from Paradise- Original Soundtrack (Wataru Maeguchi)Жанр: J-PopПродолжительность: 00:01:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1080FBCCDF79E5B68F01338C9DD3D84C8118B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372056   (886608) от 02.04.2020
-
-Oshi ga Budoukan Itte Kuretara Shinu | Если мой кумир споёт на Будокане, то я умру от счастья (2020) [MP3|320 Kbps] <OP+ED+Character Song>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздача с ОСТами по Oshi ga Budoukan Itte Kuretara Shinu, пусть сам ОСТ только во флаке, зато всё остальное в мп3.  :mrgreen:Производство: Pony CanyonЖанр: OSTПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE3368002ED8FFC9383C6ECE175A5E926D5B677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369081   (886507) от 02.04.2020
 
 Higurashi no Naku Koro ni | Когда плачут цикады (2006-2016) [FLAC|Lossless|tracks] <OST+OP+ED+Character Song>
@@ -242,32 +98,6 @@ Cross Ange -Tenshi to Ryuu no Rondo- OST (2014-2015|FLAC) <OP|ED>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C87F45081A66676CAF12A38DDC351AD6A368D27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304935   (856027) от 07.03.2011
-
-The Seatbelts & Yoko Kanno & V.A. - OST Cowboy Bebop Collection (1998-2004) [MP3|192-320 kbps]<Bebop/Blues/Jazz/Rock/Folk/Electronic>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues, Jazz, RockПродолжительность: 10:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F9E8C453C797134C683F5EA075D78DB2D999F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,6 +541,179 @@ The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon 25th Anniversary 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B40AD6FDA9B4FE3BD0ED1F3C87F72FB2436E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280472   (760198) от 03.02.2019
+
+The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon Classic Concert Album 2018 (2018) [MP3|320 Kbps] <Instrumental, Pop>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.アバンBGM (0:20)
+02.ムーンライト伝説 (5:51)
+03.セーラームーン劇伴(BGM)音楽メドレー (13:17)
+04.同じ涙を分け合って (1:57)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C4FB07943E3D85A4D4002793041DCCEAA2956A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280663   (758498) от 04.02.2019
+
+V.A. - Sailor Moon The 25th Anniversary Memorial Tribute (2018) [MP3|320 Kbps] <OST, JPop, Pop>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.LiSA - ムーンライト伝説 (2:44)
+02.月蝕會議 - ラ・ソウルジャー(La Soldier) (4:22)
+03.BiSH - Moon Revenge (3:01)
+04.石田燿子 - 乙女のポリシー (3:16)(   Читать дальше...   )Жанр: OST, JPop, PopПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A24305BCBD8DE40333DD518C33A8E43CE25019E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394533   (758379) от 08.07.2020
+
+Trinity Seven | Святая семёрка [2014-2019][MP3|320 Kbps][18CD] <OST+OP+ED+Character Song>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник OST'ов по Trinity Seven, как сериалу так и фильмам.Производство: avex pictures (Label), avex pictures Inc. (Manufacturer, Distributor)Жанр: OSTПродолжительность: 13:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779EDF8BA4E80C40A862A895AB08D4F368B200BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781404   (756046) от 28.04.2014
+
+Frontier Aja - Koumajou Densetsu OST (2009-2011) [FLAC|Lossless] <OST, Touhou, J-Rock>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756046.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:00] 01. 柳 英一郎 - afraid -evening style-
+[02:27] 02. 柳 英一郎 - Scarlet Tears -afternoon style-
+[04:17] 03. 柳 英一郎 - IZAYOI
+[03:31] 04. 柳 英一郎 - Last Phantasm
+[04:55] 05. 癒月 - fatal bile
+[04:57] 06. 吉河 順央 - 紫焉
+[02:01] 07. 茶太 - afraid (Short Edit)
+[04:51] 08. 柳 英一郎 - afraid(Instrumental)
+[05:32] 09. 柳 英一郎 - 薔薇殺しのカーミラ(Instrumental)
+[04:55] 10. 柳 英一郎 - fatal bite(Instrumental)(   Читать дальше...   )Жанр: Touhou, Instrumental, Vocal, Doujin Ongaku, J-RockПродолжительность: 00:00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095796D1F0BB216A8FDABD865C0F39939C81696F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399145   (734146) от 29.07.2020
+
+Oedo wa Nemurenai! OST (1993) [FLAC|Lossless|tracks] <OST>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734146.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:03] 01. 金沢 明子 — 東京音頭
+[00:16] 02. めいなCo. — お江戸はねむれない! 菊組参上
+[05:16] 03. めいなCo. — 恋の花街吉原育ち　薄雲太夫ここにあり (   Читать дальше...   )Тип издания: CommercialЖанр: OSTПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C0D7EF8F5124AB7998AC60D31D12ED5C89FC61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025927   (705593) от 14.06.2016
+
+Kokoro ga Sakebitagatterunda. (Kokosake) / The Anthem of the Heart / Сердцу хочется петь (2015) [MP3|320 Kbps] <OST>
+
+>>Аниме музыка
+>>Аниме OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705593.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Дзюн была весёлой, счастливой девочкой, но как-то раз она сказала нечто такое, из-за чего её семья распалась. Тогда Дзюн явилось волшебное разумное яйцо и лишило её способности говорить, чтобы она больше никому не причинила вреда. С тех пор девочка старалась жить тихой жизнью и особо не отсвечивать, но в один прекрасной день ей предлагают стать исполнительным (   Читать дальше...   )Тип издания: OST, Theme songsПродолжительность: 04:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB360087F8E3712FD6F503254A8AB7A8F10C06F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

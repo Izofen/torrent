@@ -1,3 +1,236 @@
+###  Публикация: 577123   (361510) от 18.11.2012
+
+VA - Союз Хитовый - 5 (2012) [MP3|128 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Савичева feat. DJ Feel - Я С Тобой
+002. Сати Казанова и Батишта - Чувство легкости
+003. Потап и Настя - РуРуРу
+004. Ирина Билык - Как Же
+005. Слава Бодолика и Доминик Джокер - Фиеста
+006. Дима Билан - Все ускорилось
+007. Анжелика Агурбаш - До звезды
+008. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
+009. Руки Вверх! - Я тебя люблю
+010. Оксана Краски - А девочке хочется(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A381CD61F05A61C1E652BDA5590471F7CC45F613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576400   (361348) от 18.11.2012
+
+VA - Дорожный шансон (2012) [MP3|128 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361348.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Рождество - Гони туда.mp3
+002. Борис Шварцман - Попутчик.mp3
+003. Владимир Кузнецов - Дорога к морю.mp3
+004. Игорь Лазарев - Дорожная.mp3
+005. Русский стиль - Уезжаешь.mp3
+006. Саша Иркутский - Электричка.mp3
+007. Эдуард Шенфельд - Дальний рейс.mp3
+008. Александр Келеберда - Улетаю за кордон.mp3
+009. Эдуард Шенфельд - Я еду на Урал.mp3
+010. Евгений Казаков - Город Мурманск.mp3(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144414681678CB839D93E1F7ADD0471E30309E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576410   (361344) от 18.11.2012
+
+VA - Ээхх, Разгуляй! Часть 12 (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361344.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Михаил Шуфутинский - Не печальтесь обо мне
+002. Елена Ваенга - Лена
+003. Ян Марти - Она красива
+004. Яна Павлова (Воровайки) - Знает только небо
+005. Гарик Кричевский - Скитания
+006. Стас Михайлов - Джокер
+007. Виктор Калина - Где мои 17 лет
+008. Саша Сирень - Шпилечки
+009. Герман Грач - Друзья мои хорошие
+010. Аня Воробей - Под шум дождя(   Читать дальше...   )Жанр: ШансонПродолжительность: 6:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF84616051751FBFE216C453EA24D6AB4F7074F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407615   (361321) от 07.11.2011
+
+VA - Союз шансон #5 (2011) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Круг - Где-То За Морем
+002. Александр Шапиро - Петербургская Принцесса
+003. Юрий Уральский - Верка
+004. Лукьяновка - Годы-Купола
+005. Пятилетка - Воля
+006. Игорь Слуцкий - Думы Мои, Думы
+007. Давид Оган - Мадлен
+008. Лукьяновка - Лукьяновка
+009. Павел Беккерман - Баньшик Дядя Коля
+010. Бутырка - Тает Снег2011Жанр: ШансонПродолжительность: 12:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A01F21A2B4CAA98E20BC01D4659CDD307C10F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070831   (361316) от 09.11.2016
+
+VA - Хит-парады Топы Чарты FM-станций Октябрь (2016) [MP3|96-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Love Radio
+01.Burak Yeter feat. Danelle Sandoval - Tuesday  3:33
+02.Calvin Harris - My Way  3:39
+03.Carlas Dreams - Sub pielea mea   3:26(   Читать дальше...   )Жанр: PopПродолжительность: 10:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8354E58CCE20672101993D079C25370E475D8F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951343   (361278) от 30.10.2015
+
+VA - Original Mix Progressive Trance (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361278.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marscela - Time Plex 03:04
+002. Audio Kortex - Distortion Ride 06:59
+003. Beau van Gaal - Warlords (Original Mix) 05:40
+004. Egor Shlegel - Heliosphere (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F940925AFC018D00DC21FB69468AEAF50FBDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577116   (361174) от 18.11.2012
+
+VA - Новейшие Зарубежные Треки (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361174.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elena Gheorghe - Amar Tu Vida (Radio Edit)
+002. Brockmann & Basti M Feat. Aleksey - 20 Russian Models (The Disco Boys Radio Edit)
+003. Los Americanos - Red Light Angel (Video Edit)
+004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Radio Edit)
+005. Nadya Vozduh & Jambazi - Desire
+006. Justin Bieber feat. Ludacris - All Around The World
+007. Lavinia - Honey Boy (Radio Edit)
+008. Sebastian Ingrosso & Alesso - Calling
+009. Bananarama - Every Shade Of Blue
+010. Captain Hollywood Project - Impossible(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2ADC51BED7841FDE53E5E4F021E75B32B0E039C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951712   (361159) от 30.10.2015
 
 VA - Acoustic Romance (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental, Vocal>
@@ -577,209 +810,6 @@ VA - Americans Swinging in Paris (Collection) (2002) [MP3|320 кб/с]<Retro, Sw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B92AA5E7877877E0A76983FA72F5C2B5C085B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577245   (359605) от 17.09.2022
-
-VA - В машине с музыкой Vol.303 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Veronicas  - Cruisin’ On My Own  (02:30) 2022
-02. Ikon  - Urus (02:02) 2022
-03. Kolunov  - Мы Вернёмся (03:28) 2022
-04. Nara Play  - На Флексе (02:39) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DC98194670F6120AF5A943B5EC1442DDD9F5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577165   (359517) от 17.09.2022
-
-VA - Music News vol.217 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 044 ROSE - Роузи Каждый День (02:47)
- 002. 5Утра - Пришлите Мне Песню (03:30)
- 003. 7Б - Понторезо (02:44)
- 004. 7Б - Спокойной Ночи, Рабочий (03:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06AB896B026CE6B227CB52B62DF6ACCD2273AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071475   (359446) от 10.11.2016
-
-VA - DJ Dynamic Basic Hits (2016) [MP3|250~320 Kbps] <House, Future House,  Funky, Tropical, Bigroom, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quintino & Kenneth G - Blowfish (Original Mix) 4:21
-02. Robbie Rivera & Lizzie Curious - My Heart 6:40
-03. Swanky Tunes & Raign - Fix Me (Radio Edit) 3:23
-04. Holmes & Watson vs. DDei & Estate - F...Ed Up (Holmes & Watson Mix) 6:56(   Читать дальше...   )Жанр: House, Future House,  Funky, Tropical, Bigroom, ClubПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2978A30DA8B0973CCFA56C4B30E30CD9E260A417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071385   (359433) от 10.11.2016
-
-VA - Beyond Reality: Techno Mix (2016) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359433.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hannah Wants - Just (Feat Kristine W - Ben Remember Remix)
-002. Bob Ray - Injection (Original Mix)
-003. Thorax feat. The Ultimate MC - Fvkked Up
-004. Vangelis Kostoxenakis - Son Of A Gun (Enrico Sangiuliano Remix)(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 12:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B48FC7A097BABC4572D31522FE7E38B87D48E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071590   (359430) от 10.11.2016
-
-VA - Осенняя позитивная сотка. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359430.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Serpo - Мотивейшн 3:13
-002.Kaskade - Never Sleep Alone 3:44
-003.Юлия Оксанич - 7 Ночей 3:01
-004.Din-Go - Я Скучал По Тебе 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62290664A1FA826B052794C880A043317BDC4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071595   (359423) от 10.11.2016
-
-VA - Сотка модных хитов 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Валенсия - Отпускаю 4:08
-002.Fifth Harmony Feat. Kid Ink - Worth It 3:45
-003.Павел Кредо - Танцуй 2:50
-004.Мария Неделкова - Барби Герл 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDC2008570112963754246D68F0725CB8A6E41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071320   (359362) от 10.11.2016
-
-VA - Высшая лига хитов шансона. Часть 4 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359362.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Владимир Бажиновский - Друг 4:14
-002.Смирнов & Компания - Далеко Далеко 3:39
-003.Валерий Власов - Мама 4:26
-004.Алексей Брянцев & Елена Касьянова - Я Все Равно Тебя Люблю 4:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D1FFC4D37328545E5B83CDA4C30B668CD1E2BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,220 @@
+###  Публикация: 796716   (681577) от 16.06.2014
+
+VA - The Official UK Top 40 Singles Chart (15-06-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+В нынешнем чате 7 новых исполнителей. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Ella Henderson - Ghost  (3:36)
+02. Ed Sheeran - Sing  (3:55)
+04. Sam Smith - Stay With Me  (2:53)
+05. Mr. Probz - Waves  (3:28)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11CD5AC4977A3CD3C4D2C796C4C407CF7B515E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507863   (681540) от 09.06.2012
+
+VA - Фолк Навигация (2011) [MP3|320 кб/с]<Folk, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Пингина - Без головы
+02. Иван Купала - Старый
+03. После 11 feat. Хелависа - Рядом быть
+04. Медвежий Угол - Ниточка родниковая
+05. Алевтина - Только любовь
+06. Калинов Мост - Дома не был
+07. Рада и Терновник - Над водою
+08. Отава Ё - Про Ивана
+09. Soulmama- Кей ко-ко
+10. Начало Века- Формы времени(   Читать дальше...   )2011Жанр: Folk, RockПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F170D6485CD189D4F5787D775F14EA2D73532311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507975   (681445) от 09.06.2012
+
+VA - Trance In Motion vol.117 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fast Distance - Alpine (Karanda Intro Remix)
+02.Bobina - Quattro 372 (Original Mix)
+03.Evol Waves - Nobody Knows (Original Mix)
+04.Gareth Emery - The Saga (Original Mix)
+05.Michael Angelo feat. Melissa Loretta - Hearts Unspoken (Original Mix)
+06.Mike Shiver feat. Bo Bruce - Still Here (Carl Louis & Martin Danielle Remix)
+07.Orjan Nilsen - Endymion
+08.Wezz Devall - Stadium (Original Mix)
+09.Ferry Corsten - Live Forever (Extended)
+10.Nuera feat. Szen - Stuck(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30B842A021D714C8E0BE8331C532BD7429142FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135402   (681195) от 19.05.2017
+
+VA - Synthetic  vol.5 (2017) [MP3|219-320 Kbps] <Synth Pop, EBM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argh - No Romance (04:08)
+02. Conmutadores - Interestelar (03:44)
+03. Eisfabrik - The Survival Of The Strongest Mind (04:06)
+04. Nordika - Revolution (03:50)(   Читать дальше...   )Жанр: Synth Pop, EBMПродолжительность: 01:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26045307401C79285CB638469CF516FC00C2B5DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222749   (681077) от 01.05.2018
+
+VA - Workout Mix Will Dance (2018) [MP3|320 Kbps] <Nu Disco, World, Banda>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tim Deluxe ft Sam Obernik - It Just Won't Do (DJ Dark & MD DJ Remix) (Clean) (Extended)
+002. Carnage, Lil Pump, Soltan & Must Die! - Kabul Shyne Up (Juicebox 24k Karat Edit) (Dirty) (Short Edit)
+003. Carnage, Lil Pump, Soltan & Must Die! - Kabul Shyne Up (Juicebox 24k Karat Edit) (Dirty) (Extended)
+004. Edwin Luna Y La Trakalosa De Monterrey - Fijate (   Читать дальше...   )Жанр: Nu Disco, World, BandaПродолжительность: 06:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A107D66F3E66D0C413FAD775FA0193ECE4FB16BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135429   (680949) от 19.05.2017
+
+VA - EuroDance Party Vol.3 (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  B.G. The Prince Of Rap - No Limits (Real Thing Euro Remix) 3:30
+02.  Darude - Feel The Beat 4:19
+03.  Systematixx - Be My Lover (DJ Shabayoff Remix) 3:41
+04.  Activate - Let The Rhythm Take Control 3:32(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901543B64B3B2A19FA2FF43CAAFA0872825B6CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222820   (680787) от 01.05.2018
+
+VA - All Day Breack Fast: Respect Collection April (2018) [MP3|320 Kbps] <Rap, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем любителям правильной музыки представляем сборник современных лучших исполнителей в стиле репа, хип хопа и RnB под названием "All Day Breack Fast: Respect Collection April". Слушайте музыку сборника в машине или на природе и поднимайте настроение на весь трудовой дачный день себе и особенно соседям по даче.001. Kendrick Lamar - BLOOD.
+002. Aqualeo - Address
+003. Mike Posner - At Night, Alone.
+004. J Dilla - Fuck The Police(   Читать дальше...   )Жанр: Rap, Hip-Hop, RnBПродолжительность: 06:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301D29F3D3007F9F00180EA6E8A0DDF7DD8DB805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222935   (680781) от 01.05.2018
 
 VA - 100 Greatest Love Songs (2017) [MP3|320 Kbps] <Pop, Blues, Vocal Jazz>
@@ -541,221 +758,6 @@ VA - Драйвовый весенний музон. Часть № 8 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297B8E847A14719656D29D72B06DD2A1D0671F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135725   (679322) от 20.05.2017
-
-VA - Музыкальный адреналин хорошего настроения. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679322.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Oleynik & Виктория Дайнеко - Сердца Стук 3:31
-002. Неангелы - Точки 3:31
-003. Александр Шоуа - Москва-Абхазия 3:51
-004. Пальчики Оближешь - Нецветные Розы 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD09854F76B41D8BE50E5F76D93EB1A3C1C8610C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222915   (679302) от 02.05.2018
-
-VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шёлковый песок, тёплое море, шум волн накатывающихся на берег, крики чаек и приятное одиночество на морском пляже - всё это в новом сборнике релакс музыки под названием "The Real Silent Mode".001. Remundo - Soupire
-002. The Ghetto Project - The Ghetto (Alternative Mix)
-003. Enrico Donner - Through Your Eyes
-004. Don Coppens - Bizzy Trent (Original Chill Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A580EA3A2AA78E01F511A62E71C6A1B0D24028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135732   (679296) от 20.05.2017
-
-VA - Весенняя 100-ка популярных треков выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679296.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mainstream One - Нам Солнце Светит Ярче 3:00
-002. Моника - Корпоратив 3:08
-003. Доминика Feat. Suncreepers - Океаны 3:04
-004. Егор Диких - Дикие Племена 4:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244F984D5D1376EFC02FF29DABAAD1DAEF7A542C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135738   (679283) от 20.05.2017
-
-VA - Русский отрыв на Русском радио. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бордо - Будем 3:37
-002. Weel - Под Мой Пульс 3:03
-003. Kristina Si - Гасим Свет 3:58
-004. Андрей Леницкий - Она 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0CBA49A97190259A642693B4C073AE4E4CDF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135729   (679238) от 20.05.2017
-
-VA - Хитовая весна на Europa Plus. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Ирис - Солнце Мое 3:16
-002. Надежда Тэра - Птица 3:17
-003. Play - Виновата Сама 3:18
-004. Stereopulse - Зачем Ты Накачала Губы 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29659F8F0B30F12A4FF911D1A8DD00F54F949B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508701   (679124) от 10.06.2012
-
-VA - 100 Mega Summer Hits 2012 (2012) [MP3|~273 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_679124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gipsy Kings - Bamboleo (3:25)
-2. Simply Red - The Right Thing (4:23)
-3. Mungo Jerry - In The Summertime (3:30)
-4. Sean Kingston - Beautiful Girls (3:47)
-5. DJ Jazzy Jeff & The Fresh Prince - Ring My Bell (3:47)
-6. R.I.O. - Miss Sunshine (5:24)
-7. The Sunclub - Fiesta (4:14)
-8. Skee-Lo - I Wish (4:13)
-9. Righeira - Vamos A La Playa (3:40)
-10. Elvis Presley - Mexico (2:00)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508041   (679093) от 10.06.2012
-
-VA - Сборник Родной музыки - "Авега" (2012) [MP3|192 кб/с]<Rock, Folk, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Дар Ветер - Вечность
-02 Банды Москвы - Живи Россия Моя
-03 Николай Емелин - Княжий остров
-04 Алевтина - Мокошь
-05 Мельница - На Север
-06 Алиса - Небо славян
-07 Светлаяна - Птицы
-08 Ария - Свобода
-09 Контрреволюция - Это значит, что скоро война
-10 Сокира Перуна - Дорога в Вальхаллу(   Читать дальше...   )2012Жанр: Rock, Folk, PopПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCA6DACA298B1B8EE96648F8D5598231B94534E
 ```
 
 https://mybot314.ru/tekegram_catalog/

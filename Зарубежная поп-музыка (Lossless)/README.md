@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1856338   (1058928) от 27.02.2026
+
+VA - Seventies Top 100 Vol. 2 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Light Orchestra (ELO) - Don't Bring Me Down (4:06)
+02. Kiss - Sure Know Something (4:00)
+03. Sherbet - Howzat (3:45)
+04. Herman Brood & His Wild Romance - Never Be Clever (3:05)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A08927778D4868226DAA439D98F55E82EFD8B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855368   (1058774) от 26.02.2026
+
+VA - Seventies Top 100 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dire Straits - Sultans Of Swing (5:48)
+02. Gino Vannelli - People Gotta Move (3:20)
+03. Steve Miller Band - Jet Airliner (3:33)
+04. Dan Fogelberg - Longer (3:16)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 06:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA63F272FF62D81F172DFF3297537D985B56681E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855358   (1058773) от 26.02.2026
+
+VA - 100 Hits 70s Heart Throbs (2016) 5 x CD, Compilation, Box Set [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/20. The Jacksons - Shake Your Body (Down to the Ground) (3:46)
+02/20. Gary’s Gang - Keep On Dancin’ (3:30)
+03/20. Billy Ocean - Red Light Spells Danger (3:31)
+04/20. The Hues Corporation - Rock the Boat (3:21)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 05:42:32.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F61A8549BFEAFC7A3AEA5AF124FCB2CF082E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855353   (1058772) от 26.02.2026
+
+VA - Greatest Ever! Smooth (The Definitive Collection) (2007) 3 x CD, Compilation Box Set [FLAC|Lossless|tracks + .cue] <Pop, R&B, Funk / Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R. Kelly - I Believe I Can Fly (5:22)
+02. Usher - You Make Me Wanna… (3:38)
+03. Aaliyah - Back & Forth (3:50)
+04. Toni Braxton - Un‐Break My Heart (3:49)(   Читать дальше...   )Жанр: Pop, R&B, Funk / SoulПродолжительность: 03:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFA12A03FD7FE00FDAB5240B02523F6420C0F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855390   (1058149) от 22.02.2026
 
 VA - 70's Styles (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Eurodance>
@@ -628,122 +744,6 @@ VA - Hit Parade - From the 70s, 80s & 90s (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0CFA845DF9F0866532500994646CC6109FED2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848946   (1053356) от 20.01.2026
-
-VA - 80s: 100 Remixes (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Hip Hop, Soul, Disco, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cyndi Lauper - Girls Just Want to Have Fun (12_ Version) - (06:02)
- 002. Dead or Alive - You Spin Me Round (Like a Record) (Performance Mix) - (07:26)
- 003. Wham! - Freedom (Long Mix) - (07:06)
- 004. Rick Astley - Never Gonna Give You Up (Cake Mix) - (05:47)(   Читать дальше...   )Жанр: House, Hip Hop, Soul, Disco, Soft RockПродолжительность: 10:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB8793DCA31CE54C0C1A3FD29872D12B5CA2C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849194   (1053220) от 21.01.2026
-
-VA - Summer Hits of the 70's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seals and Crofts - Summer Breeze (3:26)
-02. Rod Stewart - Da Ya Think I'm Sexy (5:31)
-03. The Doobie Brothers - What a Fool Believes (3:40)
-04. Frankie Valli & The Four Seasons - Who Loves You (4:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365E31416428424B17A4BD0FFA7395ADE54698DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848975   (1053182) от 20.01.2026
-
-Christina Aguilera - Stripped (2002) [FLAC|Lossless|image + .cue] <Pop, Soul, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stripped - четвёртый студийный альбом американской певицы Christinы Aguilerы, вышедший 22 октября 2002 года лейблом RCA Records. Стремясь отойти от подросткового поп-стиля своего дебютного альбома (1999), Aguilera взяла на себя полный творческий контроль над Stripped, как в музыкальном, так и в лирическом плане, она также создала свой новый публичный имидж. В музыкальном (   Читать дальше...   )01. Stripped (intro) (1:39)
-02. feat. Lil’ Kim - Can’t Hold Us Down (4:15)
-03. Walk Away (5:47)
-04. Fighter (4:05)(   Читать дальше...   )Жанр: Pop, Soul, R'n'BПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23B6E37434FB2524A906626A9D69CDD37AFBBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848799   (1053096) от 18.01.2026
-
-VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Warren - Ordinary (3:06)
-02. Ed Sheeran - Sapphire (2:59)
-03. ROSÉ - APT. (2:49)
-04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

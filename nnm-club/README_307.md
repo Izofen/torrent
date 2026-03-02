@@ -1,22 +1,23 @@
-###  Публикация: 1844911   (1050432) от 28.12.2025
+###  Публикация: 1845641   (1050775) от 02.01.2026
 
-Я вернусь в прошлое и изменю жизнь / Torno indietro e cambio vita (2015) HDRip [VO]
+Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050432.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Марко и Клаудио дружат со школы, сейчас им обоим уже за 40. Марко бросила жена, а Клаудио никак не может жениться, потому что живет с престарелой матерью-алкоголичкой, отпугивающей всех его подружек. Неожиданно в результате автокатастрофы они перемещаются во времени на 25 лет назад и получают возможность изменить свою жизнь. Марко решает предотвратить свой брак, (   Читать дальше...   )Производство: Италия / Cattleya, ConsultinvestЖанр: фэнтези, комедияРежиссер: Карло ВанцинаАктеры: Рауль Бова, Рикки Мемфис, Массимилиано Тортора, Паола Миначчони, Джулия Микелини, Августо Форнари, Витторио Эмануеле Пропицио, Микела Андреоцци, Иван Бакки, Carlotta BadialiПеревод: Одноголосый любительский (Lord32x Studio)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:18
+Раскройте свой творческий потенциал с помощью инструментов для рисования и изображений на базе искусственного интеллекта.
+Превратите свои фотографии и идеи в потрясающие творения с помощью Genius Art: Image AI Generator. Независимо от того, являетесь ли вы художником, дизайнером или просто любителем творчества, это приложение предоставит вам всю мощь передовых инструментов (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.01.2026Разработчик: AMOBEAR TECHNOLOGY GROUPПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:608D28F8188E83957AC856B5FF7BDB43B2CF5FAD
+magnet:?xt=urn:btih:8E6BEB1B12222A9027727FF2207CCDEB75C773B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844909   (1050431) от 28.12.2025
+###  Публикация: 1845565   (1050774) от 02.01.2026
 
-Господа присяжные... / Signori giurati... (1916) WEBRip [H.264/1080p]
+Антология The Beatles / The Beatles Anthology (2025) WEB-DL [H.264/1080p] (серии 1-9 из 9) [DVO]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050431.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Криминальная драма о предательстве, убийстве и ревности, окружающих роковую женщину. Нить сюжета проста - коварная роковая красотка на пару со своим любовником-подкаблучником открывает тайный клуб-притон для богатых, где они могут предаваться порочной страсти - наркомании. Однако вскоре в этой утопической картине появляются трещины…
-Но есть у этого фильма и второй (   Читать дальше...   )Производство: Италия / Corona FilmЖанр: драма, криминал, немое киноРежиссер: Джузеппе ДжиустиАктеры: Дидако Челлини, Валерия Грети, Атилло де Вержилис, Фабьен Фабреж, Бонавентура ИбаньесПеревод: немой с интертитрами (Субтитры: голландские (интертитры), русскиеПродолжительность: 01:12:24
+Джон Леннон, Пол МакКартни, Джордж Харрисон и Ринго Старр - четыре культовых имени поп-музыки. Вместе они были историей, они были "Битлз" - группой, которая возглавляет список 50-ти величайших исполнителей всех времен по версии журнала "Rolling Stone". Ставшая легендарной битловская Антология теперь на русском! Полная история великой группы THE (   Читать дальше...   )Производство: Великобритания / Apple Corps, Capitol Records, Granada TelevisionЖанр: Документальный, история, музыка, биографияРежиссер: Кевин Годли, Боб Смитон, Джефф ВонфорУчастники: Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Джордж Мартин, Нил Аспинал, Дерек Тейлор, Брайан ЭпстайнПеревод: Двуголосый любительский (Pazl Voice)Субтитры: русские (forced + fullПродолжительность: ~01:00:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AED1580B03F79DFB28F3B89C3387A9F82428316
+magnet:?xt=urn:btih:A711D1FB3C54CBDD0EBD5A1ABC0565F0261E7E09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844912   (1050430) от 28.12.2025
+###  Публикация: 1845574   (1050773) от 02.01.2026
 
-Слабейшая укротительница в путешествии [ТВ-1] | Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. | The Weakest Tamer Began a Journey to Pick Up Trash [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bi ...
+Склифосовский. Новый год (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050430.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Айви совсем нет времени на отдых. Она переродилась в мире RPG, обладая самым слабым классом и, что еще хуже, самым слабым рангом. Айви — слабейшая укротительница. Даже родители не хотят иметь с ней ничего общего и бросили её на произвол судьбы. За Айви гонятся люди которые хотят убить проклятое дитя, что в итоге приводит Айви в лес, где ей удаётся приручить первое (   Читать дальше...   )Производство: Япония / Студия Studio MassketЖанр: Приключения, фэнтезиРежиссер: Ямаути СигэясуЯзык озвучки: Русский (ТО Дубляжная), (AniLibria), (AniDub); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+Перед Новым годом доктор Брагин и его коллеги решают принять участие в квизе для врачей. В упорной борьбе команда, состоящая из лучших врачей НИИ скорой помощи им. Склифосовского, вырывает победу, но, чтобы дойти до главного денежного приза, им предстоит пройти последний и самый сложный квест. Компания отправляется в путь по Золотому кольцу. Марина, Павлова, Кривицкий, (   Читать дальше...   )Производство: Россия | Кинокомпания «Русское»Жанр: драма, мелодрамаРежиссер: Юлия КрасноваАктеры: Максим Аверин, Мария Куликова, Елена Яковлева, Андрей Ильин, Александр Сирин, Анна Якунина, Владимир Жеребцов, Александр Самойленко и др.Продолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C81700EC6A3169BBD873A5286EE5F09A1F81F8C2
+magnet:?xt=urn:btih:0E85BD366C93A6D86C8F2572055C1A1C2F660316
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844914   (1050429) от 28.12.2025
+###  Публикация: 1845653   (1050772) от 02.01.2026
 
-Растровый клипарт - Adobe Stock - Christmas Garland Corners [PNG]
+YT Downloader 10.1.1 [En]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050429.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рождественские гирлянды для ваших творческих задач.Формат: PNGРазрешение файлов: 2664x1500 - 8736x4896
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B9538805ED9F7D89B333C45AAAAF1EE0939315A
+magnet:?xt=urn:btih:E40937409B66DC856175213C641F0E7FB9F049C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844915   (1050428) от 28.12.2025
+###  Публикация: 1845639   (1050771) от 02.01.2026
 
-Проекты - VideoHive - LowerThird - 61051119 [AEP]
+Аванпост (2020) BDRip [AV1/1080p] (сезон 1, серии 1-6 из 6)
 
->>Проекты
->>Титры (проекты)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050428.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот набор заголовков, разработанный в Adobe After Effects, отличается чистым и современным стилем моушн-графики, подходящим для широкого спектра применений, таких как рекламные видеоролики, заставки для YouTube, корпоративные презентации или креативные проекты. Плавная анимация, хорошо структурированные макеты и гибкие возможности настройки позволяют легко изменять (   Читать дальше...   )Формат: AEP
+В недалеком будущем что-то произошло. Связь с большей частью населенных пунктов Земли оборвалась, почти вся планета погрузилась во тьму, кроме небольшого светового круга в Восточной Европе. Отправленные в разведку дроны не возвращаются, даже пропадают хорошо вооружённые спецотряды. На границе круга российские военные сооружают укреплённый аванпост, откуда вскоре (   Читать дальше...   )Производство: Россия / 1-2-3 Production, PREMIER, Канал ТВ-3Жанр: триллер, фантастика, боевикРежиссер: Егор БарановАктеры: Лукерья Ильяшенко, Пётр Фёдоров, Светлана Иванова, Алексей Чадов, Ксения Кутепова, Константин Лавроненко, Филипп Авдеев, Артем Маркарьян, Сергей Годин, Артем ТкаченкоПродолжительность: ~00:53:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDE279B92789817F723C0F0ED6D5D210EDD42E4C
+magnet:?xt=urn:btih:08A18C1333761865B9452D622A9B66BD893169ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,28 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844414   (1050427) от 28.12.2025
+###  Публикация: 1845601   (1050770) от 02.01.2026
 
-Frezee - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz, Chillout, Female Vocal, Other>
+Спецподразделение — Первое убийство / Rejseholdet - det forste mord / Special Unit: The First Murder (2025) BDRip [H.264/1080p] [AVO]
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050427.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Мечты
-02 - Новый Карабас
-03 - Майские Грозы
-04 - Зефир(   Читать дальше...   )Жанр: Swing Jazz, Nu Jazz, Chillout, Female Vocal, OtherПродолжительность: 00:33:42
+1927 год. Амбициозный офицер полиции Отто Химмельструп возглавляет недавно сформированное Специальное подразделение, которому предстоит помогать местной полиции в раскрытии особо сложных преступлений. Когда в сгоревшем летнем домике в Эсбьерге находят тело, Отто и его команда начинают распутывать тайну необычного убийства, раскрывая борьбу за власть и коррупцию среди (   Читать дальше...   )Производство: Дания, Польша / Lava Films, TV2 Danmark, Polish Film InstituteЖанр: драма, криминал, детективРежиссер: Кристоффер БоэАктеры: Алекс Хег Андерсен, Mathilde Fock, Николай Коперникус, Катрин Розенталь, Ask Berntsen, Кристиан Халкен, Ларс Ранте, Emil Hyldeborg, Клара Ругор, Лукас ТоннесенПеревод: Авторский (Михаил Чадов 18+)Язык озвучки: Русский, ДатскийСубтитры: английскиеПродолжительность: 02:01:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D6D6446B20058579C4555E803A3497C55DA9DC6
+magnet:?xt=urn:btih:C674326B774FCDA1ECD4F111089D856727642962
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,28 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844460   (1050426) от 28.12.2025
+###  Публикация: 1845654   (1050769) от 08.01.2026
 
-AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+Blood: Refreshed Supply (2025) [Multi] (2.0.3116) License GOG
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050426.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Я Замерзаю (Nada - San Remo 1969)
-02 - Падам Падам   (Русский Кавер)
-03 - The Last of Us Take on Me (Русский Кавер)
-04 - Песня О Погоде(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:22:05
+В игре Blood: Refreshed Supply Калеб, немертвый стрелок, стремится отомстить своему бывшему демоническому хозяину, Чернобогу. Несмотря на свое некогда могущественное положение грозного командира Кабала и одного из немногих «Избранных» Чернобога, Калеб и его товарищи-Избранные преданы темным богом и убиты по неизвестным причинам. В поисках ответов и мести Калеб восстает (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, Monolith ProductionsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
+magnet:?xt=urn:btih:E8289C0241D9F569EE4B338E3134D3591D5BD394
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,28 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844518   (1050425) от 28.12.2025
+###  Публикация: 1845603   (1050768) от 02.01.2026
 
-VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
+Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [Ru/En]
 
->>Electronic
->>Trance
+>>ОС Windows
+>>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050425.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yusef Kifah - Pumpin' 03:43
-02. Rob Tissera - Uncontrollable Joy 03:57
-03. Technikal & Brad Thatcher - Centauri 04:01
-04. K-Series - Say Goodbye 03:51(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:54
+Windows 10 v22H2 19045.6691 и Windows 10 Корпоративная LTSC v21H2 19044.6691, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 12.2025, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C5AE1ACA68CF6CA020F3BED54E2AF1E3A08DD1D
+magnet:?xt=urn:btih:1BCCA8E27FF74EC6C6ACEE5665DDABEE310AE92A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844638   (1050424) от 28.12.2025
+###  Публикация: 1845588   (1050767) от 02.01.2026
 
-VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+Король воздуха / Air Bud (1997) BDRemux [H.264/1080p]
 
->>Electronic
->>Trance
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050424.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Iberian - Maria (Spanish Vocal Mix) [6:59]
-02. Andre Wildenhues & Stacey Jay - Hold On To Hope (Original Mix) [6:24]
-03. Masaru Hinaiji & Kayumai - Think Of My Angel (Original Mix) [7:13]
-04. Sam Fletcher vs. Andre Wildenhues vs. Iberian feat. Poetry Maiden - Space Hideaway (DreamSkies Mashup) [6:01](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:07:14
+Норм был клоуном, но никого не мог рассмешить. От полного провала его представления спасал пес Бадди, делавший трюки в паре с клоуном. Со злости Норм колотил Бадди, и умный пес сбежал от него. Новым другом Бадди становится 11-летний мальчик Джош. Они знакомятся на баскетбольной площадке, куда Джош ходит тренироваться в надежде, что его примут в школьную команду. (   Читать дальше...   )Производство: США, Канада, Equicap, Keystone Pictures, Walt Disney PicturesЖанр: семейный, спорт, драма, комедияРежиссер: Чарльз Мартин СмитАктеры: Майкл Джитер, Кевин Зегерс, Уэнди Маккена, Билл Коббс, Эрик Кристмас, Джей Бразо, Брендан Флетчер, Николя Кавендиш, Норман Браунинг, Стивен Е. МиллерПеревод: Двуголосый профессиональный, профессиональный многоголосый, Николай АнтоновЯзык озвучки: русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6595353EE397AD8EDD9C686D3391E16C1FA2C5B
+magnet:?xt=urn:btih:B8FEF17A5523100376CCDE9773F66D177DBCE60C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +233,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844676   (1050423) от 28.12.2025
+###  Публикация: 1845661   (1050766) от 03.01.2026
 
-VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+MyLanViewer 6.7.3 Enterprise + Portable [Multi/Ru]
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050423.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - David Gogo - This is Man's World
-02 - Brandon Lane - Trouble
-03 - Daniel Castro - I'll Play the Blues for You
-04 - Mystery Train - Love is Rough Business(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:59:50
+MyLanViewer — программа для сканирования и мониторинга компьютеров в сети с возможностью поиска общедоступных файлов. Она показывает компьютеры в удобном для просмотра виде, который содержит имя компьютера, IP адрес, MAC адрес, общие ресурсы и другие детали для каждого компьютера. С помощью её вы можете следить за компьютерами в сети и получать оповещение, когда (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB58B39CB9F9FD8A939A03F439E409222017BE61
+magnet:?xt=urn:btih:52247C7AFF3BD669D9133BECEE0653666F2E690C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844678   (1050422) от 28.12.2025
+###  Публикация: 1845662   (1050765) от 02.01.2026
 
-VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
+Outrage - Brutal Human Bastard (2013) [APE|Lossless|image + .cue] <Death Metal>
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050422.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Miz Tasha Cobb - Dust on the Wall
-02 - Velvet Ashes - The Most Beautiful Jaz
-03 - Ai - Still on the Road (A Farewell to Chris Rea)
-04 - Ai - I Call Your Name(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 00:52:09
+01. Brutal Human Bastard
+02. Cryptic Time
+03. Addiction
+04. Days of Disorder(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
+magnet:?xt=urn:btih:875DB2CC814A9588878BC61384CE6B3A1278B9A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,28 +288,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844722   (1050421) от 28.12.2025
+###  Публикация: 1845645   (1050764) от 02.01.2026
 
-VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
+Уральские пельмени. Холодецкая удаль (2026.01.01) WEBRip [H.264/1080p]
 
->>Electronic
->>Trance
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050421.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suntim - Luminosity (Extended Mix) [5:06]
-02. Evgeny Casper - The Energy Of Sound (Extended Mix) [6:18]
-03. KaKi - Manjushage (Extended Mix) [7:13]
-04. Angel Ace - The Purpose (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:36
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:11:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
+magnet:?xt=urn:btih:4D4CED1EA6B6F97D8AB8598222295DAFE9C2377F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,57 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844725   (1050420) от 28.12.2025
+###  Публикация: 1845648   (1050763) от 02.01.2026
 
-Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда то, в середине 90х, когда я был юн и беспечен, у меня была девушка — первая настоящая любовь. Она была значительно старше и мудрее меня. Ей очень нравилось творчество Richard Marx. У неё дома был проигрыватель ВЕГА 109 и пласты с альбомами Repeat Offender 1989 года и Rush Street 1991. И по прошествии лет, есть что вспомнить под эту музыку. Очень красивая и (   Читать дальше...   )001. Should've Known Better
-002. Don't Mean Nothing
-003. Endless Summer Nights
-004. Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216FFD40B1BA273BFD8180D889C72145FDF5AC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844753   (1050419) от 28.12.2025
-
-Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|320 Kbps] <Trance>
+VA - Ori Uplift - Uplifting Only Episode 673 (Ori's Top 52 Vocal Uplifters of 2025 - Part 2) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050419.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tiësto & FORS – Bring Me To Life
-02. Age Of Love vs. Jam & Spoon vs. Moby - Age Of Love vs. Stella vs. Go (Tiësto Mashup)
-03. Sonique - I Put A Spell On You (ID Remix)
-04. Tiësto - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:34
+01. BluSkay & Esmee Bor Stotijn – Winter Took Over 2025
+02. Roman Messer & Anton Pallmer & Jennifer Rene – When I Hear Your Voice
+03. Suncatcher & Exolight & Susanne Teutenberg – Ride The Rain
+04. William Silva & Cathy Burton – Tears I Never Shed(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B69060C770170EEF896633AF95479FD0DD9573D
+magnet:?xt=urn:btih:8A6F8BA12D9FA36554673C202BCC5C3F46BE7FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,28 +343,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844805   (1050418) от 28.12.2025
+###  Публикация: 1845644   (1050762) от 02.01.2026
 
-VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
+VA - Armin van Buuren - A State Of Trance 1258 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELYKAST & Sam Gray – Hold On (Brooks Remix)
+02. Kudus – Feel The Light (Progressive Pick)
+03. Akille & Juna Rose – Through The Smoke
+04. TH;EN & Glowal – In My Blood(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7349712F31BE645ECBA5523148BD93D965547270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845655   (1050761) от 02.01.2026
+
+Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 
 >>Неофициальные сборники
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050418.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Playing For Change - Fly Like an Eagle [04:19]
-002. Popa Chubby - I'm Going Down [05:31]
-003. Def Leppard - Stand By Me [03:11]
-004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
+01 - Where the Silence Sleeps
+02 - Burning for You
+03 - Poisoned Tongue
+04 - The Echo That Stayed(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:41:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
+magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,28 +401,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844835   (1050417) от 28.12.2025
+###  Публикация: 1845659   (1050760) от 02.01.2026
 
-VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, Deep House, Progressive House>
+VA - Smash Hits Of The 80's (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Pop Rock, Synth-pop>
 
->>Electronic
->>House
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050417.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. T.Markakis - Love Away (Extended Mix) [6:45]
-02. Tommy Gustav - Nobody Else (Extended Mix) [6:40]
-03. Yves Murasca & Rosario Galati - Close Your Eyes (Karol XVII & MB Valence Loco Extended Remix) [6:41]
-04. Kubinowski & Mafia Mike - If You (Extended Mix) [5:37](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Organic HouseПродолжительность: 03:20:50
+01. Yazz - The Only Way Is Up
+02. Kylie Minogue - I Should Be So Lucky
+03. Adam And the Ants - Antmusic
+04. Mel & Kim - Respectable(   Читать дальше...   )Жанр: Electronic, Rock, Pop, Pop Rock, Synth-popПродолжительность: 02:01:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
+magnet:?xt=urn:btih:8ECFF0274F1B99A5431C8F9D896598A355C11E31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,28 +430,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844843   (1050416) от 28.12.2025
+###  Публикация: 1845618   (1050759) от 02.01.2026
 
-VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
+Вим Хоф | Метод Вима Хофа. Задействуй весь свой потенциал (2021) [FB2, EPUB]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050416.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
-02-Dua Lipa - Dance The Night (De Soffer Mix)
-03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
-04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
+Вим Хоф по прозвищу «Ледяной человек» – живая сенсация последних лет. Он восходит на Килиманджаро в одних шортах, пробегает босиком полумарафон за Полярным кругом. Испытывая на себе мощную силу холода, он научился контролировать дыхание, частоту сердечных сокращений и кровообращение, а также выдерживать экстремальные температуры, тем самым изменив представление научного (   Читать дальше...   )Жанр: Популярные книги о здоровьеПеревод: Дайс Е. А.Издательство: София МедиаФормат: FB2, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
+magnet:?xt=urn:btih:649FB59335FAE830B3B0DB870623220A3FA9CD06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,28 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844855   (1050415) от 28.12.2025
+###  Публикация: 1845656   (1050758) от 02.01.2026
 
-VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
+Задумай маленькую мечту / Dream a Little Dream (1989) BDRip [H.264] [AVO]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Smtve - I Have Everything Now Except
-02 - Riltim - Retona
-03 - Smtve - Let You Down
-04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
+Бобби, ленивый старшеклассник, однажды ночью, срезая путь через задний двор своего дома, сталкивается с Лейни, в которую недавно влюбился. Во время столкновения пожилой профессор Коулман Эттингер вместе со своей женой Джиной выполняют во дворе упражнение на медитацию. В результате столкновения подростков оба подростка потеряли сознание, и между четырьмя персонажами (   Читать дальше...   )Производство: США / Artisan EntertainmentЖанр: фэнтези, мелодрама, комедияРежиссер: Марк РоккоАктеры: Кори Фельдман, Кори Хэйм, Джейсон Робардс, Пайпер Лори, Гарри Дин Стэнтон, Мередит Сэленджер, Уильям МакНамара, Риа Павиа, Лала Слоутмен, Лаура Ли НортонПеревод: авторский (Сергей Визгунов), любительский одноголосый (zaswer5)Язык озвучки: русский, английскийСубтитры: русские (Hege Drag), английскиеПродолжительность: 01:54:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
+magnet:?xt=urn:btih:AC17A1EF03E1E539B6EF337397082B6C69C7B8D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,28 +482,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844857   (1050414) от 28.12.2025
+###  Публикация: 1845623   (1050757) от 02.01.2026
 
-VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+А. Халявин | Функциональная нейрохирургия в лечении нервных и психических заболеваний (2018) [PDF]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050414.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sergey Chekalin - New Year's Greetings for 2026!!!
-02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
-03 - Smtve - Send My Love
-04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
+В монографии рассматриваются вопросы использования методов функциональной нейрохирургической коррекции в комплексной терапии больных с малокурабельными нервными и психическими расстройствами. Представлены исторические аспекты проблемы, нейрофизиологические основы стереотаксических нейрохирургических вмешательств, показания к операциям, методика отбора больных, виды (   Читать дальше...   )Жанр: Популярные книги о здоровье, НеврологияИздательство: СпецЛитФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
+magnet:?xt=urn:btih:A09C9FBC6DAB5CAF08255A8BB3880F5A6079E004
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,25 +508,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844917   (1050413) от 28.12.2025
+###  Публикация: 1845625   (1050756) от 02.01.2026
 
-Александр Мартынов | Насаждение синей культуры (2024) [PDF, FB2, EPUB]
+Юрий Васильев, Кирилл Арзамасов и др. | Проведение статистического анализа на языке программирования R в медико-биологических исследованиях. (2025) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие предназначено для слушателей курса «Методология планирования и проведения научных исследований. Биостатистика» по научной специальности 3.1.25. Лучевая диагностика и не является самоучителем (в широком смысле данного понятия) по программированию и статистическому анализу данных на языке R, а представляет дополнение к очному курсу по предмету.Жанр: Популярнo о здоровье, Учебное пособиеИздательство: Издательские решенияФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA073C1868E33807B504E0A331825895A306D5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845627   (1050755) от 02.01.2026
+
+Антон Анатольевич Шадура | Диагностика коммуникативных способностей (2025) [PDF, EPUB]
 
 >>Разное (категория книг)
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050413.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На посошок, между первой и второй, за милых дам, за здоровье, кто опаздывает, тому наливают полный стакан, обмыть покупку, рождение детей, справить свадьбу, день рождения и т. д. Какие трюки выдумывают социальные технологи для спаивания населения, чтобы последнему казалось, что это его собственный выбор? Правда ли, что алкоголь в малых дозах полезен? Актуальная тема, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+Данная книга является практической. Представляет собой диагностический комплекс оценки коммуникативных способностей. С помощью книги (14 тестов) можно полно и максимально проверить коммуникационные навыки и способности.Жанр: Общая психологияИздательство: Издательские решенияФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21E2826A8647F682295FD322A6A84AF8B74DC08C
+magnet:?xt=urn:btih:0F5CE6DA8A72DF2D525C205BDDE041C56CDE50BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,109 +560,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844913   (1050412) от 28.12.2025
+###  Публикация: 1845634   (1050754) от 02.01.2026
 
-VA - 25 Years Of Anjuna Mixed By James Grant (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (02:55:30)
-01. Cubicolor - Got This Feeling (Mixed) 07:36
-02. Jody Wisternoff - Dapple (Mixed) 02:53
-03. 16BL - Nobody Seems To Care (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 09:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844326   (1050411) от 28.12.2025
-
-VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stive Morgan - On Thin Ice
-02 - Sardø - Corazón Sin Fronteras
-03 - Reteox - Faded Years
-04 - Echønova - Forgive Me(   Читать дальше...   )Жанр: Electronic Deep Chill House OtherПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844922   (1050410) от 28.12.2025
-
-3D print - Cults3D - ZEZ Studio - NEYTIRI AVATAR BUST [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свою коллекцию на новый уровень с новой моделькой аватара!Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DB65E06E533D9B0AED9E5FEE9C9F41D42986D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844919   (1050409) от 28.12.2025
-
-Джим Рон | Ключи к успеху. Вы можете изменить себя (2024) [PDF]
+Джессика Магуайр | Активатор блуждающего нерва. Упражнения, которые избавят от боли в животе, спине, груди и восстановят нервную систему (2025) [PDF, EPUB]
 
 >>Разное (категория книг)
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050409.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге вы найдете идеи, которые помогут вам принимать правильные решения в личной и семейной жизни, а также в бизнесе. Сегодняшний день может оказаться самым подходящим моментом для определения новых жизненных целей и ориентиров. Возможно, сейчас самое время взглянуть на свою жизнь и задуматься о том, каким человеком вы хотите быть, чем хотите заниматься и (   Читать дальше...   )Жанр: Саморазвитие / личностный ростПеревод: с англ. Жанна ШлайтайтеИздательство: ПопурриФормат: PDFКачество: Изначально электронное (ebook)
+Когда в последний раз вы чувствовали себя по-настоящему счастливым человеком?
+
+Каждый день мы сталкиваемся с таким количеством проблем, что и не замечаем, как постепенно начинаем привыкать к жизни под постоянным давлением. А ведь это губит все: наше здоровье, наши отношения, всю нашу жизнь. Если вы устали испытывать постоянное чувство неудовлетворенности и напряжения, (   Читать дальше...   )Жанр: Саморазвитие / личностный рост, Система упражненийПеревод: Иван ЧорныйИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:343A750E89549DB251EE153F1D483AE9F8F5F92E
+magnet:?xt=urn:btih:05E579D5A3CAC7177E0489FA83BA729999EA7387
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,25 +588,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844925   (1050408) от 28.12.2025
+###  Публикация: 1845663   (1050753) от 02.01.2026
 
-Александр Мартынов | Разбивая мифы (2025) [PDF, FB2, EPUB]
+Антон Анатольевич Шадура | Презентация. Как создать и провести (2025) [PDF]
 
 >>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050408.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разбиваем наиболее популярные мифы пропаганды и рассматриваем методы дискредитации нравственности, здорового образа жизни и их сторонников.Жанр: Психология обществаИздательство: СамиздатФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+В книге рассмотрен методический аспект проведения презентаций. Презентация показана как общая процедура демонстрации информации. В книге представлено: понятие презентации, цели и задачи, структура, виды, как создать и провести презентацию, роль и значение презентации в бизнесе, критерии эффективности, недостатки и преимущества. Практическая часть — чек-листы по оценке (   Читать дальше...   )Жанр: Просто о бизнесеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72B611B869674BFCE169C0831BC6A8EFEDBA112C
+magnet:?xt=urn:btih:15895BD6B82C51F4566D386A3E5E47D73ED8B550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,27 +614,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844926   (1050407) от 28.12.2025
+###  Публикация: 1845637   (1050752) от 02.01.2026
 
-OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [RU]
+Дарья Кусевич | Ревмомама. Как исполнить мечту выносить и родить малыша, если у вас ревматическое заболевание (2025) [PDF, EPUB]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050407.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rust используется в веб-разработке, в разработке системного ПО, мобильной разработке, разработке встраиваемых систем и даже в анализе данных.
-А ещё — в блокчейне и машинном обучении.
-На этом курсе вы изучите особенности работы с низкоуровневым ПО, подходы к разработке безопасного и отказоустойчивого ПО, а также основные библиотеки Rust.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 64:03:45
+Как стать мамой, если у вас диагностировали ревматическое заболевание? Об этом непростом, но безопасном и верном пути от начала и до конца рассказывает Дарья Кусевич – ученый, врач-ревматолог с опытом клинической работы более 10 лет.
+
+Вы получите ответы на тысячу вопросов о планировании, беременности, родах и послеродовом периоде с ревмозаболеванием. Врач расскажет, (   Читать дальше...   )Жанр: Здоровье и медицина, Практические рекомендацииИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC536E50A01EF13BD3281277BD09DFDE4C884832
+magnet:?xt=urn:btih:101DF250C407AFEFEFBE6F62F3BBE5695A2A630B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845664   (1050751) от 02.01.2026
+
+Задумай маленькую мечту / Dream a Little Dream (1989) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби, ленивый старшеклассник, однажды ночью, срезая путь через задний двор своего дома, сталкивается с Лейни, в которую недавно влюбился. Во время столкновения пожилой профессор Коулман Эттингер вместе со своей женой Джиной выполняют во дворе упражнение на медитацию. В результате столкновения подростков оба подростка потеряли сознание, и между четырьмя персонажами (   Читать дальше...   )Производство: США / Artisan EntertainmentЖанр: фэнтези, мелодрама, комедияРежиссер: Марк РоккоАктеры: Кори Фельдман, Кори Хэйм, Джейсон Робардс, Пайпер Лори, Гарри Дин Стэнтон, Мередит Сэленджер, Уильям МакНамара, Риа Павиа, Лала Слоутмен, Лаура Ли НортонПеревод: авторский (Сергей Визгунов), любительский одноголосый (zaswer5)Язык озвучки: русский, английскийСубтитры: русские (Hege Drag), английскиеПродолжительность: 01:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB67CD36E0333495C2732A07C9D0FD0EE01CCDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845230   (1050750) от 02.01.2026
+
+Лучшие хорроры 2025 года
+
+>>Форум Видео
+>>Пользователи NNM-Club рекомендуют!
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетное издание IndieWire выбрало самые страшные  фильмы ужасов: от больших франшиз до инди-хорроров.
+В списке есть и возвращение культовых серий, и странные авторские эксперименты, за которые жанр до сих пор любят.Топ-10 хорроров 2025 года:1. «Орудия»;(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1801025   (15371) от 07.06.2025
+
+Шаблоны - UI8 - Samsung Galaxy S25 Mockups Scenes [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши последние макеты Galaxy S25 с небольшими улучшениями корпуса и новыми цветами.Формат: PSDРазрешение файлов: 7000x4800 - 16500x16000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91706768A6A72735B8B4D820106207EB61857398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801001   (15363) от 07.06.2025
 
 Шрифты - Burntilldead - Creative Fabrica - Malevice Pro Font [OTF, TTF, WOFF]
@@ -648,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D3A6FA101CACA92B525FC99F64CAFB9D4BD0774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802706   (14202) от 18.06.2025
-
-Текстуры - Veila - Metal Flow - Envato - Liquid Metal Background Textures - 6XM23SU [JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Металлические текстуры в трех цветовых вариациях.
-Материал раздаётся с официальной документацией.Формат: JPG, PSDРазрешение файлов: 4500 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
 ```
 
 https://mybot314.ru/tekegram_catalog/

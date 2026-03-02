@@ -1,32 +1,3 @@
-###  Публикация: 1617341   (1035362) от 06.03.2023
-
-Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anywhere [5:31]
-02. Other Places [6:55]
-03. Mythology [7:55]
-04. For Heaven's Sake [8:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07154FBB803C87D398E43589DE34C5B3E4DE829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617352   (1035332) от 06.03.2023
 
 Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +716,35 @@ Hot Nasho - A Stitch in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A207EEE20D94FCF14654F61FEEBF933249C16DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444574   (1034457) от 02.02.2021
+
+Ingrid Savbrant - Never Looking Back (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr John (3:45)
+02. I'm Gonna Take That Train (5:46)
+03. I've Been Changed (3:41)
+04. Darkness (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437F5ED6B8B45A8670024770B08DEB23275AA5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

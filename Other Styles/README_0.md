@@ -1,3 +1,90 @@
+###  Публикация: 1608721   (1043501) от 31.01.2023
+
+VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соколовский хор 3:00
+02. Мохнатый шмель 2:40
+03. Что так грустно 2:50
+04. Вино в бокале 4:00(   Читать дальше...   )Жанр: Folk
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8A5E85C813FC6C251AB95D56E48E52D603B054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611036   (1041646) от 10.02.2023
+
+Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani Kuni (English Radio Mix) (English Radio Mix) [03:47]
+02. Ani Kuni (French Radio Mix) (French Radio Mix) [03:47]
+03. Ani Kuni Traditional (Native Radio Mix) (Native Radio Mix) [04:05]
+04. Ani Kuni (Tribal House Club Mix) (Tribal House Club Mix) [03:54](   Читать дальше...   )Жанр: Native American, New AgeПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D320D5E19582393546B7BE6822808806C32D3E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611126   (1041567) от 10.02.2023
+
+Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Califfa (Main Theme) (2:37)
+02. D'amore si vive (3:00)
+03. Love Theme (Version 2) (2:48)
+04. Prima e dopo l'amore (1:57)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 01:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610304   (1041524) от 10.02.2023
 
 Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
@@ -658,93 +745,6 @@ VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Eni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996629C1ED1717BE08790CDBAA676ECC6C3A8E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443283   (1034891) от 31.01.2021
-
-FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC|Lossless|tracks] <Folk, Electronic, Pop, Dance>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская музыкальная группа, выступающая на стыке электронной и фолк-музыки. Группа FOLKBEAT была образована студентками музыкального училища Гнесиных Аленой Минулиной, отвечающей за вокал, битбокс, loop station и вокалистками Светланой Шестопаловой, Светланой Ивановой, Марией Зибровой. Музыканты выступают как с собственными произведениями, так и с народными песнями.Коллекция содержит 2 альбома, 3 EP, 6 Синглов
-2015 - In Mixt
-2016 - Светлая встреча
-2015 - Порушка(   Читать дальше...   )Жанр: Folk, Electronic, Pop, DanceПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD53192941B07951A6C3DC18B348C2805FFE05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617377   (1034797) от 08.03.2023
-
-Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless|tracks] <Relax, Chillout, Jazz>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Days (3:20)
-02. Better Future (3:07)
-03. Prepare Great Meal (3:33)
-04. Melancholy Mood (3:02)(   Читать дальше...   )Жанр: Relax, Chillout, JazzПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2686958339FB11848402843BB62C226840CFCB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617498   (1034731) от 08.03.2023
-
-VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megabyte - Electric Lover
-02. Interface - Strange Touch
-03. Dancing Fantasy - Voodoo Jammin (The Eros Mix)
-04. Software - Present Voice(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

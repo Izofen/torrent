@@ -1,3 +1,228 @@
+###  Публикация: 593162   (132150) от 29.12.2012
+
+VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:17:12
+CD 1:
+01. Coldplay - Viva La Vida (3:55)
+02. Eminem Ft Rihanna - Love The Way You Lie (4:23)
+03. Editors - Papillon (3:50)
+04. Natalia - I've Only Begun To Fight (3:30)
+05. Golden Earring - When The Lady Smiles (4:36)
+06. 50 Cent Ft Justin Timberlake - Ayo Technology (4:07)
+07. Jasper Steverlinck Ft Steven & Stijn Kolacny - Life On Mars (4:00)
+08. Amy Winehouse - Rehad (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 06:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592045   (132149) от 29.12.2012
+
+VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adroa feat. Ajapai - Decimation
+2. Asking Alexandria - A Lesson Never Learned
+3. Brainpain - Ebola
+4. Brainpain - Power Of Evil
+5. Bring Me The Horizon - Blacklist (Spark Remix)
+6. Bring Me the Horizon - Sleep With One Eye Open (Tek-One Remix)
+7. Declare Your Funeral - Amnesia (Tim Tonik Remix)
+8. Demented Dimensions - I Swear to God
+9. Drowning Pool - Bodies (The Mask Remix)
+10. Excision - Brutal(   Читать дальше...   )Жанр: Dub Step/Heavy Electro/MetalstepПродолжительность: 02:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682069   (132027) от 05.12.2023
+
+VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inna Sigle - Шаг (03:00)
+ 002. Alice Harp - Просто Танцую (02:18)
+ 003. Andrei Ursu - Hai, Inima! (03:00)
+ 004. ANNA - ПДД (03:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EFD85453E28F9494507203A39EC1D65FDB98B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682234   (131760) от 06.12.2023
+
+VA - CarMusic 2 for lady (2023) [MP3|320 Kbps] <Pop, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arem Ozguc - Astronaut In The Ocean (2:36)
+02. Greesha - Baila (3:12)
+03. CryJaxx - Popstar (2:44)
+04. Remix Kingz - As It Was (Remix) (2:53)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 04:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5E2844D4A4195528394B604B6BC21BBA480427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595349   (131753) от 29.12.2012
+
+VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dutch South - Children 2012 (Davincii Remix) 03:28
+02. Re-Quest - Insomnia (Original Rework) 03:30
+03. New Life Generation - Enjoy The Silence (Pacific State Chillout Mix) 03:52
+04. Area 44 - Believe (90'S Anthems Version) 03:39
+05. Jamal Lamar - Ice Ice Baby (Dan Drake Levels Remix) 03:49
+06. Funky Animal - I Like To Move It (Twister On Madagascar Edit) 03:28
+07. Tetrixx - U Can't Touch This (Calabria Inc Remix) 03:36
+08. Party Control - Music (Reloaded Electro Mix) 04:04
+09. Vibez - Music Sounds Better With You (Ministry Of Funk Wmc Dub) 03:49
+10. D&J Prese Josh Harris - One More Time (Calvin Chase Remix) 03:57(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B03610A283AC1E265CF860198FC49A0889EA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596085   (131751) от 29.12.2012
+
+VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunnel Alliance-Blue (Feat Saffron Beat-Trance Future Reloaded Mix) 03:31
+02. Supershake-Gonna Make You Sweat (Everybody Dance Now) (Alex Twister Edit) 03:30
+03. Latin Warriors-Macarena (That's Now Club Mix #44)03:35
+04. G6-Ray of Light (I Like A Mashup Mix) 03:40
+05. Paradise City & Billionaire-Another Day in Paradise (Stereo Love Remix) 03:39
+06. Ammonia-Don't Speak (Said & Done Total Party Dance Mix) 03:50
+07. Coleda-I Will Always Love You (Twister Club Edit)03:44
+08. Kings of Commotion-Whoomp (There it is) (Accolade Cut) 03:22
+09. Supershake-Pump Up The Jam (Rfn Electro Funhouse Remix) 03:35
+10. Mind & Moore-Infinity (Retro's White Sensation Electro Remix) 03:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A6EAC825897E38C6EA8F5586C8DBD1C281CF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596045   (131651) от 30.12.2012
+
+VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Claudiu Sina - Painted Love
+02. Adrian Sina, Sandra N. - Angel feat. Sandra N. (South Blast! Nympho Angel Remix)Жанр: Pop, DanceПродолжительность: 02:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595957   (131645) от 30.12.2012
 
 VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
@@ -616,239 +841,6 @@ VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADF47FE7C0F434E03DE75C56E73BAB599193291E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490869   (130226) от 02.05.2012
-
-VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Hayk - В Мыслях С Тобою
-02. Руслан Алехно - Оглянись
-03. Aslan и Эльдар Далгатов - Опа Опа
-04. Рената Штифель - Душа
-05. Danila Rastv - Тайны
-06. Fontano - Революция (Radio Edit)
-07. 4POST (Дима Бикбаев) - Как Же Ты Могла
-08. Натали Катэрлин - Юра
-09. Киевэлектро - Поцелуй
-10. Олег Винник - Аэропорт2012Жанр: PopПродолжительность: 06:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57876E29175D4FACA497DF98C4FE8BE1463A7E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490532   (130018) от 01.05.2012
-
-VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Сателлит & Marlena feat. PolCox - Почему (Tonada Club Mix)
-02. Ариф - Любовь Моя
-03. Эльдар Далгатов - Я Влюблен
-04. Софья Лукьянова - People Like
-05. NEO - Суетных Улиц
-06. Антитила - А Я Видкривав Тебе
-07. Чай Вдвоём - Улетай
-08. Эрика (Еріка) - Ворожка
-09. Dino MC 47 - Игры С Огнём
-10. Джиган (Geegun) feat. Сосо Павлиашвили - Деньги2012Жанр: PopПродолжительность: 03:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3B3A18D65B81E939B039CE10A3F0F42A525289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682455   (129992) от 09.12.2023
-
-VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Electro Swingers, Paul Whiteman Orchestra - Happy Feet (Steampunk Version) [04:20]
-002. Wasted Wine - Shoreline Seniorita [04:09]
-003. Paul Whiteman & His Orchestra - Happy Feet [03:07]
-004. The Cog is Dead - The Depths Below [02:50](   Читать дальше...   )Жанр: Electro, Swing, CabareПродолжительность: 13:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489670   (129985) от 01.05.2012
-
-VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interval - Mind Vortex (original mix) (9:08)
-02. Silicon Sound - Combustion (6:46)
-03. Multiphase - In Retrospect (8:04)
-04. Future Radio - Sumer Sun (7:36)
-05. Erotic Dream - Use Your Imagination (7:04)
-06. Xshade & Loopstep - Light In Motion (9:04)
-07. Pan Papason - 2000 Years Ago (Ion remix) (8:04)
-08. Hi Profile - 01.1.81 (7:43)
-09. Datura - Lommesvuffer (8:59)
-10. Vice - With In (Phaxe remix) (8:00)(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 03:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490535   (129982) от 01.05.2012
-
-VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voxis - My Girl (Extended Mix)
-02. Marilyn Manson - Born Villain
-03. Morten Harket - Listening
-04. The Rasmus - Save Me Once Again
-05. B.o.B feat. Chris Brown & T.I. - Arena
-06. Slaughterhouse feat. Cee-Lo Green - My Life
-07. Don Omar - Zumba
-08. Narcotic Sound & Christian D - Vai (Extended Mix)
-09. Asher Roth feat. Meek Mill - Party Girl
-10. Sam Sparro - I Wish I Never Met You2012Жанр: PopПродолжительность: 03:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37860A1294A6B3E15F6C94D98EF6FE93A8B9D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489971   (129962) от 01.05.2012
-
-VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Герман - Белая Черемуха
-02. Black - Wonderful life
-03. О.Зарубина - На теплоходе музыка играет
-04. Joe Dassin - Et Si Tu N'existais
-05. Голубые Гитары - Зачем
-06. Passengers - Casino
-07. Игорь Николаев - Старая Мельница
-08. Bad Boys Blue - A word without you
-09. Алиса Мон - Подорожник
-10. Gina T. - Tokyo By Night2012Жанр: Pop,DanceПродолжительность: 06:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDF7F4B88F0AE50D3600E069FB522D4A25D8E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683008   (129924) от 09.12.2023
-
-VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Irina Поворознюк - Не Ной (02:49)
- 002. 84 - Люди Хотят В Космос (02:48)
- 003. 84 feat. Lookbuffalo - Магия (02:31)
- 004. 84 feat. Rekudo - Руки в Потолок (02:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

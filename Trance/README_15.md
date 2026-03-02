@@ -1,3 +1,177 @@
+###  Публикация: 1284974   (724066) от 24.02.2019
+
+DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend Of Dreamy (4:35)
+02. Light Fantasy (5:20)
+03. Back To The Universe (3:52)
+04. Relieve (4:01)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C65112EAAA268BCB58DF7E533B47E5901182AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218434   (723408) от 09.04.2018
+
+VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlusion - Interfered Volume I (continuous DJ mix)
+02. Neil Soun - Bending Light (intro mix)
+03. Aquya - Ataraxia (radio edit)
+04. Vitaly Shturm - Sensoria (radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586EE965B2790E82696C87B3B30A95274E997413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218397   (723402) от 09.04.2018
+
+VA - Nothing But. Total Trance Selections Vol. 02 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phillip J feat. Kim Casandra - Release Me (4 eYe Remix)
+02. Anna Lee - Fjords (2017 Rework) (Original Mix)
+03. Atherium - Sand (In The Hourglass) (Original Mix)
+04. Arman Bas - Iris (Ahmed Romel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57BBF998C26429993328D30C5546875440F8182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285217   (722774) от 25.02.2019
+
+VA - Uplifting Only: Orchestral Trance Year Mix 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro Mireno - It's Your Day (Intro Edit)
+02. Akku - Megumi (Emotional Mix)
+03. Ram & Stine Grove - RAMore (Daniel Skyver Remix)
+04. Illitheas - Levity (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3034E8E1E84A09572401D44E1427BECAE88EA03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218607   (721735) от 10.04.2018
+
+VA - Dark Sessions 044 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G8 - Boom And I Knock Them Out (Original Mix)
+02. John Askew - Battery Acid (Ellez Ria Arkam Reborn)
+03. Peter Plaznik - Outlaw (Cenk Basaran Remix)
+04. Rodas - Uplifted Dream (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF0B28E62F39B9E14793156008E71CB9B8AE90A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218602   (721728) от 10.04.2018
+
+VA - HTE Hard Trance Europe (Mixed by Space Raven & Nick The Kid) (2018) [MP3|320 Kbps] <Trance,Hard Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phutek - 1307 Dimension
+02. Neuroma Seroma - Opening (Original Dub Mix)
+03. Space Raven - Leaving Trains & Goodbyes
+04. Space Raven & S5 - Dream State(   Читать дальше...   )Жанр: Trance,Hard TranceПродолжительность: 05:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1EF2FA9F4E808FA8EFCA8A91BD5B0587BC8960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218771   (719642) от 11.04.2018
 
 VA - Dark Club Vol.4 (2018) [MP3|320 Kbps] <Trance>
@@ -571,180 +745,6 @@ VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F6B88DFAE289C48BCCC69D04F8E13A89C58C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220562   (704503) от 19.04.2018
-
-VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage & Morelli - While The Earth Sleeps (David Broaders Extended Mix)
-02. Shingo Nakamura - The Four (Yuji Ono Remix)
-03. Ltn,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Extended Vocal Remix)
-04. The Midnight - Wemoveforward (Talamanca Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B86045C422D5F22F947FCB327E10F7D230E6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220919   (700672) от 21.04.2018
-
-VA - We Are Trance April (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swen Van Der Endt - Gisborne (Extended Mix)
-02. Cosmic Gate - Ar (Extended Mix)
-03. Remarq - Desiderium (Extended Mix)
-04. Julie Thompson - Only You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440C3DCA40998E88AC643DD4EEE3766B767E0797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220927   (700526) от 21.04.2018
-
-VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Markus Schulz & Jes - Calling for Love (Original Mix)
-02.Markus Schulz & Emma Hewitt - Safe from Harm (Club Mix)
-03.Andy Moor & Adina Butar - Wild Dream (Original Mix)
-04.Dave Neven & Ellie White - Try for Me (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B6818F69AC97EB468CB7AC3A5CD12AA278E2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288074   (699506) от 09.03.2019
-
-VA - The Art of Skullduggery (Mixed by Greg Downey & Stoneface & Terminal) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincextz - Clockwork (Original Mix)
-02. Greg Downey - The Tone (Intro Mix)
-03. Greg Downey - Loco (Original Mix)
-04. Greg Downey & Bo Bruce - These Hands I Hold (Richard Durand Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BD5BEC64CD3FB57AC66BFDC4C365913B8440C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220985   (698807) от 22.04.2018
-
-VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Yorrin – Nebula (Original Mix)
-02. Melvin Sheppard – Telekinetic (Original Mix)
-03. Nicholson – Perfect Storm (Original Mix)
-04. Nicholson feat. Niki Mak – To The Flame (Charlotte’s Theme) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2F315F7FF4E9BC4683FFA06AF88781E74DD6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220983   (698801) от 22.04.2018
-
-VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forward - Fall of Illusions (Original Mix) 07:59
-02. Tektoys - Nothern Woods (Mundo Celebris Remix) 05:38
-03. Tom Stribol - Almost Panacea (Original Mix) 07:28
-04. Andrey Meduer - Progressive Strіngs (Original Mix) 08:22(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
 ```
 
 https://mybot314.ru/tekegram_catalog/

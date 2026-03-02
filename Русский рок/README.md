@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1856469   (1059081) от 28.02.2026
+
+Neverlove - SEXMETAL 2 (2026) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вперёд, Натуралы! [00:03:18]
+02. Крокодил [00:03:51]
+03. Вальс Предателей [00:02:48]
+04. Sexugroza [00:02:53](   Читать дальше...   )Жанр: Hard-Rock, Glam-MetalПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1079ECEFBD1372B7F50267D2DF0453890A627CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855567   (1058185) от 24.02.2026
 
 Гевал - 5 Releases (2009-2016) [MP3|320 Kbps] <Industrial-Metal, Gothic-Metal>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A56E1DAE2F51C6975EA6E5AEFF785EC9AA001E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842981   (1049024) от 17.12.2025
-
-Хитобои - Новогоднее настроение (2025) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049024.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новогоднее настроение
-2. По подаркам че
-3. Нихуя
-4. Олень(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F3EAB433E25C5B62CF6C50078E8FBF1DAC6F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1198632   (806039) от 12.01.2018
+
+Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip (часть 2)
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806039.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+061 Nicole Kidman & Ewan McGregor - Come What May
+062 Elize - Hot Stuff
+063 Blue - One Love(   Читать дальше...   )Жанр: PopФормат: AVIПродолжительность: 03:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEE511038BEA56A054EB3FD2AC7423395FD9770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380599   (805729) от 18.05.2020
 
 Бэтмен против Супермена: На заре справедливости / Batman v Superman: Dawn of Justice (2016) Hybrid [H.264/1080p] [Extended Ultimate Edition] [IMAX]
@@ -650,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D07D0A4FE03A9A616ED53B60D69A7A9725B4EEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200400   (796201) от 20.01.2018
-
-Whitesnake - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-LQ]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796201.jpg" />
-</div>
-
-
-###  Подробнее
-
-00 Intro
-01 Whitesnake - Come On
-02 Whitesnake - Bloody Mary
-03 Whitesnake - Ain't No Love In The Heart Of The City(   Читать дальше...   )Жанр: RockФормат: MKVПродолжительность: 04:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95DA6325F8468C018E086014CAE5DDB458C4384
 ```
 
 https://mybot314.ru/tekegram_catalog/

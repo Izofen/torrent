@@ -1,3 +1,206 @@
+###  Публикация: 1439081   (1040373) от 11.01.2021
+
+VA - Beatport Techno: Electro Sound Pack #219 (2021) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера нового 219-го микстейпа Beatport от самых востребованных европейских диджеев, в который вошли отличные композиции в стиле техно и электро минимала. Вас ждет отличный треклист из 100 оригинальных композиций электроники, каждая из которых выполнена в уникальном выдержанном классическом техно-стиле.001. Unclear - Kniphofia
+002. Alfredo Mazzilli - Eternal Memories
+003. Jonnyknox - Shutter
+004. Bestia - Solar System(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 10:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DBBA930C9CFD9F06CB82E3E9705F83E6C5CC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439082   (1040372) от 11.01.2021
+
+VA - Beatport D&B: Electro Sound Pack #218 (2021) [MP3|320 Kbps] <Drum And Bass, Electro, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, которая взбудоражит Ваш слух и зарядят позитивом в 218-м сборнике от Beatport! Сто самых отборных треков зажигательных драм хитов и музыкальных новинок линейки Bassline составляют плейлист представляемого лонгплея.001. Zengineers - Interlude
+002. Blvck Crowz - Devil's Door
+003. Victorv - Miracles
+004. D-Sabber - Mushroom Soup(   Читать дальше...   )Жанр: Drum And Bass, Electro, BasslineПродолжительность: 08:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D45C304A45DF5C678307AEDB27C830CF687ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439080   (1040370) от 11.01.2021
+
+VA - Merry Chrirtmas EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рады представить Вашему вниманию весеннюю новогоднюю новинку - отличную позитивную подборку электронной популярной музыки под названием "Merry Christmas EDM Party". Композиции лонгплея завоюют внимание слушателя своей танцевальной энергетикой и эмоциональной насыщенностью.001. Soultekk - I Can Do
+002. Dj Xris2 - Dancing Queen
+003. Solon - Together All
+004. Sound Breakers - The Fog(   Читать дальше...   )Жанр: Dance, Electro, Techno, HouseПродолжительность: 08:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598E606A53F3FF69D0BF157E66744153382E1EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611700   (1040349) от 15.02.2023
+
+VA - Sonic - Before the Sequel (2012)[MP3|320 Kbps] <Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная музыка из игры -01. Circumstance - Opening
+02. Before the Sequel - Title Screen
+03. Rivulets - For Hilltop Heights Act 1 (ft. Sky Sanctuary (S3&K))
+04. Downpour - For Hilltop Heights Act 2 (ft. Green Hill Zone (Sonic 1))(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362D35D41B3AFAA8D4F8A1EF42DB684B81DC35A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611328   (1040322) от 15.02.2023
+
+Sonic Boom (Hack) (Soti, Tweaker, Nineko, Roxahris) (2009)[MP3|320 Kbps] <Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка из хака -01. Gravity Beetle Stage (Megaman X3)
+02. Infinity Mijinion Stage (Megaman X6)
+03. Blast Hornet Stage (Megaman X3)
+04. Storm Eagle Stage (Megaman X)(   Читать дальше...   )Жанр: ScoreПродолжительность: 03:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67808DF12E12406AF7588B09CD3393ECE0BC417D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612255   (1040306) от 15.02.2023
+
+Omega - Movin' World (2023) 2CD Compilation  [MP3|320 Kbps] <Rock, Psychedelic, Space Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bird [04:21]
+02. Silver Rain [05:12]
+03. Don't Keep Me Waitin' [07:26]
+04. The Hall Of Floaters In The Sky [02:51](   Читать дальше...   )Жанр: Rock, Psychedelic, Space RockПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDB54EDC7E06225F5B7F47EE0F981F44A728622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612192   (1040304) от 15.02.2023
+
+Sam 'The Man' Taylor - Sax Compilation (2023) [MP3|320 Kbps] <Jazz, Sax>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Reine Saba
+02. Thanks You Tonight Night Fog
+03. The Shadows Adore
+04. Yogiri Yo Ima Yoru Mo Arigatou(   Читать дальше...   )Жанр: Jazz, SaxПродолжительность: 08:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBA6AD61F6C81333E57784840537EC515DC274A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439113   (1040288) от 11.01.2021
 
 VA - Best Live Albums (2020) [MP3|320 Kbps] <Rock, Reggae, Blues>
@@ -542,209 +745,6 @@ VA - Have Respect (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F885847682EF05FEB93F34F061D2A3894B664B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439644   (1039494) от 14.01.2021
-
-VA - Sexy Songs 2021 (Slow Bass RnB) [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Ross, The Weeknd - In Vein (4:21)
-02. Bazzi - Mine (2:14)
-03. Lux Thugs - Surfboard (5:04)
-04. PARTYNEXTDOOR, Drake - LOYAL (3:18)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 05:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A30B4A0BE5F8F157D6EF41CD022852D23080662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440039   (1039080) от 16.01.2021
-
-VA - Запасные крылья (2021) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fi - Взлетай (3:17)
-02. Весна - Белые крылья любви (3:28)
-03. Братья Грим - Ресницы (2:52)
-04. Денис Майданов - Пролетая над нами (3:56)(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8B32C8FFD9AC7B963A8A678FDB2066DC817DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440041   (1039069) от 16.01.2021
-
-VA - Снег в июне (2021) [MP3|320 Kbps] <Pop, Rock, Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вася Обломов - Грубым даётся радость (4:02)
-02. Павел Пиковский, Сергей Чиграков и Олег Митяев - Детство (4:03)
-03. Павел Фахртдинов - Зимний вечер (2:08)
-04. Адлер Коцба - Письмо к женщине (2:39)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F2D2800091E10F888E3536377193308921FE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440259   (1039068) от 16.01.2021
-
-VA - Rap Francais (2021) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех любителей французского рэпа и не только. Также для тех, кто его никогда не слышал. Так как услышав его, вы точно его полюбите!001. Naive New Beaters - Make Way (Feat Jeanjass)
-002. 2Pit - Thérapie
-003. Don Max - Parmi D'autres
-004. Twinsmatic - Raison (Feat. Marj)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 06:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0ED810742EB1631FCD3A43A4FCC78C9151AC15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440282   (1039044) от 16.01.2021
-
-VA - Music News vol.64 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avy feat. lowlife - Лилии (03:15)
- 002. Alina Artts feat. Slider & Magnit - Белые Цветы (03:01)
- 003. Aly & AJ - Listen!!! (03:50)
- 004. Amelie Martinez - And You Cut (03:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC08895E4D76E6E95E5E6C495253727183B4AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440072   (1039035) от 16.01.2021
-
-VA - не Громкие новинки недели 94 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passmurny - Блик (5:02)
-02. Йорш - В Сердце Игрушки (4:09)
-03. Санджая - Иллюзия Счастья (4:07)
-04. Екатерина Бродская - Любовь и Разлука (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E0CA84CA512EE8118AA107BB6E617A5B91CC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440150   (1039019) от 16.01.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 15.01.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ofenbach & Quarterhead feat. Norma Jean Martine - Head Shoulders Knees & Toes (3:03)
-02. Joel Corry feat. MNEK - Head & Heart (2:46)
-03. Dotan - Numb (3:38)
-04. Alok & Ilkay Sencan feat. Tove Lo - Don't Say Goodbye (3:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52C7270FCB06DCCE57C80D286B97477FDC6FB14
 ```
 
 https://mybot314.ru/tekegram_catalog/

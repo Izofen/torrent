@@ -1,3 +1,212 @@
+###  Публикация: 1036236   (620839) от 20.07.2016
+
+VA - Blues: Love & Devotion (2016) [MP3|320 Kbps] <International, Jazz, Vocal,Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slim Harpo - I Got Love If You Want It (02:49)
+02. B.B. King - To Know You Is to Love You (03:50)
+03. Clarence - I'll Be There {If You Ever Want Me) (04:46)
+04. Etta James - I Just Want to Make Love to You (03:09)(   Читать дальше...   )Жанр: International, Jazz, Vocal,BluesПродолжительность: 01:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD715DFED0407BB1144EC86B9F334139F405A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036316   (620837) от 20.07.2016
+
+VA - Back in Blue (A Blues Tribute to AcDc) (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geoff Achison – Hell’s Bells
+02. Chase The Sun – Shoot to Thrill
+03. Gail Page And Jan Rynsaardt – What Do You Do for Money Honey
+04. Marshall Okell – Given the Dog a Bone (feat. Triple Nip)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890F80FED547DB9290AF1978DA10720F2B624A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522699   (620815) от 14.07.2012
+
+VA - Legendary Russian Rock (2012) [MP3|224-265 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воскресение — По Дороге Разочарований
+ 02. Кино — В Наших Глазах
+ 03. Кино — Звезда По Имени Солнце
+ 04. Кино — Хочу Перемен
+ 05. Кипелов — Я Свободен
+ 06. Бригада С — Дорожная
+ 07. Ддт — Ленинград
+ 08. Коррозия Металла — Фантом
+ 09. Крематорий — Павлик Морозов
+ 10. Крематорий — Таня(   Читать дальше...   )Жанр: RockПродолжительность: 06:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8955092066B80617F0327690EFC158D155C489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229901   (620792) от 09.06.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 08.06.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jax Jones - Breathe (Ina Wroldsen)
+02. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+03. Dynoro feat. Gigi D'Agostino - In My Mind
+04. Jah Khalib - Медина(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AF4B6DDF3A0A8228118D01FA5BCC6DFDF04FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229951   (620779) от 09.06.2018
+
+VA - Музыкальные Новости. Июнь (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время и Стекло - Е,Бой 3:01
+02. Nicky Jam feat. Will Smith & Era Istrefi - Live It Up (Official Song 2018 FIFA World Cup Russia) 3:28
+03. PHARAOH - На луне 2:46
+04. T1One x Осяпыч - Unloved 3:34(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553940A4559C4C4DD1F15C238F9E4704DC2DCAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295441   (620620) от 12.04.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 12.04.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa & BLACKPINK - Kiss And Make Up (3:09)
+02. LP - Recovery (3:54)
+03. Aaron Smith feat. Luvli - Dancin (Krono Remix) (3:17)
+04. Calvin Harris & Rag'n'Bone Man - Giant (3:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C23CE506F2B2ECF9FBD029B4834D8FAC8E6BD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544664   (620468) от 16.04.2022
+
+Michelle Gurevich - Compilation (2022) [MP3|320 Kbps] <Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Eyes Unchanged
+02. Kiss in Taksim Square
+03. Kiss
+04. Aviva(   Читать дальше...   )Жанр: AlternativeПродолжительность: 03:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C04E3A36A96AD071A0C64CBC275D5D445D5D5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910884   (620362) от 21.06.2015
 
 VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
@@ -560,233 +769,6 @@ VA - Ultimate Kizomba Hits (2016) [MP3|320 Kbps] <Workd, Zouk, Kizomba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81CAA8D2B3B2976718D2301F322FED6F7408A894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036656   (619142) от 21.07.2016
-
-VA - Al Mira Presents - Classic in Modern (2004) [MP3|320 Kbps] <Neo Classic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jules Massenet - Meditation    06:12
-02. Frederic Chopin - Prelude In E Minor    07:00
-03. Tomaso Albinoni - Adagio    05:34
-04. Johann Sebastian Bach - Air    05:05(   Читать дальше...   )Жанр: Neo ClassicПродолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D44D34DF5C069094143638DD255057C8CA819B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036524   (619139) от 21.07.2016
-
-VA - Дальнобойный Шансон (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вячеслав Московкин - По Встречной
-02. Михаил Княжевич - Авто-Леди
-03. Юлия Андреева - Попутчик
-04. Андрей Дубов - Начинается Путь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F914A4E26058979D929D72E018D207278DDF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522848   (619125) от 15.07.2012
-
-VA - Блатной Коктейль (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ян Марти - Вечер синий
-02 Сергей Любавин - Нежность
-03 А.Т.А.С. - Вольный ветер
-04 Сергей Сухачёв - Ты у меня одна
-05 Ильдар Южный и Диана Теркулова - Побежали ручьи
-06 Лукьяновка - Гоп-стоп
-07 Алексей Брянцев - Я буду рядом
-08 Борис Погодин - Рыбалка
-09 Сборная Союза - Шпана
-10 Алексей Степин - Пью до дна!Жанр: ШансонПродолжительность: 06:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECDC6897B8CB52FCECCCDFC9BEC6DF35171FA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523087   (619119) от 15.07.2012
-
-VA - MAXI. EuroHit от MTV (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reфorma - Пусть (Remix)
-02. Паша Люмин & Даша Шувалова - Делай меня
-03. The Wanted - Chasing The Sun
-04. Градусы - Заметает
-05. Chris Brown feat. Pitbull - International Love
-06. Example - Changed The Way You Kiss Me
-07. Pulsedriver - Take It Home (Topmodelz Mix)
-08. MC Zali Fidel Wicked - Носом по кокосам (Alex Life S Mash Up)
-09. Carly Rae Jepsen - Call Me Maybe
-10. Steve Aoki feat. Wynter Gordon - Ladi DadiЖанр: Pop,DanceПродолжительность: 04:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AE553FC5970EDA579762F67890AC5D91F5D9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522820   (619043) от 15.07.2012
-
-VA - Trance Top 100 2012.1 (2012) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance, Progressive Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619043.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Serge Devant feat. Emma Hewitt - Take Me With You
-002. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-003. Rafael Frost - In The Air
-004. Heatbeat - Rocker Monster (Original Mix)
-005. Jake Shanahan feat. Tyler Sherritt - On The Otherside (Original Mix)
-006. Jamie Harrison - Collider (Original Mix)
-007. John '00' Fleming - The 10th Life
-008. KhoMha - Mind Gamer (Original Mix)
-009. Lange & Gareth Emery - This Is All Out (Heatbeat vs. Andy Moor Remix - Lange Mash Up)
-010. Maixon & Dragen - Rio De Janeiro (Original Mix)(   Читать дальше...   )Жанр: Vocal Trance, Uplifting Trance, Progressive Trance, TranceПродолжительность: 12:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A25C21CBCB6B344D2BED34A84774FA049C9166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522932   (619034) от 15.07.2012
-
-VA - Музыка летнего настроения (2012) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619034.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Елена Терлеева - Я За Тобой (Radio Rip) (3:28)
-2. Dan Balan - Freedom (Slow Version) (3:19)
-3. Bobina feat. Винтаж - На-На-На (3:37)
-4. Глюкоза и Макс Барских - Адреналин (3:41)
-5. Юлия Михальчик - Матушка-Река (3:33)
-6. Nickelback - When We Stand Together (3:10)
-7. Far East Movement - Jello (Feat. Rye Rye) (2:52)
-8. Robert Miles - Children (Mian Timore Remix) (8:15)
-9. Барби - Когда Ты Рядом (3:39)
-10. MainstreaM One - Под Тёмными Очками (3:22)Жанр: PopПродолжительность: 06:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC98A39913B4543B44D3B410890809DB974CEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036576   (618983) от 21.07.2016
-
-VA - Горячая поп сотня. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lyuba Almann - Мы Не Прожигаем Жизнь
-002. The Dollyrots - Little Medusa
- 003. Evgen Dia - Меланхолия
-004. Rae Sremmurd - By Chance Ft Mike Will Made It(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594E5BD016EA793FF396F25C68401B12E1128456
 ```
 
 https://mybot314.ru/tekegram_catalog/

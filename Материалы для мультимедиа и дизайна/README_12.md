@@ -1,3 +1,29 @@
+###  Публикация: 1451300   (1028450) от 01.03.2021
+
+Растровый клипарт - ArtStation - Huge atlas pack (250) | Foliage | Spice | Decals [TIFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было бы бесплатно, если бы ArtStation разрешила: Этот пакет содержит 276 резких текстур в разрешении 2k..Формат: TIFFРазрешение файлов: 2048x2048-4200x2800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0A5025A088BDFB93B9ED4172773E8710650493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451591   (1028304) от 02.03.2021
 
 Шаблоны - Creative Market - Heart Shaped Chocolate Box Mockup - 5851006 [PSD]
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C463FE8B00391864A2956C8F3437F18C90837DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455597   (1025615) от 19.03.2021
-
-NNM Club Sound Cleaner's - Clean Music Tracks 3 by andgelo12 [MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных треков очищенных от "голосовых вставок" ("watermarks").
-Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DC452635A6379B76992A6918A32623AC39BC44
 ```
 
 https://mybot314.ru/tekegram_catalog/

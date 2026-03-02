@@ -1,3 +1,206 @@
+###  Публикация: 1728490   (54049) от 07.06.2024
+
+VA - Music News vol.386 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54049.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NE NASTYA - Аллергия (02:18)
+ 002. 5УТРА - Как Твои Дела (02:55)
+ 003. ALANA - Атмосфера (02:43)
+ 004. ARi Sam Vii - Ночами Целоваться (03:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AE86C2A95EB817F4054DE4FAFE164ECE49A694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728427   (54032) от 07.06.2024
+
+VA - Music News vol.385 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CHINCHILLA - Caps Lock (03:06)
+ 002. A Day To Remember - Feedback (02:33)
+ 003. a.Ja - Не Страшно (02:06)
+ 004. Abee Sash - Runaway (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21BF956BFA40FAD70307ACC32A11710AE71BB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728181   (53962) от 08.06.2024
+
+VA - Biker Blues, Hard Times (2024) vol.2 [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Bonamassa - Midnight Blues (Live) [08:39]
+002. Snowy White, The White Flames - Riding the Blues [03:47]
+003. Albert Cummings, Tommy Shannon - Lonely Bed [07:37]
+004. Aynsley Lister - Need Her So Bad [07:00](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 13:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF578E2CC813E452447553B83A33E62680535F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727971   (53928) от 08.06.2024
+
+VA - Biker Blues, Hard Times (2024) vol.1 [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53928.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Bonamassa - Midnight Blues [07:50]
+002. Ruthie Foster, Meshell Ndegeocello - Singing the Blues [03:45]
+003. Vintage Trouble - Shows What You Know [04:13]
+004. Ana Popovic - Johnnie Ray [03:45](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 12:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16B2B514A2AD314BFC45A98B19FD5A1461B31FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728496   (53922) от 08.06.2024
+
+VA - Compilation Easy Listening part 85 (2024) [MP3|320 Kbps] <Instrumental, Easy Listening, Sax, Trumpet, Clarinet>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sil Austin - I'm in the Mood for Love
+02. Sil Austin - This Guy's in Love With You
+03. The Royal Grand Orchestra - Harlem Nocturne
+04. Sil Austin - The Lonely One(   Читать дальше...   )Жанр: Instrumental, Easy Listening, Sax, Trumpet, ClarinetПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D711C8E629C57C3551D37C2D82F5BBCAA18E666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728941   (53868) от 09.06.2024
+
+Okean Elzy - This Is Okean Elzy (2024) [MP3|320 Kbps] <Rock, Folk Rock, Indie Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я так хочу (4:41)
+02. Хочу напитись тобою (3:40)
+03. Холодно (4:31)
+04. Там де нас нема (3:27)(   Читать дальше...   )Жанр: Rock, Folk Rock, Indie RockПродолжительность: 03:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7430C11F2EB8EB26AEF9FD5FF274779D776F3DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728811   (53791) от 10.06.2024
+
+Игорь Тальков - Коллекция (2022) [MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник лучших композиций поэта и композитора Игоря Талькова. Многим сейчас не хватает такой настоящей поэзии в музыке, ироничной, умной, смысловой и лиричной. Всюду завалено всё пустой безликой и в большинстве бездарной попсой. Созданной для самолюбования и отупения молодёжи. Все треки взяты с фирменных CD изданий, без ремастеринга и всяких вмешательств. Оригинальное (   Читать дальше...   )01. Солнце уходит на запад
+02. Друзья-товарищи
+03. Летний дождь
+04. Звезда(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 04:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510F91A01C7FCEB7C819DEA01BC5A70FADCF7837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729117   (53772) от 10.06.2024
 
 Sacred Spirit - Native Compilation (2024) [MP3|320 Kbps] <Native American, New Age, World>
@@ -542,209 +745,6 @@ VA - Music News vol.393 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85CC2CDF6DF646F259CDC9356960205D1CF20AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733564   (51661) от 29.06.2024
-
-VA - Лето на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artemas - I Like The Way You Kiss Me (2:22)
-02. Sabrina Carpenter - Espresso (2:55)
-03. Ariana Grande - We Can't Be Friends (Wait For Your Love) (3:48)
-04. Teddy Swims - The Door (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312CF619304D16F52A70D5BF615388CA83F35288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733616   (51647) от 29.06.2024
-
-VA - Дискотека 2024 Dance Club Vol. 224 (2024) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. MIROLYBOVA - Лето (2:20)
-002. Armin van Buuren, Vanessa Campagna - Vulnerable (3:19)
-003. Ad Voca - Down Low (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D187E67208BD470E5693C7C2B523DD5C43E65F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733233   (51646) от 29.06.2024
-
-VA - compilation part 90 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Blue - Back to Paradise
-02. Talking Blue - Elven Whispered
-03. Alex Blue Feat. Judith - Dance
-04. Blue Talking - Calling Out for Love(   Читать дальше...   )Жанр: Dance, EurodiscoПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40257EB76390D3F635F975186CAA751A89CC53DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733488   (51636) от 29.06.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 28.06.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Harlow - Lovin On Me (2:19)
-02. Ariana Grande - We Can't Be Friends (Wait For Your Love) (3:48)
-03. Disturbed - The Sound Of Silence (Cyril Remix) (3:05)
-04. Artemas - I Like The Way You Kiss Me (2:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08AE29A15C02BB6731CCDAA8C4C963E1E0B2075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733678   (51501) от 30.06.2024
-
-VA - German Top 100 Single Charts 28.06.2024 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. $OHO BANI, Herbert Grönemeyer & Ericson - ZEIT, DASS SICH WAS DREHT (2:34)
-002. AYLIVA & Apache 207 - Wunder (2:56)
-003. Artemas - i like the way you kiss me (2:22)
-004. 6PM Records, Ski Aggu, Haaland936 & Sira - JUNGE BALLER (2:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733235   (51497) от 30.06.2024
-
-VA - compilation  part 92 Relaxation (2024) [MP3|320 Kbps] <New Age, Relaxation>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frantz Amathy - Angelic Garden
-02. Frantz Amanty - C?ur D'etoile: Les Anges De Ton C?ur
-03. Logos - Connexion
-04. Michel Pepe, Logos - Horizons Eternels(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 08:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AF2D8A0F3E459EF74A69BBDF27C98EA1B6DB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733481   (51487) от 30.06.2024
-
-VA - РАДИО БАТЯ - 016 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T. Ark - Under Cover Lover (06:13)
-02. Олег Митяев - Небесный калькулятор (04:20)
-03. Thomas Anders - Modern Talking (Connect The Nation) (03:33)
-04. Secret Service - When The Night Closes In (04:10)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F261D951CFB00986D47F848C25A2C21EEFF641
 ```
 
 https://mybot314.ru/tekegram_catalog/

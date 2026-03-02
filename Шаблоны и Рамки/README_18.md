@@ -1,22 +1,22 @@
-###  Публикация: 1037195   (615576) от 23.07.2016
+###  Публикация: 1045499   (558985) от 23.08.2016
 
-Шаблоны - CreativeMarket - Devices - Mockups V02 [PSD]
+Шаблоны - Elegantflyer - Restaurant Menu – Free PSD Tri-Fold PSD Brochure Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615576.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования. В пару кликов мышкой вставьте свои фото для достижения нового эффекта отображения.Формат: PSDРазрешение файлов: 4000x2560 px\300 dpi
+Двух-сторонняя складывающая ресторанная брошюрка с меню.Формат: PSDРазрешение файлов: 3657х2631 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:782B26FCEA2339D2DD082DB96C7B27754FB732EA
+magnet:?xt=urn:btih:8EFC63366A3F62BDAE8BB2417ED036C32A2C7251
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037216   (615486) от 23.07.2016
+###  Публикация: 1045589   (557658) от 24.08.2016
 
-Шаблоны - CreativeMarket - Devices - Mockups V03 [PSD]
+Шаблоны - Bus Trip V1 Flyer PSD Template + Facebook Cover [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615486.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4000x2560px\300dpi
+Флаер и Facebook Cover для Вашего творчества.
+Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1350x1950 / 850х313 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D90B3E4FE891EB994F602F75E07359F8901507
+magnet:?xt=urn:btih:A724898C892F58557C56CCC9DB43AEE9C154D5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037179   (615485) от 23.07.2016
+###  Публикация: 924461   (557344) от 04.08.2015
 
-Шаблоны - CreativeMarket - Devices - Mockups [PSD]
+Шаблоны -  Зеленая природа [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с различными девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования картинок.Формат: PSDРазрешение файлов: 4000x2560px\300dpi
+Многослойные PSD исходники для вашего творчества.
+Воздушные шары и Зеленая природа - 50 шт.Формат: PSDРазрешение файлов: от 2000х1314 до 3000х1971
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040A1AE6FCE9FCC97C0814A54AC5A8A49FC395A7
+magnet:?xt=urn:btih:C46B95DAAE04460743C9F7D2B0BF380B834796BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037238   (615473) от 23.07.2016
+###  Публикация: 924671   (557308) от 04.08.2015
 
-Шаблоны - CreativeMarket - Devices - Mockups V05 [PSD]
+Шаблоны - GraphicRiver - Burger Restaurant Mockup [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615473.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Меню в бургернойФормат: PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:940CBA6DB15D8B718D48816A5F171113D0441B27
+magnet:?xt=urn:btih:59C7211A18BEC7278BAD4549CADE7B624DECCCF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037278   (615388) от 23.07.2016
+###  Публикация: 1305711   (556079) от 01.06.2019
 
-Шаблоны - CreativeMarket - Devices On Garden - Mockups [PSD]
+Шаблоны - GraphicRiver - Kids Banners Set - 6949840 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615388.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 5000x3300px\300dpi
+Детский многофункциональный веб-баннер. Этот набор содержит 21 баннер разных размеров (каждый размер баннера в отдельном файле .PSD) Идеально для продвижения любых ваших товаров, сайтов, блогов, событий - любой рекламной кампании! Все баннеры полностью просты и многослойны, так что вы можете легко редактировать все цвета и текст по мере необходимости.Формат: PSDРазрешение файлов: 120x240 - 970x250
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC65B461A0B8E28C8660329DACABDC7FD79008D2
+magnet:?xt=urn:btih:5DC9961923C0A392D968877900E8F1CDFB81D6B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +130,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037172   (615384) от 23.07.2016
+###  Публикация: 1306599   (555522) от 05.06.2019
 
-Шаблоны - CreativeMarket - Corporate Flyer 02 [PSD]
+Рамки - Подборка рамочек от sharov08 [PSD, PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615384.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2 PSD-файла А4 в двух цветовых решениях с обрезом для печати 25 мм.Формат: PSDРазрешение файлов: 2539х3567px\300 DPI
+подборка многослойных PSD и PNG шаблонов-рамок для фото
+от автора sharov08Формат: PSD, PNGРазрешение файлов: 2480x3508
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9FA30F6F103266342DDCF522390A40FC704BE70
+magnet:?xt=urn:btih:53C486C3F24B334EF47893C8BE5F380857329335
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037295   (615378) от 23.07.2016
+###  Публикация: 1307084   (555287) от 07.06.2019
 
-Шаблоны - CreativeMarket - Devices On Wood - Mockups V2 [PSD]
+Шаблоны - Adobe Stock - Open Magazine Cover on Gray Background Mockup - 264497626 [PSDT]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615378.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3500x2300px\300dpi
+Макет журнала для ваших проектов.Формат: PSDTРазрешение файлов: 6500x4700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F70F15ABF52AA890C5138B5A5D2B4059F08ABC42
+magnet:?xt=urn:btih:ACC98FE4925EF5C527D29C3378197FE1928DB013
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037287   (615375) от 23.07.2016
+###  Публикация: 1308317   (554088) от 13.06.2019
 
-Шаблоны - CreativeMarket - Devices On Wood - Mockups [PSD]
+Шаблоны - TheHungryJPEG - instagram Stories Template-Wedding - 3580445 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615375.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3500x2300px\300dpi
+Свадебные инстаграм шаблоны для ваших проектов.Формат: PSDРазрешение файлов: 1266x2250
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FD6875BD6FD8361CB6F308C4A07D206D8D5CFEB
+magnet:?xt=urn:btih:348DA58CFE330609DC1710684944E4B0EBDD5166
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037247   (615369) от 23.07.2016
+###  Публикация: 1308375   (553912) от 14.06.2019
 
-Шаблоны - CreativeMarket - Devices And Food - Mockups [PSD]
+Шаблоны - GraphicRiver - Ladies Night Flyer Bundle - 23903030 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615369.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Полностью редактируемые шаблоны рекламных флаеров.Формат: PSDРазрешение файлов: 1275×1275
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38E831A26B7ED449FA66ABD6B6AF81DED090C6D0
+magnet:?xt=urn:btih:6EF8F2F11629FD10CF368FC41AC339F4CA3CFFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037165   (615288) от 23.07.2016
+###  Публикация: 1308448   (553898) от 14.06.2019
 
-Шаблоны - CreativeMarket - Corporate Flyer [PSD]
+Шаблоны - GraphicRiver - Night Club Flyer - 23832626 [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615288.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла формата А4 в разных цветовых решениях с обрезом для печати 25 мм.Формат: PSDРазрешение файлов: А4/300 dpi
+Полностью редактируемый шаблон рекламного флаера.Формат: PSDРазрешение файлов: 1275×1275
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3666C41BE717EBE0DFB7D704EB41E22F5B1550BD
+magnet:?xt=urn:btih:1666719EBF8752306EC8C7C1A90845D07E9C31E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +261,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037094   (615278) от 23.07.2016
+###  Публикация: 1308440   (553874) от 14.06.2019
 
-Шаблоны - CreativeMarket - Billboards - Mockups V02 [PSD]
+Шаблоны - Creative Market - Fashion Instagram Stories Template - 3829057 [PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615278.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Второй том рекламных щитов и вывесок. 8 PSD файлов с функцией смарт объекта, позволяющей легко и быстро редактировать шаблоны под ваши нужды.Формат: PSDРазрешение файлов: 4000x2700 px/300 dpi
+Модные шаблоны для Instagram Stories.Формат: PSD, JPGРазрешение файлов: 1080×1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10B3A59A01F4745BEFD3FB6121CD90DF50298CB7
+magnet:?xt=urn:btih:87B4617C3108B65789B8FB84E4A539A8C4073510
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +287,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037062   (615164) от 23.07.2016
+###  Публикация: 1309385   (550975) от 19.06.2019
 
-Шаблоны - CreativeMarket - Urban Poster Mock-up VOL.7 [PSD]
+Рамки - Renderosity - Moonbeam's Pink Valentine - 97392 [PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615164.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Седьмой том сборника "городского постера". Оригинальное и довольно своеобразное представление ваших творческих работ широкой аудитории.Формат: PSDРазрешение файлов: 2334х3500 - 4368х2912 px
+«Moonbeam's Pink Valentine» для влюбленных - это уникальная коллекция с цифровым рисунком в нежно-розовых оттенках. Этот пакет содержит набор готовых фонов, рамок, отдельных элементов, отдельных виньеток. В комплект также входит готовая открытка на День Святого Валентина для личного пользования.Формат: PNG, JPGРазрешение файлов: 1496x1053-3600x3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:936AE87DCCF5A21D34411159D08371645027A6D7
+magnet:?xt=urn:btih:EA634BD8EAE5993AB9FCDA280B4987C63B447E97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +313,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037160   (614982) от 23.07.2016
+###  Публикация: 1046557   (550802) от 28.08.2016
 
-Шаблоны - CreativeMarket - Business Card - Mockups [PSD]
+Шаблоны - CreativeMarket - Color splashes & halftones on photo [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614982.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оригинальное представление визиток. Вся прелесть этих PSD-файлов состоит в их многослойности, где каждый слой является смарт-объектом и отключая-включая видимость слоёв, можно регулировать высоту стопок с карточками и легко создать gif-анимацию ваших визиток. Для начинающих фотошопменов в раздаче имеется видеоролик по применению смарт-объектов.Формат: PSDРазрешение файлов: 5000x3300 px|300 dpi
+Color splashes & halftones on photo - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3000 x 2500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A06FE489A88D0877F9333AB48A2A3C9AEB1BB725
+magnet:?xt=urn:btih:1FE4A3D3C59229C1FCD6A73FA58502A9F67FB42B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +339,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037460   (613856) от 24.07.2016
+###  Публикация: 1046561   (550749) от 28.08.2016
 
-Шаблоны - CreativeMarket - iPads - Mockups V03 [PSD]
+Шаблоны - GraphicRiver - Logo Mock-up [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613856.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 5000x3000px\300dpi
+Шаблон логотипа для Вашего творчества.Формат: PSDРазрешение файлов: 1900x1200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E1E19514714FAFDE7E619171E5DDB3F6408B9D7
+magnet:?xt=urn:btih:7DD3D7660B88BD03D0AC4CB68D8BA79A46EBE762
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +365,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037444   (613784) от 24.07.2016
+###  Публикация: 692999   (550145) от 25.08.2013
 
-Шаблоны - CreativeMarket - iPads - Mockups [PSD]
+Шаблоны - Женские руки со смартфоном / Female hands with smartphone [JPEG,PSD,TTF,OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613784.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Женские руки со смартфономФормат: JPEG,PSD,TTF,OTFРазрешение файлов: 5600х5600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC79DC9F7A1DF344BBF8C1E637C5696906683921
+magnet:?xt=urn:btih:E2628B2218E7E868C98579D59FA9F267EE6C5907
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +391,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037455   (613781) от 24.07.2016
+###  Публикация: 1309566   (550070) от 20.06.2019
 
-Шаблоны - CreativeMarket - iPads - Mockups V02 [PSD]
+Шаблоны - GraphicRiver - 52+ A4 Bifold, Brochure Mockup Bundle - 23644161 [PSD, PNG, ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613781.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Вам нужна настоящая презентация для вашей брошюры, двойное оформление? Тогда этот сборник для вас, вы получите максимальную презентацию с чистым макетом, что позволит вам сделать больше деталей для вашего дизайна. работа в фотошопе с использованием смарт-объекта, всего несколько секунд, чтобы ваш дизайн выглядел реалистично.Формат: PSD, PNG, ATNРазрешение файлов: 4000x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4066BB778054B210930224607465B9DF31279AE9
+magnet:?xt=urn:btih:B40D0DC825F2B9CD546F9FD8C978361CCA81430F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +417,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037507   (613772) от 24.07.2016
+###  Публикация: 1047149   (549922) от 29.08.2016
 
-Шаблоны - CreativeMarket - iPads - Mockups V05 [PSD]
+Шаблоны - Football Sports V8 Flyer Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613772.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Спортивный флаер для Вашего творчества.
+Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ACE9FF00333A3AB48AA550BB2975C4B948559D0
+magnet:?xt=urn:btih:506E883DBC3185F08443008C9699119A91E508D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +444,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037469   (613681) от 24.07.2016
+###  Публикация: 1047159   (549891) от 29.08.2016
 
-Шаблоны - CreativeMarket - iPads - Mockups V04 [PSD]
+Шаблоны - Beach Party Summer V9 Flyer Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Флаер для Вашего творчества.
+Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54BB1A231F9AE9C61A53CBE7FEA47F5744B9D773
+magnet:?xt=urn:btih:345D5699BF78431638C3C5B451B7BCF03BE85F17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +471,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037567   (613678) от 24.07.2016
+###  Публикация: 1045518   (549889) от 29.08.2016
 
-Шаблоны - CreativeMarket - Laptops - Mockups [PSD]
+Рамки - Children frame - Came the academic year [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613678.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD-файлов с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000х2000px\300dpi
+Детские рамки к школе для Вашего творчества.
+Присутствует так-же превью в .jpg формате
+Автор:Формат: PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C24CD33AE8162D6D01EEDC64981D9829152E95A
+magnet:?xt=urn:btih:26CBAC968D1F1CF852B0A542A2C5761A3193EB94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,25 +499,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037580   (613676) от 24.07.2016
+###  Публикация: 1047145   (549839) от 29.08.2016
 
-Шаблоны - CreativeMarket - Laptops - Mockups V03 [PSD]
+Шаблоны - Garage Sale V1 Flyer PSD Template + Facebook Cover [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613676.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 PSD-файлов с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000х2000px\300dpi
+Флаер и Facebook Cover для Вашего творчества.
+Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 2625x3375 / 3546х1313 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43308154376AF4DC2B52065E9C343A9B04F864FE
+magnet:?xt=urn:btih:CF45E50EFD8D7A85E67924D706B18E63DEEABED3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +526,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037573   (613670) от 24.07.2016
+###  Публикация: 693339   (548994) от 26.08.2013
 
-Шаблоны - CreativeMarket - Laptops - Mockups V02 [PSD]
+Шаблоны - Сборник: Шаблоны, рамки и кисти / Collection: Templates, frames and brushes [JPEG,PSD,ABR,EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613670.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000х2000px\300dpi
+Шаблоны, рамки и кистиФормат: JPEG,PSD,ABR,EPS,AIРазрешение файлов: 2500х1200-6700х5100
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8156ABEAEDE5D0CA393D991A4F06ED3583CBDF50
+magnet:?xt=urn:btih:8A5A84C3A822F0FCF0A0E539974312D575E784A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +552,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037593   (613668) от 24.07.2016
+###  Публикация: 1047877   (548105) от 31.08.2016
 
-Шаблоны - CreativeMarket - Laptops - Mockups V04 [PSD]
+Шаблон - Алмазный петух [PSD, ABR, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613668.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 4500x3000px\300dpi
+Красивый новогодний фон с символом года  - петухом и цифрами созданные из множества бриллиантов разного размера. Каждый камень находится на отдельном слое. (есть слой с прошлогодним символом, обезьяной).
+В раздачу по мимо файла PSD вошли: 3 файла PNG (исходники камней), Кисти- искры (.ABR) и  файл превью (.JPG)
+Автор:Формат: PSD, ABR, JPGРазрешение файлов: 3508х2480 / 290х290 / 1042х1023 / 1600х1470
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DB2F2EBDED48C8FBD3B582ECE04C1E0AF8D567B
+magnet:?xt=urn:btih:D9A21155D6C468A8534527B35FDB3623F54F755E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,25 +580,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037599   (613665) от 24.07.2016
+###  Публикация: 695320   (544464) от 31.08.2013
 
-Шаблоны - CreativeMarket - Laptops - Mockups V05 [PSD]
+Шаблоны - 3D Текст-эффекты / 3D Text-Effects [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613665.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+3D Текст-эффекты для Adobe Photoshop
+
+При затруднениях в использовании, смотрим папочку "Tutorials & Instructions"
+(   Читать дальше...   )Формат: PSDРазрешение файлов: 2000х2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B8662B72198725B7986E768708809BD51F0F468
+magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,26 +609,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037434   (613571) от 24.07.2016
+###  Публикация: 1049112   (544415) от 04.09.2016
 
-Шаблоны - CreativeMarket - iFlat Devices - Mockups [PSD]
+Шаблоны - Фотокнига - Здравствуй, школа! [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613571.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 PSD-файлов с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования. Мониторы, ноутбуки, планшеты, ай-фоны и просто окна браузера - всё это редактируется послойно, независимо, с заменой и отключением ненужных слоёв. В responsive(полностью редактируемых) файлах можно перемещать, удалять любой объект(слой) независимо от других.
-На офсайте в описании (   Читать дальше...   )Формат: PSDРазрешение файлов: 5000x3000px\300dpi
+Фотокнига посвященная школе: "первый раз - в первый класс!".
+Автор:Формат: PSDРазрешение файлов: 5906x2953 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCBA3D9D97A788F285ECEA7A0AAF819E7E423B7F
+magnet:?xt=urn:btih:542BDE4FBC36E238ABF4C20B6EB9EE71A8745C64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +636,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037607   (613562) от 24.07.2016
+###  Публикация: 1049122   (544258) от 04.09.2016
 
-Шаблоны - CreativeMarket - Laptops - Mockups V06 [PSD]
+Шаблоны - GraphicRiver - Abstract Smoke Photo Template [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613562.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4 PSD-файла с ноутбуками, имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+Abstract Smoke - шаблон для Вашего творчества.
+Дайте вашим фотографиям удивительный абстрактный взгляд.Формат: PSDРазрешение файлов: 2480x3508 / 300dpi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28FB66DAB96BCDB450D4C3EB5BE68447DDAB9469
+magnet:?xt=urn:btih:C88BAB3BEF98F2292F965D6B361D8B87593D0966
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,25 +663,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037414   (613433) от 24.07.2016
+###  Публикация: 1311643   (539738) от 30.06.2019
 
-Шаблоны - GraphicRiver - Fire Effect Photo Template [PSD]
+Шаблоны - Бордово-золотая [PSD]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fire Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2480x3508 / 300dpi
+Фотокнига для фотошопа – Бордово-золотая.
+Количество: 1 обложка, 5 разворотов
+Автор: эрагонФормат: PSDРазрешение файлов: 7088x3543
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:181B6A9D9B341E7A90F90C5CC23E9ED2DE851791
+magnet:?xt=urn:btih:7F3DB227BEB12A0B6B5F3DB7A717202CFBF25048
 ```
 
 https://mybot314.ru/tekegram_catalog/

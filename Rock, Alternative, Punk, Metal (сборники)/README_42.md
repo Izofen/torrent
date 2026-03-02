@@ -1,3 +1,32 @@
+###  Публикация: 1086794   (147936) от 26.12.2016
+
+VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Karma Police 04:22
+02 Burn The Witch 03:41
+03 Creep 03:56
+04 Reckoner 04:51(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 02:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969118   (147010) от 27.12.2015
 
 VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
@@ -728,35 +757,6 @@ VA - Rockовое Нашествие-Русская версия (2012) [MP3|128
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CE0FE43F95787647EE4AC6478067D6396215B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683944   (127858) от 15.12.2023
-
-VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127858.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Twisted Sister - Heavy Metal Christmas (The Twelve Days of Christmas) [05:15]
-002. L.A. Guns - Merry Xmas Everybody [04:11]
-003. Cheap Trick - Christmas Christmas [02:17]
-004. Alice Cooper, John 5, Billy Sheehan, Vinny Appice - Santa Claws Is Coming To Town [04:20](   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F63A21FAD2A6F5E2E4A20A434AC42A663F6DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1472530   (1014337) от 25.05.2021
+
+Векторный клипарт - Different people at work and leisure modern design illustration 2 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Люди
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3588534A6804923772FB26C8E67517FF79957046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472583   (1014330) от 25.05.2021
 
 Векторный клипарт - Backgrounds for restaurant menu in vector [EPS]
@@ -664,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6945476F7893027E3B2DEB037255F0968B0E819A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474828   (1012657) от 04.06.2021
-
-Шаблоны - Ретро фотокнига - А годы летят (часть 1-6) [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект из 6 фотокниг от Mirana.Формат: PSDРазрешение файлов: 7205х3602
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A832BE3C34FC69535E0CD4902F1BB18912A6E352
 ```
 
 https://mybot314.ru/tekegram_catalog/

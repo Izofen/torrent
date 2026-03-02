@@ -1,3 +1,61 @@
+###  Публикация: 1279461   (766124) от 29.01.2019
+
+Apocalypse - Apocalypse (1969) Remastered, 2003, Longhair [MP3|320 Kbps] <Heavy Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Life Is Your Profession
+2. Let It Die
+3. Patricia
+4. Milkman(   Читать дальше...   )Жанр: Heavy Psych-Prog RockПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B572DD2C7C8483F2F9B4A060ACD50A85D24790A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393959   (765471) от 03.07.2020
+
+Saris - Beyond the Rainbow (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon (05:11)
+ 02. Time Machine (07:09)
+ 03. Oblivion (04:01)
+ 04. Beyond The Rainbow (11:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DC0C178CB4BBCE9731165E3F9C6DD027535D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126667   (765425) от 18.04.2017
 
 Табула Раса - Июль (2017) [MP3|320 Kbps] <Rock, Britpop>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F03769AB9EF6F0704242B1A3884A6B34E2721288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281075   (755085) от 06.02.2019
-
-Тінь Сонця - Зачарований світ (2018) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755085.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:12] 01. Закохані вогні
-[04:10] 02. Останні ночі без тебе
-[03:10] 03. Добрий ангел
-[03:30] 04. В долонях ніч(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4701ACA0F2328FF908BB89CF330B7F8288061853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215836   (754773) от 28.03.2018
-
-Rick Parfitt (Status Quo) - Over And Out (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twinkletoes
-02. Lonesome Road
-03. Over and Out
-04. When I Was Fallin' in Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33BCCE6C6BF85BE09F389D4BA164F052F474A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

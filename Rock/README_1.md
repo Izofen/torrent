@@ -1,3 +1,61 @@
+###  Публикация: 1436610   (1043081) от 01.01.2021
+
+Here Lies Man - Ritual Divination (2021) [MP3|320 Kbps] <Psychedelic Rock, Stoner, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In These Dreams (05:15)
+ 02. I Told You (You Shall Die) (05:37)
+ 03. Underland (02:29)
+ 04. What You See (03:47)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner, Fuzz RockПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8FEC02A7AC41DFFF4DC6DA89DD01C36373B085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610061   (1042937) от 05.02.2023
+
+Transatlantic - The Final Flight Live At L'Olympia (2023) 3xCD [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042937.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Absolute Universe Intro (01:52)
+ 02. Overture (07:20)
+ 03. Reaching For The Sky (05:39)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 02:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5B0C8B1108AF04E5882AB585364E4B4DFAD86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436967   (1042809) от 02.01.2021
 
 Chris Turner - Rock 'n' Roll Man (2020) [MP3|320 Kbps] <Classic Rock>
@@ -687,64 +745,6 @@ CD-03 - Steven Wilson Presents Intrigue - Progressive Sounds In UK Alternative M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A8B73C3236383247ED984E78A98AF043DD0C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612732   (1040172) от 16.02.2023
-
-Solence - Hope is a Cult (2023) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Down (4:07)
-02. Best For You (3:41)
-03. Demons (3:48)
-04. Waves (3:12)(   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3479DC1611F3C5897236F285E7D769705945433D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612731   (1040170) от 16.02.2023
-
-Creye - III: Weightless (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glorious (4:07)
-02. Air (3:39)
-03. One Step Away (3:39)
-04. The Game (3:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D11A1045021959B4E1A4336AF571F286A33C79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

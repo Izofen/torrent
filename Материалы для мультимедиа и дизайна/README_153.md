@@ -1,3 +1,31 @@
+###  Публикация: 1291828   (652507) от 26.03.2019
+
+Векторный клипарт - Vector Fairy Collection #36 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Сказка
+25 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15589DF183FBDD89188B0336D8B25CED6D5419BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291845   (652506) от 26.03.2019
 
 Векторный клипарт - Vector Flowers Collection #95 [AI]
@@ -660,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6CCEA3A8267B12ED0E4EA1A851CAE254C8F4F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904847   (650770) от 05.06.2015
-
-Шрифты - Creativemarket Sputnik Typeface 285717 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький набор шрифтов в стиле пропагандистских плакатов, в основном тех которые встречались в СССР.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A25F1FB4B7CA40010454B4ABF31F34FD7F0EB63
 ```
 
 https://mybot314.ru/tekegram_catalog/

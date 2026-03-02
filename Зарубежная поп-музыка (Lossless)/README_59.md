@@ -1,3 +1,118 @@
+###  Публикация: 1067724   (384765) от 30.10.2016
+
+Sandra - Heaven Can Wait (1988) (CD, Maxi-Single) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384765.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Heaven Can Wait (Extended Version) 7:38
+2 Heaven Can Wait (Dub Mix) 4:01
+3 Heaven Can Wait (Single Version) 4:05Жанр: Pop, ElectronicПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706AC7E599022F670F6CEBE35A57BCA644D7FE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719523   (383740) от 06.11.2013
+
+Bee Gees - The Festival Albums Collection (1965-1967) 3CD /2013, Warner Music/  [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   Turn Around Look At Me   (2:20)
+02.  The Battle Of The Blue And The Grey   (2:08)
+03.  The Three Kisses Of Love   (1:51)
+04.   Theme From  Jamie McPheeters   (1:54)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C498CC06C59EE0351844BD246788EEB4BD08399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326683   (383230) от 21.09.2019
+
+a-ha - Time and Again: The Ultimate a-ha (2016) 2CD, Compilation, RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take on Me (Kygo Remix) (3:46)
+02. The Sun Always Shines on T.V. (F. F. Squad's 'Radiant 4K' Remix) (5:38)
+03. Cry Wolf (Jellybean Mix) (5:14)
+04. Touchy! (House Mix) (5:22)(   Читать дальше...   )Жанр: Pop Rock, New Wave, Synthpop |Продолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185E52E37FDFF0FDF247D64ADF30BFB0027C934B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068131   (383110) от 31.10.2016
+
+Patrick Lindner - Eine Handvoll Herzlichkeit (1996) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383110.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Die Kloane aus der letzten Bank
+2. Ich hatt dich sowieso geku.t
+3. Heut' Nacht haben die Sternerln a Pause
+4. Du schaffst mi(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D60666111372A03BB99FA698805D3F18528D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067894   (383092) от 31.10.2016
 
 Ilya - Gospel (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie, Downtempo, Trip-Hop, Vocal Jazz, Dream-Pop>
@@ -624,121 +739,6 @@ Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318516   (374501) от 25.09.2019
-
-Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374501.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Fur and Gold
-2009 - Two Suns (Special Edition)
-2012 - The Haunted Man
-2016 - The BrideЖанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 05:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F33085E69001598FABD6F314DD330CF65E4A312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069415   (373976) от 04.11.2016
-
-Innocence - Natural Thing (1989) Maxi-Single, 1990, Chrysalis [FLAC|Lossless|image + .cue] <Electronic, Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373976.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Natural Thing (7 Inch) 4:05
-2. Natural Thing (Elevation) 10:03
-3. Natural Thing (Original) 4:15Жанр: Electronic, Pop, Funk, SoulПродолжительность: 00:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F006843CF644E2D5B5FDD729DDB81CA97477FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950096   (372929) от 25.10.2015
-
-The Beloved - X (1996) [FLAC|image+.cue]<House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deliver Me (3:59)
- 02. Satellite (4:15)
- 03. Ease The Pressure (4:21)
- 04. A Dream Within A Dream (7:23)(   Читать дальше...   )Жанр: House, PopПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F287EBF142F39336B049FBBCD29452A45C6ACA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069623   (371290) от 05.11.2016
-
-Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Lovers 03:31
- 02. Deep Waters 03:46
- 03. I'm Yours 03:08
- 04. Helpless 03:14(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93DACE3C0BDDCD88E4258C978F739235FCF5903
 ```
 
 https://mybot314.ru/tekegram_catalog/

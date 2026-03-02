@@ -1,3 +1,31 @@
+###  Публикация: 1434387   (151358) от 24.12.2020
+
+Векторный клипарт - Santa Claus funny character with Christmas gift illustrations collection [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новогодний
+24 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9421803E72B43B90AA3C19F4B8BAC386C1EBB205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434388   (151331) от 24.12.2020
 
 Векторный клипарт - Write letter with the meaning of animals and objects [EPS]
@@ -652,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1221F9DDB65DE3ECCA2D5768169452FAAB730129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434679   (149498) от 25.12.2020
-
-Фотографии - PHOTOBASH - HYBRID ENGINE [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот тематический набор включает крупные планы и сложные детали двигателя гибридного автомобиля. Фото могут быть использованы для различных футуристических роботов или научно-фантастических проектов.Формат: JPGРазрешение файлов: 3536x5404-7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7E04581C720EBA7315D5915D8542A510FF36B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

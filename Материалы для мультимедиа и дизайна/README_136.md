@@ -1,3 +1,30 @@
+###  Публикация: 1287463   (703477) от 07.03.2019
+
+Стили  - DeviantArt - Marble styles 3 - 272131360 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EF9AB97CAE26789D4ECEC74846408F933115C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287467   (703476) от 07.03.2019
 
 Стили - DeviantArt - Marble styles 6 - 272132054 [ASL]
@@ -655,34 +682,6 @@ Dynamic Sketch - экшен для Вашего творчества. Многи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D8D0B69CFDC62E592CBF5400C80E102B3CDDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402444   (701579) от 14.08.2020
-
-Векторный клипарт - Whole and chopped fruit in chocolate splash realistic illustrations 2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Целые и нарезанные фрукты в шоколадной глазури
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4E821D1B82D877D1D46D760B6C945FFB1C7D61
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1018172   (757731) от 19.05.2016
+
+VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Diver - Selfishness
+02. Don Gorda Project - Hand In Hand
+03. Zero Feedback - Deep In The Rain Forest
+04. Don Gorda Project - Dreamscape(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018117   (757549) от 19.05.2016
+
+VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|320 кб/с] <Jazz, Bossa Nova, Instrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paolo Di Sabatino, Janek Gwizdala, Peter Erskine - Driving Blues 6:58
+2. Bossa Nostra - Rain (To Lidia) 7:11
+3. Italian Secret Service - Oky Doky 4:47
+4. Sam Paglia - Strip Tease Organ 1:43(   Читать дальше...   )Жанр: Jazz, Bossa Nova, Instrumental, Easy ListeningПродолжительность: 02:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4912B0C743DA203BD03831D6947A37CAD702D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280851   (757095) от 05.02.2019
+
+VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Die Liebe Siegt Sowieso
+04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522733   (756777) от 08.01.2022
+
+Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Ever After
+02. Sweet Hel
+03. Beatnik Trip
+04. Hallelujah(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522768   (756766) от 08.01.2022
+
+VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756766.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lynnea M - Three Little Words (Syn Cole VIP Mix) (03:05)
+ 002. ALIENKEY feat. NADVAMU - Чужая (03:23)
+ 003. Alina Gerc - Hello (01:37)
+ 004. Alison Wonderland - Fear Of Dying (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1558CD913DA8E9D3830FF783B2C57083FD80FE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522728   (756642) от 08.01.2022
+
+Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mademoiselle chante le blues
+02. Patou Blues
+03. Space In My Heart
+04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522727   (756498) от 08.01.2022
+
+Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Street
+02. The Letters
+03. Darkness
+04. The Law(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215693   (756348) от 27.03.2018
 
 VA - Music For Fitness Green Party (2018) [MP3|320 Kbps] <Pop, Dance, Electro House>
@@ -544,209 +747,6 @@ VA - Passion Dance Hit 90's (2016) [MP3|314~320 кб/с] <Techno, Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4B05C8FDF62090BB46BAC61E53065BBA6B4810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395168   (755580) от 10.07.2020
-
-VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claborg - Twenty Four
-02. Jack Le Funk - Get Funky
-03. Eliezer - Crown Zero
-04. Paul Older - A Boo Kee Moon(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 06:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79D14E1C63B3EBC1062053685D6B9E10E512707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395167   (755576) от 10.07.2020
-
-VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. C.K.B. Magnetophon - Hello Phobos Hello Deimos
-002. Sol Oosel - In Allegiance To The Unknowable
-003. Jeb Ash - More Towards You
-004. Mauro Rawn - Soundtrack(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 10:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAB96AD80FBB721DD61034C6D01E54CDECB5A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018543   (755521) от 20.05.2016
-
-VA - Guitar Collection 4 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues-Rock >
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daryl Stuermer - Heavy Heart    05:17
-002. Boyce Avenue - Game of Thrones (Main Theme)    02:26
-003. Dizzy Mizz Lizzy - Mindgasm    03:54
-004. Nicolas de Angelis - Moliendo Cafй    02:48(   Читать дальше...   )Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F4C3B2B22C9B3E59D80FAA12F2312E14FA4C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395410   (755475) от 10.07.2020
-
-VA - Lost In Paradise: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Riddim, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755475.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mungo's Hi-Fi X Eva Lazarus - Gasoline
-002. Tanya Stephens - The Goodbye Song
-003. Kingston Express - Straight From The Pram
-004. Beenie Man - Preacher's Daughter(   Читать дальше...   )Жанр: Reggae, Ska, Riddim, SoulПродолжительность: 07:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81119D9CEC4CA9E0DEDD566FB1C44E0AAE6FDDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018255   (755421) от 20.05.2016
-
-VA - В Ремиксах. Disco 90-х 100 hits (2016) [MP3|192-320 кб/с] <Club, House, Trance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace of Base - All She Wants (SNBRNxKLATCH Remix)
- 02. Ace of Base - Cruel Summer (Mr.Nu & Deepjack Remix)
- 03. Adele feat. Capella - Move On Baby (DJ MiR Mush Up Mix Edit)
- 04. Adriatique - Modern Talking (Original Mix)(   Читать дальше...   )Жанр: Club, House, Trance, RemixПродолжительность: 08:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A21D20D981369DF1F1A26EA09D66B4E78FA3C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522860   (755313) от 09.01.2022
-
-VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый, кто задается вопросом - как можно слушать и танцевать под хардстайл, должен свыкнуться с мыслью, что ответ на него он может получить только из своего подсознания. Иными словами, никто не может сказать, как надо танцевать под эту музыку, потому что как бы вы не танцевали, всегда этот танец будет правильным, если только вы не пытаетесь тщательно себя контролировать (   Читать дальше...   )001. Sefa - The Omega
-002. Adventum - Abandoned
-003. Mg139 Aka Chemodeath - Acid Session
-004. DJ Stompy - Never Let Me Go(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Core DanceПродолжительность: 09:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6289A3E990F23FBFC907B388DB1E872BBE5C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395251   (755286) от 10.07.2020
-
-VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream - Sunshine Of Your Love
-02. The Doors - Roadhouse Blues
-03. Jimi Hendrix - Purple Haze
-04. Lynyrd Skynyrd - Sweet Home Alabama(   Читать дальше...   )Жанр: Rock, Blues, CountryПродолжительность: 06:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E88DDD0750F2710FDCFC7BA90AF02DC71A75C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

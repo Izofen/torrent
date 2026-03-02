@@ -1,3 +1,29 @@
+###  Публикация: 1772532   (31290) от 11.01.2025
+
+Пресеты - Anarogu Film Collection - V3 Presets [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_31290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пресеты Anarogu Film Collection V3 черпают вдохновение из кино и подходят для всех жанров фотографии, включая портреты, уличную фотосъемку, lifestyle и пейзажи.Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4310334EC98DEB05C0CB083917373811515AF62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772546   (31262) от 11.01.2025
 
 Шрифты - Handwritten Stylish Font Bundle [OTF, TTF]
@@ -662,34 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDCAE1F41A639674C066CEC767E82C644B6566E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774808   (30020) от 23.01.2025
-
-Шаблоны - Apple Devices 18 Mockups 2022 - 5K [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солидный комплект шаблонов девайсов от Apple в высоком качестве.
-
-Набор отличается от оригинального отсутствием шаблона на iPhone XR.Формат: PSDРазрешение файлов: 6000x4300 - 9000x5776
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577F3D838E655DB808655D1F8A26E6D7559EF3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

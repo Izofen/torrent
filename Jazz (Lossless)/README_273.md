@@ -1,25 +1,25 @@
-###  Публикация: 1638147   (238070) от 07.06.2023
+###  Публикация: 1664919   (184016) от 28.09.2023
 
-Martial Solal - The Vogue Recordings, Vol.3 (1955 - 1958) 1993, Vogue [FLAC|Lossless|tracks + .cue] <Bop, Big Band, Piano Jazz>
+Winifred Atwell - The Winifred Atwell Collection (1994) BMG Australia [FLAC|Lossless|tracks + .cue] <Ragtime, Boogie-Woogie, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238070.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Funny Valentine [3:38]
-02. The Song Is You [2:27]
-03. Ridikool [2:43]
-04. You Go To My Head [2:52](   Читать дальше...   )Жанр: Bop, Big Band, Piano JazzПродолжительность: 00:45:25
+01. Black and White Rag [2:37]
+02. The Entertainer [2:43]
+03. Maple Leaf Rag [2:27]
+04. Down Yonder [2:16](   Читать дальше...   )Жанр: Ragtime, Boogie-Woogie, Piano JazzПродолжительность: 01:01:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6D36F0DDC5AAFFE1351047161317C246CAD8798
+magnet:?xt=urn:btih:3FF8DD851E722E682F31F46468FCAF0BC4A3439A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624977   (238024) от 08.04.2023
+###  Публикация: 1664915   (183895) от 28.09.2023
 
-Kjellerbandet & Tore Johansen - Thad Jones Tribute (2008) Normann Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Big Band>
+Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238024.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Big Dipper [5:35]
-02. The Groove Merchant [5:23]
-03. Dedicated [5:52]
-04. Castell [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Big BandПродолжительность: 00:52:17
+01. Deja Vu 04:39
+02. It's Love 04:30
+03. Save Your Love for Me 05:26
+04. You Make Me Feel Alright 03:26(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:875F5C1752192629D0B8C98D3CE34DC37A4B2BBC
+magnet:?xt=urn:btih:5114BD6D04AD305D1E1FE921C2E5829801F4E708
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624974   (238017) от 08.04.2023
+###  Публикация: 1427441   (183577) от 28.11.2020
 
-McCoy Tyner - Beautiful Love: Live in Warsaw (1991) 1994, All At Once Happy Price [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238017.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_183577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beautiful Love [3:44]
-02. Suddenly [5:32]
-03. Giant Steps [3:57]
-04. Darn That Dream [6:11](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:06
+01. Why Do I Love You? [6:02]
+02. Nobody Else But Me [5:41]
+03. Can't Help Lovin' Dat Man [6:37]
+04. Make Believe [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4681DD2ABDA040386EB00A61CCC7BEC0BAA0048D
+magnet:?xt=urn:btih:1D3CD5F322EF879840232504679B109772C0808F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446188   (237992) от 08.02.2021
+###  Публикация: 1665097   (183336) от 29.09.2023
 
-Fats Waller - 1938 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
+Asako Toki - Standards (2004) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237992.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Try Your Jive on Me [3:18]
-02. Ain't Misbehavin' [2:57]
-03. The Flat Foot Floogie [2:47]
-04. Pent Up in a Penthouse [2:34](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:59
+01. My Favorite Things [3:00]
+02. September [4:29]
+03. The Good Life [4:32]
+04. Everybody Wants to Rule the World [4:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9075CBF9C39BB61095C595B397D0CB752330C4A9
+magnet:?xt=urn:btih:67321B598004EF5B7C1F1B5F15233937FDC5FD91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446187   (237982) от 08.02.2021
+###  Публикация: 1665101   (183329) от 29.09.2023
 
-Lennie Tristano - 1946 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+Sadao Watanabe - Dedicated To Charlie Parker (1969) 1989, Denon [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237982.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Out on a Limb [2:44]
-02. I Can't Get Started with You [2:57]
-03. I Surrender, Dear [3:08]
-04. Untitled Blues [3:48](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 01:03:39
+01. Parker's Mood [8:54]
+02. A Song for Bird [6:56]
+03. Everything Happens to Me [4:12]
+04. I Can't Get Started [5:38](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:40:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE0C945C21B8F9908DFA45B62AF904C5523306D8
+magnet:?xt=urn:btih:304C44E5C88D3EE5AF841322CA422F99754560BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446185   (237976) от 08.02.2021
+###  Публикация: 1665098   (183324) от 29.09.2023
 
-Nat "King" Cole - 1947, Vol. 3 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Asako Toki - Standards Gift (2005) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237976.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Nest [2:35]
-02. Dream a Little Dream of Me [2:51]
-03. Then I'll Be Tired of You [3:11]
-04. Money Is Honey [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:29
+01. Singin' in the Rain [3:23]
+02. Norwegian Woods (This Bird Has Flown) [3:01]
+03. You Make Me Feel Brand New [4:41]
+04. It Don't Mean a Thing [4:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A13EBFCE5BA2324CAD2C5AD18F55969C038BA75D
+magnet:?xt=urn:btih:A217987281655BC1B1E6A176883714FD42E641F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638377   (237945) от 08.06.2023
+###  Публикация: 1592615   (183220) от 23.11.2022
 
-Ike Quebec - Four Classic Albums (1961, 1962) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Bossa Nova>
+Steve Turre - Fire And Ice (1988) Stash [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop, Trombone Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237945.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Acquitted [5:40]
-02. Just One More Chance [5:50]
-03. Que's Dilemma [4:31]
-04. Brother Can You Spare A Dime [5:29](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Bossa NovaПродолжительность: 02:36:33
+01. Fire and Ice [5:43]
+02. Jaunita [7:31]
+03. When Lights Are Low [5:49]
+04. Shorty [7:45](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Trombone JazzПродолжительность: 01:08:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:938A41EAF60C70303F91BE82AB24BEBDD815F32F
+magnet:?xt=urn:btih:8CDBFFB76AB07CED84194DCA199C28CCDB4DD03D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625163   (237944) от 09.04.2023
+###  Публикация: 1592613   (183217) от 23.11.2022
 
-Kjellerbandet - Mingus Schmingus (2004) Sonor Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Vocal Jazz>
+Annette Lowman - Movies Memories (1992) Le Chant du Monde [APE|Lossless|image + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237944.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Chair in the Sky [6:31]
-02. Moanin' [7:57]
-03. Ecclusiastics [7:17]
-04. Invisible Lady [6:58](   Читать дальше...   )Жанр: Hard Bop, Big Band, Vocal JazzПродолжительность: 00:50:51
+01. But Beautiful [5:10]
+02. As Time Goes By [4:03]
+03. My Shining Hour [2:23]
+04. Spring Is Here [3:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:242E166D4ED51B84B962A8C7B2BE94843A3D3425
+magnet:?xt=urn:btih:9C3E51B08F75029DACAF4D80E5117B3373C81DBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,289 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446189   (237942) от 08.02.2021
+###  Публикация: 1592438   (183187) от 23.11.2022
 
-James Moody - 1948 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fuller Bop Man [2:58]
-02. Workshop [3:17]
-03. Oh Henry [2:31]
-04. Moodamorphosis [3:01](   Читать дальше...   )Жанр: BopПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B6E4A62E5514ADB7D890CA70EC0C583AA1E470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581668   (237934) от 07.10.2022
-
-Diego Rivera - Indigenous (2019) 2021, Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Nicholas Payton - Relaxin' With Nick (2019) 2CD, Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marabi [4:22]
-02. Indigenous [5:31]
-03. The Secret Life of Plants [5:05]
-04. Sombras del Pasado [4:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A6CBF187E09CFA7E48A42EEACE313CEB4B34EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446184   (237926) от 08.02.2021
-
-Django Reinhardt - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presentation Stomp [3:05]
-02. Blue Interlude [3:19]
-03. Tiger Rag [2:16]
-04. After You've Gone [2:15](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9497859D4DEF4461C8851AE6AB7ACD4AB4028E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447572   (237894) от 14.02.2021
-
-Lennie Tristano Quintet - Live At Birdland (1945, 1949) 1990, Jazz Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember [7:44]
-02. Pennies [5:48]
-03. Foolish Things [4:09]
-04. Indiana [5:45](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F27ECB48EBD9CF1542A17B243D76D0A623FE42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447571   (237884) от 14.02.2021
-
-Enrico Pieranunzi Quartet - New Spring: Live At The Village Vanguard (2017) CAMJazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amsterdam Avenue [7:34]
-02. New Spring [7:04]
-03. Out of the Void [9:29]
-04. Permutation [9:13](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ABCF9E7D581FF0753A4DF14F1D763BD4C213A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604731   (237868) от 15.01.2023
-
-Karin Krog & Bengt Hallberg - Two Of A Kind (1982) 1987, Meantime Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Man [4:33]
-02. Jeepers Creepers [2:36]
-03. You Must Believe in Spring [3:57]
-04. The Touch of Your Lips [2:16](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561489DBA1341C6C5C72E15699BD65636B42C3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626119   (237815) от 13.04.2023
-
-Sidney Bechet - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Garden Blues [6:34]
-02. Slow Blues [6:43]
-03. Old Fashioned Love [5:28]
-04. Fast Blues [6:03](   Читать дальше...   )Жанр: Dixieland, Swing, New Orleans JazzПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4B681873D5F5EC75EC1DC0CCEA71ECBBE7E0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448860   (237751) от 19.02.2021
-
-Nat "King" Cole - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put 'Em in a Box, Tie 'Em with a Ribbon [2:42]
-02. Blue and Sentimental [2:35]
-03. I've Got a Way with Women [2:46]
-04. My Fair Lady [3:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CFD14068A620D39352A476CB4C093A4D2217F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605489   (237709) от 18.01.2023
-
-Courtney Pine - Spirituality (2022) Destin-E [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Water [3:58]
-02. Smile [4:19]
-03. Windmills of My Mind [3:59]
-04. Ayr Hod y Nos [4:29](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE22268473968A6A3539CD9B9F4AD4C95CECA6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449300   (237691) от 21.02.2021
-
-Eric Dolphy - 12 Classic Albums (1959 - 1962) 6CD, 2014, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237691.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183187.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Caribe [10:06]
-02. Blues in 6:8 [5:45]
-03. First Bass Line [4:09](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Free JazzПродолжительность: 07:49:47
+01. Relaxin' with Nick [7:39]
+02. C [5:00]
+03. El Guajiro [7:29](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:58:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A46EECFEF55DEC07F1C49BB387C485009697697B
+magnet:?xt=urn:btih:045DDBA154D8DF7DC5448AAF821FD475057DC0D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +259,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639096   (237528) от 11.06.2023
+###  Публикация: 1592508   (183038) от 23.11.2022
 
-Vic (Victor) Feldman - On Vibes (1957) 1993, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+Candy Dulfer - We Never Stop (2022) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237528.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fidelius [2:50]
-02. Squeeze Me [3:20]
-03. Sweet And Lovely [3:44]
-04. Bass Reflex [3:59](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:27:23
+Голландская суперзвезда, саксофонистка, певица и автор песен Candy Dulfer устроила фанковую вечеринку с заразительным грувом и великолепным саксофоном на We Never Stop. Альбом с участием многократного обладателя Grammy гитариста Niles Rodgers'а и знаменитого басиста Marcus Miller'а вышел 28 октября на лейбле The Funk Garage/Mascot Label Group.
+Candy Dulfer и ее талантливая (   Читать дальше...   )01. YeahYeahYeah (5:19)
+02. Mo' Seats (6:25)
+03. Jammin' Tonight (4:07)
+04. Deeper (6:02)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 01:19:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91A33348ED00437F40275370AD25D2718951A98A
+magnet:?xt=urn:btih:1D55A6DCD3CB6B48FFC6E85A864BF22CA5144B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638819   (237517) от 11.06.2023
+###  Публикация: 1665349   (182590) от 30.09.2023
 
-Paul Bley Trio - Closer (1965) 2008, ESP Disk [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Piano Jazz>
+Fred Hersch & Esperanza Spalding - Alive At The Village Vanguard (2018) 2023, Palmetto Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237517.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ida Lupino [2:55]
-02. Start [2:21]
-03. Closer [3:28]
-04. Sideways In Mexico [2:56](   Читать дальше...   )Жанр: Avant-Garde Jazz, Piano JazzПродолжительность: 00:28:22
+01. But Not for Me [9:32]
+02. Dream of Monk [7:36]
+03. Little Suede Shoes [9:03]
+04. Girl Talk [12:03](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:07:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FB1EC6002E0B97B21EB7F40D0DA8E63293C060F
+magnet:?xt=urn:btih:E64A9861DF7BD18AD588BD1FA64E9C61860599AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450650   (237494) от 27.02.2021
+###  Публикация: 1665357   (182574) от 30.09.2023
 
-Red Nichols - 1925 - 1927 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orleans Jazz>
+Ron Carter - Parade (1979) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237494.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jimtown Blues [3:11]
-02. King Porter Stomp [3:11]
-03. I Wouldn't Be Where I Am If You Hadn't Gone Away [2:57]
-04. Flag That Train [3:08](   Читать дальше...   )Жанр: Swing, New Orleans JazzПродолжительность: 01:14:19
+01. Parade [9:01]
+02. A Theme in 3/4 [5:54]
+03. Sometimes I Feel Like a Motherless Child [2:46]
+04. Tinderbox [5:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:36:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3459BDDEA2B672D83B5047DAAE4FD5A7CC990F32
+magnet:?xt=urn:btih:9E208036BD2E3B4069F3962EAFB571EDB51D6F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +347,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638632   (237492) от 11.06.2023
+###  Публикация: 1665353   (182531) от 30.09.2023
 
-Ethan Philion - Meditations On Mingus (2022) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Chamber Jazz>
+Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237492.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Once Upon a Time There Was a Holding Corporation Called Old America [10:50]
-02. Haitian Fight Song [10:09]
-03. Self-Portrait in Three Colors [6:21]
-04. Pithecanthropus Erectus [11:20](   Читать дальше...   )Жанр: Post-Bop, Chamber JazzПродолжительность: 01:16:15
+01. The Blues Period [6:02]
+02. Sonnymoon for Two [5:57]
+03. On Green Dolphin Street [6:33]
+04. Round Midnight [5:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:675A70697D7E8EFDAD7AF67596A26BDEC1D8AF06
+magnet:?xt=urn:btih:ECADB89658C0C3A899626651D2E8FD98908FBF5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +376,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638821   (237483) от 11.06.2023
+###  Публикация: 1593090   (181984) от 25.11.2022
 
-Chucho Valdes - Tumi Sessions (2007) Tumi Music [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, World Fusion>
+Charlie Christian & Benny Goodman - 1939 - 1941 (1992) Jazz Roots [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237483.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cancion Al Mejor [5:06]
-02. Silver Star [7:27]
-03. Habanera Sola [5:53]
-04. La Sombra De Tu Sonrisa [6:03](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, World FusionПродолжительность: 01:02:44
+01. Flying Home [3:16]
+02. Till Tom Special [3:02]
+03. AC-DC Current [2:48]
+04. Seven Come Eleven [2:46](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:55:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CF26C7F59D660396FC67EFF4BF69DA92D87031D
+magnet:?xt=urn:btih:2DA8D530A9694858A36E2A0C42865053241F5278
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +405,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627219   (237471) от 18.04.2023
+###  Публикация: 1592821   (181966) от 25.11.2022
 
-Gabriele Mirabassi & Simone Zanchini - Il gatto e la volpe (2021) Egea [FLAC|Lossless|tracks + .cue] <World Fusion, Contemporary Jazz>
+Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237471.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Choro Romagnolo [5:39]
-02. Our Spanish Love Song [7:57]
-03. Chisciotte [4:37]
-04. Impro N.5 [1:26](   Читать дальше...   )Жанр: World Fusion, Contemporary JazzПродолжительность: 00:43:52
+01. Bright Green [6:09]
+02. Shug [4:24]
+03. Till Then [4:30]
+04. 9th Round [4:58](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9D98FA26889D4F8C27EC981E38AC9F573B079C3
+magnet:?xt=urn:btih:950650CF2508ECA135866081C7AD92961352579E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +434,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638635   (237464) от 11.06.2023
+###  Публикация: 1593179   (181787) от 25.11.2022
 
-Lou Bennett - Enfin! (1963) 1997, RCA Victor [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237464.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moment's Notice [4:48]
-02. I Remember Sonny [5:34]
-03. Loin du Bresil [4:55]
-04. Indicatif [0:45](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:31:44
+01. Say It (feat. Alan Scaffardi)
+02. Enjoy The Ride (feat. Walter Ricci)
+03. La Vita E' Piu' Bella Cosi' (feat. Rosalia De Souza)
+04. Adventure Of A Lifetime (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Jazz, Pop JazzПродолжительность: 00:53:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FD1F272B099BE5E7EB397F7E24DFBFFEB8CBAC1
+magnet:?xt=urn:btih:20EF923E39A312306451A60FACE3F33AB0F583BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,28 +463,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606246   (237446) от 21.01.2023
+###  Публикация: 1593102   (181728) от 25.11.2022
 
-The Herb Geller Sextette -  The Herb Geller Sextette (1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Bop>
+Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Acid Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237446.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Outpost Incident [4:27]
-02. Crazy He Calls Me [5:29]
-03. Gin for Fuguelhorns [3:44]
-04. Tardi at Zardi's [4:35](   Читать дальше...   )Жанр: BopПродолжительность: 00:36:19
+01. Don't Let Your Angels Go
+02. From the Edge of Time
+03. Is It Right or is It Wrong
+04. Destination (Slow Mix)(   Читать дальше...   )Жанр: Nu-Jazz, Acid JazzПродолжительность: 00:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DFF705873D9D1FD5FC650D93FA3AAA50C7786FB
+magnet:?xt=urn:btih:D504DB1AFEC7912DBF72724425397455F9A7ED8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665615   (181645) от 01.10.2023
+
+Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Moe & Joe [6:53]
+02. Falling in Love with Love [5:29]
+03. Bags' Groove [6:01]
+04. Double Exposure [7:48](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC608462E74DEEAC0EDFA48A44FDCB5A34E845D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665623   (181640) от 01.10.2023
+
+Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eritrea [7:54]
+02. Papa Was a Rolling Stone [6:34]
+03. Euphoria [5:15]
+04. Bengal [6:43](   Читать дальше...   )Жанр: Post-Bop, Jazz Fusion, Piano JazzПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855DB1E13C44395779FFCD20F558D565C41693D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427966   (181604) от 30.11.2020
+
+Duke Ellington - Gold (1940-e - 1960-e) 1993, Gold [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [3:03]
+02. Perdido [2:25]
+03. Tea for Two [1:52]
+04. Do Nothing Till You Hear from Me [1:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064D4AF11CF5917503CA7D58AA51293A9E4F65F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665616   (181588) от 01.10.2023
+
+The Thelonious Monk Quartet - Monk's Dream (1962) 2014, Original Recordings Group [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monk's Dream [5:44]
+02. Body and Soul [4:34]
+03. Bright Mississippi [7:59]
+04. Five Spot Blues [3:21](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9816086175E6C1999A59572D710957123E3F7459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665619   (181574) от 01.10.2023
+
+Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_181574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy [5:20]
+02. I Didn't Know What Time It Was [3:51]
+03. Fever [5:04]
+04. Love Is Like That [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C100BB8A4DDB67AB5D8D8FBA6608AE98BAC8BEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427625   (181573) от 30.11.2020
+
+Tab Smith - Jump Time (1951, 1952) 1991, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Because of You [3:15]
+02. Slow Motion [2:53]
+03. Dee Jay Special [2:58]
+04. Sin [3:14](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD187AB055E18281B952F26620991522912A55A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427630   (181567) от 30.11.2020
+
+Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top 'n' Bottom [2:50]
+02. My Ideal [3:19]
+03. Mr. Gee [2:49]
+04. Don't Get Around Much Anymore [2:59](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC5EBAF7A02C2DDFBDD0F235AF1C9E86FCACF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427629   (181541) от 30.11.2020
+
+Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cottage for Sale [3:28]
+02. Sunny Side of the Street [2:42]
+03. Tis Autumn [2:55]
+04. Teddy's Brannin' [2:50](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C2F1867FA29C57AD81CCB210D238E67F37818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431716   (181454) от 25.11.2022
+
+Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэнди Далфер — нидерландская саксофонистка, певица и автор песен. Стала всемирно известной после композиции «Lily Was Here», написанной в ноябре 1989 года в тандеме с музыкантом Дэйвом Стюартом. Ее биография заслуживает особого внимания, с семи лет Кэнди стала заниматься музыкой. Ее отец – саксафонист Ханс Далфер вложил в свою дочку все знания и привил огромную любовь (   Читать дальше...   )Альбомы:
+1989 | David A. Stewart (featuring Candy Dulfer) - Lily Was Here (RCA)
+1990 | SAXuality
+1993 | Sax-A-Go-Go(   Читать дальше...   )Жанр: Jazz, Funk, Soul |Продолжительность: 22:43:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49818F1DAD685F03B30C339CAF5C3C0EDEE1F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

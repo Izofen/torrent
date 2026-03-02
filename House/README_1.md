@@ -1,3 +1,61 @@
+###  Публикация: 1615845   (1037273) от 27.02.2023
+
+VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.O.D - Set Me Free (Extended Mix) (4:41)
+02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
+03. Something Good feat. Yotto - Rhythm (Of The Night) (Extended Mix) (6:35)
+04. Vintage Culture & Three Drives - Greece 2000 (Extended Mix) (5:17)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABF35E2619714EC60A30CD95599FE2AE16E5C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615949   (1036987) от 28.02.2023
+
+VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) [6:10]
+02. Innellea - Targo (Original Mix) [5:16]
+03. Maxim Lany - Renaissance (5AM Extended Edit) [7:03]
+04. Agents of Time feat. Vicky Who? - Liquid Fantasy (Extended Mix) [5:30](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6B582477214AEF2FBF32DDA2EDBD3A8CED2FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442208   (1036896) от 24.01.2021
 
 VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
@@ -687,64 +745,6 @@ VA - 2020 Workout Starts Now [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC606872FBE9824C5FD6FC7B1D88ADB05AB9EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350009   (1003810) от 04.01.2020
-
-VA - The Aperitif Party (House Grooves Only) (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mark Garrett - Report (Sunrise House mix)
-2. Radical Razors - Get Perfect (House mix)
-3. Lorentz 'O - Loop Again (Club Night mix)
-4. Grand Star - Given Some Fain (Dyba's House mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09F596B5D2769215F762F5E8C053CF131187844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349946   (1003797) от 04.01.2020
-
-VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sassari - Put A Record On (Extended Mix) 5:19
-02. Sneaky Sound System - We Belong (Extended Mix) 5:11
-03. Roger That (Uk) - How Does It Feel (Endor Remix - Extended Mix) 5:46
-04. Robbie Doherty - Pour The Milk (Matt Sassari Remix - Extended Mix) 5:42(   Читать дальше...   )Жанр: Minimal, Tech House, FunkyПродолжительность: 05:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060C953E511E70ECA3636C73228F2F3D9453060D
 ```
 
 https://mybot314.ru/tekegram_catalog/

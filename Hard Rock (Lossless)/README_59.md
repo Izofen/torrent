@@ -1,3 +1,61 @@
+###  Публикация: 1334811   (293370) от 30.10.2019
+
+Michael Sweet - Ten (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Part of Me (3:34)
+02. Lay It Down (3:30)
+03. Forget, Forgive (4:49)
+04. Now or Never (4:30)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71081B76CAC7BD997E50FB4CF39C86FC06791F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079775   (291896) от 05.12.2016
+
+Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Lossless|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Priestess 3:47
+02. Time To Live 4:30
+03. The Park 5:58
+04. Simon The Bullet Freak 3:46(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C06E3B2D0D57634AE315FA1BC94501F71291FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962447   (290617) от 06.12.2015
 
 AC/DC - The Razors Edge (1990) 2003, Epic [FLAC|tracks+.cue]<Hard Rock>
@@ -685,64 +743,6 @@ Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8323FC75131FF6EE061DF0869FD84E89DC050D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339826   (264672) от 21.11.2019
-
-W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2009 – W.E.T.
-2013 – Rise Up
-2014 – One Live(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70778CCD7C9F76CF4D66E768D5A8535F76F30D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486535   (264501) от 21.11.2019
-
-AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway To Hell (03:30)
- 02. T.N.T (03:36)
- 03. Whole Lotta Rosie (05:25)
- 04. The Jack (05:54)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B05706CDD885813E195ADB7BECE3C9962D7024E
 ```
 
 https://mybot314.ru/tekegram_catalog/

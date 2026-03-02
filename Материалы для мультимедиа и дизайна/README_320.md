@@ -1,3 +1,29 @@
+###  Публикация: 1194722   (152875) от 26.12.2017
+
+Пресеты - VideoHive - CINEPUNCH Master Suite v5.0 - 20601772 [FFX, CUBE, 3DL, LOOK, AEP, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой релиз состоящий из 3 основных обновлённых пакетов: Disruption VFX Suite, Film Maker VFX Suite и LUTMASTER и двух совершенно новых... это ANAMORPHIC CREAMS (засветы, вспышки, боке итд всё в этом пакете) и просто кладезь а не пак: SOUNDPUNCH (большой...нет огромный пакет, более 23К SFX SOUND effects) . Каждый пакет это непревзойдённые дополнения для творческой (   Читать дальше...   )Формат: FFX, CUBE, 3DL, LOOK, AEP, WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EDCB32CF595C646C8AA310821FB4BED06596C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194833   (152862) от 26.12.2017
 
 3D модели - Maxtree - Plant Models Vol 3 [V-Ray|*.max]
@@ -650,34 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E795F087E6A044DEBF8E9394438CD5ACF2CC760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434387   (151358) от 24.12.2020
-
-Векторный клипарт - Santa Claus funny character with Christmas gift illustrations collection [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новогодний
-24 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9421803E72B43B90AA3C19F4B8BAC386C1EBB205
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1039626   (595705) от 01.08.2016
+
+Проекты - VideoHive - Creative Words Logo Reveal - 11330502 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации творческого логотипа или слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421123AD2B1B94D5C5A49DF5A9DB89D99D7CD578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233005   (594639) от 27.06.2018
+
+Проекты - VideoHive - 24 Broadcast News Complete TV Package - 20836101 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594639.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 Broadcast News Complete TV Package - новостная виртуальная студия. В пакете все, что необходимо для трансляции: новостей, спорта, политики, последних новостей, экономики, погоды.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC904B71416D1DEE1C7888FABBE133C5F90D63FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039534   (594348) от 02.08.2016
+
+Проекты - VideoHive - Street Life - 3291514 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект отлично подходит для музыки, интро кино, презентации и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CA4134D411F89E7EB917C2A6510339D296ABD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039597   (594347) от 02.08.2016
 
 Проекты - VideoHive - Modern Times - 9360030 [AEP]
@@ -615,84 +693,6 @@ VideoHive - Photographers Portfolio - 1740345 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D59A9798948A9290A699E50B400C4EEE35410B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040449   (586248) от 05.08.2016
-
-Проекты - VideoHive - Entertainment TV Broadcast Package - 14236416 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Entertainment TV Broadcast Package - пакет для создания телепередач развлекательного характера.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989B1FD8E2C0A411FC2DB1D1391617D0097A5E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040450   (586243) от 05.08.2016
-
-Проекты - VideoHive - Placeholder For Achievements Corporation - 16974686 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Placeholder For Achievements Corporation - высоко-технологичная демонстрация вашего видео, бренда, или рекламного ролика.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA1800D17EA8486D711B11127054658E95B1594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918865   (585751) от 16.07.2015
-
-Проекты - Motion Array - Glitch Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905A973E435EC28257614EF7966BD07ADF91A091
 ```
 
 https://mybot314.ru/tekegram_catalog/

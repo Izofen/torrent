@@ -1,3 +1,177 @@
+###  Публикация: 1694276   (121108) от 24.01.2024
+
+VA - Melodically Trance 01 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L_DG - Summerlust (Tom Bro Remix) [8:29]
+02. Dim Val Pol - Light Breeze (Wavelounger Remix) [8:13]
+03. Miguel Angel Castellini - If You Live In Me (Original Mix) [7:02]
+04. Borena - Alive (Original Mix) [6:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C55F731DB00E8EA6092FD91DE45B272C393255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694661   (120787) от 26.01.2024
+
+VA - Trance 2024 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eximinds & Costa & Sue McLaren - Into The Unknown (Original Mix) (3:44)
+02. Two&One & Sarah Russell - One More Sunrise (Original Mix) (3:29)
+03. Sarah Lynn & Raz Nitzan & Trance Classics - Safe In Your Arms (Original Mix) (3:29)
+04. Eddie Lung - Run Away (Original Mix) (3:44)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE60725C57607B2F08CD0BE93B8BDE928FDB4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694971   (120657) от 27.01.2024
+
+VA - Techno Club Vol. 71 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John O'Callaghan - Flow Through (Extended Mix) [7:19]
+02. Solarstone - 4Ever (Photographer Extended Remix) [8:27]
+03. Alex M.O.R.P.H. & Aimoon pres. Northern Storm - Starburst (Extended Mix) [6:15]
+04. Talla 2XLC & Lyd14 - Killer Zone (Extended Mix) [6:35](   Читать дальше...   )Жанр: TranceПродолжительность: 06:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7141D8A6ED1AA6C23C3E124C29C9E05EFEDFC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695069   (120637) от 27.01.2024
+
+VA - Uplifting Only Top 15: December 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DreamLife & Milosh K - Tatra Mountains (Intro mix) (04:48)
+02. Tycoos, Sandro Mireno & Saphron - Lost At Sea (extended mix) (05:46)
+03. CO1N & Darkingz - Winter Sea (extended mix) (08:32)
+04. Paul Rigel - Lublin (original mix) (08:00)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10ED146209A2F762D21FB3EB89D99FF3D3C3001F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694950   (120627) от 27.01.2024
+
+VA - Uplifting Only Top 15: January 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Preludio (George Crossfield Intro Remix) [6:53]
+02. Sandro Mireno & Jan Miller - Here Comes The Rain (Extended Mix) [6:07]
+03. Maratone & Lasse Macbeth with Emilya Buchan - Stronger (Extended Mix) [6:18]
+04. x-airlan & The Wavers - Re_Alive (Original Mix) [8:36](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FA3019E1FD1E8A24919D8B52007197073BCB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695088   (120504) от 28.01.2024
+
+VA - Dream Dance Vol. 95 - The Annual (2024) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris - Desire (2:59)
+02. Hardwell - Loneliness (2:43)
+03. Felix Jaehn - Past Life (3:16)
+04. twocolors - Cynical (MistaJam Remix) (2:44)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 03:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A582BE28A3DB11640AF35F503B2286816CEDE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695149   (120372) от 29.01.2024
 
 VA - Dream Dance Vol. 95 - The Annual (Extended Versions) (2024) [MP3|320 Kbps] <Trance, Progressive, Dance>
@@ -571,180 +745,6 @@ VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B17840FC1C0363FD4CA4F7F8177095FBF863CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703160   (114995) от 29.02.2024
-
-VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Fletcher & Ruslan Aschaulov - Valentina (Howlex Intro Remix) [5:27]
-02. Maratone & Saphron & Hardcode - Walk Through Shadows (Jimmy Chou Extended Remix) [6:49]
-03. Marco Torrance & Natasha Jaffe - Fragile (Extended Trance Mix) [7:35]
-04. Revolution 9 - Remember (Extended Mix) [6:22](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82F81FDEE68023A48B7F621FC5EDECFAE1FC8B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703710   (114817) от 01.03.2024
-
-VA - The Sound of 2024 Mix 2: Santiago (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ROYALÈ (US) - City Nights (Zy Khan Remix) [5:26]
-02. Dmitry Kostyuchenko - Caldera (Original Mix) [4:16]
-03. Luke Bathwine - APE (Original Mix) [4:00]
-04. Ari Grey feat. Maya Woloszyn - We Own The Night (NOMADsignal Remix) [4:27](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5605A117CFD75CF95B82BFD95C4AE93DBACBE52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703922   (114666) от 02.03.2024
-
-VA - Trance Party 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Tsapiyow Dens - ADTSumd (Original Mix) (07:33)
-02. Artyom Kitsenko - Radiogram (Original Mix) (06:02)
-03. Nation Epic - Heaven Reflection (Extended Mix) (06:49)
-04. DJ Trim - Vice (Original Mix) (05:36)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8BF9CFE685E7196E0BFEB6EF49CA67DA18EA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706654   (113559) от 13.03.2024
-
-VA - Trance 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lilixy - Classy (Original Mix) [4:12]
-02. Cristanodj - Revolution (Extended Mix) [5:46]
-03. Semper T. - Decisive Feeling (Original Mix) [6:44]
-04. Krystalmetch - Embrace The Pain (Original Mix) [6:30](   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34547528FBA6F23C9BA99A42AF173033493AF1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707207   (113454) от 15.03.2024
-
-Above & Beyond | OceanLab - OceanLab: The Anthology (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miracle (Acoustic Mix) [04:50]
-02. Satellite / Stealing Time (Acoustic Mix) [05:03]
-03. Sirens Of The Sea (Acoustic Mix) [04:47]
-04. On A Good Day (Acoustic Mix) [04:24](   Читать дальше...   )Жанр: Trance, Vocal Trance, Progressive, ElectronicПродолжительность: 03:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F5D27FBAF73F6A925531299493C766FC331C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707059   (113433) от 15.03.2024
-
-VA - Black Hole Trance Music 03-24 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilan Bluestone x Maor Levi feat. Emma Hewitt pres. Elysian - Light Years (Extended Mix) [6:53]
-02. Markus Schulz & HALIENE - Death Of A Star (Extended Mix) [4:45]
-03. Solarstone & Stine Grove - The One (Extended Mix) [7:59]
-04. BT & Christian Burns - Save Me (John Askew Extended Remix) [6:50](   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67564F65CF1824D60CD7D4100F64625D8EA7667
 ```
 
 https://mybot314.ru/tekegram_catalog/

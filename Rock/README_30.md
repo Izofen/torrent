@@ -1,3 +1,61 @@
+###  Публикация: 1533528   (705180) от 24.02.2022
+
+Beth Hart - A Tribute To Led Zeppelin (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705180.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whole Lotta Love
+2. Kashmir
+3. Stairway To Heaven
+4. The Crunge(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8F452F4DF33A3C4F6E34B6A006E31184FE8A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220383   (704488) от 19.04.2018
+
+Blackball Bandits - Confrontation on the Extraterrestrial Highway (2016) EP [MP3|320 Kbps] <60's Surf Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Along Highway 375
+02. Azteca Verano
+03. Slalom Under the Pier
+04. Escape in Durango(   Читать дальше...   )Жанр: 60's Surf Rock, InstrumentalПродолжительность: 00:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CFBC11BC7F623BE9313900E6E623032DAC70D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220549   (704319) от 19.04.2018
 
 Black Stone Cherry - Family Tree (2018) [MP3|320 Kbps] <Southern Rock, Hard Rock>
@@ -687,64 +745,6 @@ Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBE0E74D660094523CD9DCEFD6B5059316BA60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221872   (691263) от 26.04.2018
-
-God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epitaph
-02. Mortal Coil
-03. Winter Dusk / Awakening
-04. Seance Room(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9342083BD217CE76C544B5F34A837CCEE977AD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028382   (690862) от 22.06.2016
-
-Erik Norlander - Surreal (2016) [MP3|320 кб/с] <Symphonic Prog Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Party's Overture (7:52)
-02. The Galaxy Collectors (Album Mix) (10:34)
-03. Suitcase And Umbrella (7:08)
-04. Unearthly (8:48)(   Читать дальше...   )Жанр: Symphonic Prog Rock, Electronic RockПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761857114E7F6ABCF2DCC3F5A9BD20AFE127C8C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

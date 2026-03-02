@@ -1,3 +1,67 @@
+###  Публикация: 1554458   (577903) от 30.05.2022
+
+The Palth - Palth Fiction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rota Fortunae (00:00:14)
+02 - Terror-Horror (00:03:47)
+03 - Plastic Dream (00:03:14)
+04 - Coma (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5686976941FDA975D678135D89F655E06E3747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527086   (576944) от 26.07.2012
+
+Royal Thunder - CVI (2012) [FLAC|Lossless]<Stoner Rock/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_576944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parsonz Curse (6:58)
+02. Whispering World (3:49)
+03. Shake And Shift (9:13)
+04. No Good (3:34)
+05. Blue (9:30)
+06. Sleeping Witch (6:45)
+07. South Of Somewhere (6:34)
+08. Drown (8:19)
+09. Minus (2:10)
+10. Black Water Vision (5:52)Жанр: Stoner Rock/Hard RockПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043032   (576660) от 14.08.2016
 
 The Boyscout - My Route 66 (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
@@ -699,64 +763,6 @@ Armageddon - Heavy Metal Saga (2002) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235002   (564077) от 09.07.2018
-
-BB Steal - On The Edge (1991) [FLAC|Lossless|image + .cue] <Hard Rock,  Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Edge (Lizzy Town) (5:40)
-02. Big Love (4:24)
-03. Ride On (5:24)
-04. Suffer In Silence (5:18)(   Читать дальше...   )Жанр: Hard Rock,  Arena RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2B361DBCB53FB2EF2BFFE3114672051E2E801D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555990   (563238) от 07.06.2022
-
-Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slut Machine (00:03:26)
-02 - Line of Fire (00:03:31)
-03 - Riot in Hell (00:03:09)
-04 - Suicide (00:05:10)(   Читать дальше...   )Жанр: Hard Rock, SleazeПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FAC8582324828A1C37E4B62D2A4F0A894C9C6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

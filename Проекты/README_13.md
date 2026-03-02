@@ -1,30 +1,3 @@
-###  Публикация: 1462223   (1021258) от 13.04.2021
-
-Проекты - VideoHive - Environment Day B28 - 31535121 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021258.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Environment Day B28» - стильный элегантный проект для создания промо роликов, презентации посвященного природе окружающей среды, эко-городу.
-Многие оценят по достоинству.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B672F91D631E980687A613708F48B64DE2209D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462160   (1021249) от 13.04.2021
 
 Проекты - VideoHive - Wedding Invitation Slideshow B31 - 31552496 [AEP]
@@ -678,6 +651,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A217890A71D04D3F5016CBF2F548DF77CDBFB6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464396   (1019709) от 22.04.2021
+
+Проекты - VideoHive - Stream Overlays Package - 30486301 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон «Stream Overlays Package» будет полезен для видеостримеров с каналов Twitch и Youtube. Так же может использоваться для создания изображений для Instagram, Facebook и других социальных сетей. Разрешение 4K дает вам возможность создавать высококачественный контент.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A8E28ABDA960DBAB4C29314EB3B7D510821BE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

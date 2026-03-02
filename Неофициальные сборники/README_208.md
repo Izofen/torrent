@@ -1,3 +1,206 @@
+###  Публикация: 1394473   (763732) от 05.07.2020
+
+VA - Love You to Death (2020) [MP3|320 Kbps] <Rock, Hard Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Type O Negative - Love You to Death (7:08)
+2. Paradise Lost - Mouth (3:43)
+3. Ghost - Nocturnal Me (5:13)
+4. A Perfect Circle - Judith (4:07)(   Читать дальше...   )Жанр: Rock, Hard Rock, PopПродолжительность: 02:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF257FC31D008919292F4EE4511E744A60C88BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394131   (763728) от 05.07.2020
+
+VA - не Громкие новинки недели 73 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763728.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aina - Хризантемы (4:02)
+2. Alexandra - Волны Моря (3:31)
+3. Anna Green - Назови Меня Любовью (3:49)
+4. Bobina & Винтаж - After Before (Одиночество Любви) (3:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F872F9C8101E4312B525463B7AFA0592A7868652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394423   (763727) от 05.07.2020
+
+VA - Record Super Chart 643 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Lovefool 3:11
+02. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+03. Topic feat. A7S - Breaking Me 2:47
+04. Little Big - Hypnodancer 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5DB8B7F5869DB8F9FDCCA141BCB0856F152CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394177   (763717) от 05.07.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 03.07.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surf Mesa feat. Emilee - ily (i love you baby) 2:57
+02. Filatov & Karas feat. Deepest Blue - Give It Away 3:28
+03. twocolors - Lovefool 3:10
+04. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CCAF13F9E3371F9383136F137DFFFA2281E985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394387   (763713) от 05.07.2020
+
+VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Golovin - Charger (04:05)
+ 02. Stellar Circuits - Skylights (03:57)
+ 03. Nova Collective - Dancing Machines (09:47)
+ 04. Thank Your Scientist - Wrinkle (02:32)(   Читать дальше...   )Жанр: Rock, Progressive Metal, OtherПродолжительность: 04:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31789775D45ADEFFFEC5CAB893C98BBB1FA32D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279996   (763689) от 01.02.2019
+
+VA - The Disco Mind: Funky Edition (2019) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763689.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Canosa - Fireworks
+002. Discotron - Mo Swagger Than Jagger
+003. Charlie - Switch The Sound
+004. Enyon - All Night Long(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 11:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB370FE56BDE0B3CCFD5C83D201A499F68A3A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394382   (763671) от 05.07.2020
+
+VA - Громкие новинки Июля (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763671.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Борис Гребенщиков - Не Судьба (7:04)
+2. City Of The Sun - La Luz (5:03)
+3. Bring Me The Horizon - Parasite Eve (4:51)
+4. Beyonce - Black Parade (4:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A343B4A57A0B8709A2852D81DC74F8C9A2A68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280144   (763653) от 01.02.2019
 
 VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
@@ -542,209 +745,6 @@ VA - Rampage (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E1E29CFA24B1AE0D7C569ACC9EC8D6D5242357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214739   (763071) от 23.03.2018
-
-VA - Vocal Jazz Gold Compilation (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carmen McRae - I Only Have Eyes For You
-002. Laura Fygi - Good Morning Heartache
-003. Rosa Passos & Ron Carter - Insensatez
-004. Saravah Soul - Funk De Umbigada(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 11:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D212F84C7CF3DB44106EDF0CAAE67B4C3B0E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214765   (763068) от 23.03.2018
-
-VA - Hit Retromania: Mood Disco 80s (2018) [MP3|320 Kbps] <Pop, Euro Pop, Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Kano  -  Another Life (Maxi Version)  7:14
-002.  Pet Shop Boys  -  West End Girls (Remix '86)  5:00
-003.  Ryan Paris  -  Fall In Love  7:23
-004.  L'affair  -  Secret Eyes (12' Version)  5:54(   Читать дальше...   )Жанр: Pop, Euro Pop, EurodiscoПродолжительность: 09:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FBF57D184BE6C8B83282EC7E6E39662319D621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214775   (763067) от 23.03.2018
-
-VA - Динамик MP3 Весенний Популярный Микс (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763067.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Нюша - Ночь
-002. Анжелика Агурбаш - Лучше Тебя Нет
-003. Babek Mamedrzaev - Береги Её, Боже
-004. Елена Темникова - Фиолетовый(   Читать дальше...   )Жанр: PopПродолжительность: 12:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9257D0B18EBFB87D341062AD72D2741079393FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017114   (763038) от 16.05.2016
-
-VA - Tallinna Terrace Club Collection 3CD (2016) [MP3|320 кб/с] <Downtempo, Nu Disco, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763038.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. The Project & Artenvielfalt feat. Miss Natnat - I'm Done (House Mix) (04:40)
-02. AN.DU & Fomin feat. Osha - Allright (Extended Mix) (05:08)(   Читать дальше...   )Жанр: Downtempo, Nu Disco, Vocal HouseПродолжительность: 04:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC48AE441BC25CBFC8D884936538834F1B0B923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017231   (763032) от 16.05.2016
-
-VA - Горячая 100ка русского шансона (2016) [MP3|256 кб/с] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763032.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Фёдор Освальд - Бутылочка Вина
-002. Андрей Забродин - Еду Домой
-003. Folk Катрин Band - Зеленоглазка
-004. Майя Подольская - Грешная Любовь(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D89C36342F2667DD3D33E703F2D62F6DFDD804D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214761   (762990) от 23.03.2018
-
-VA - Magic Piano Sounds (2018) [MP3|320 Kbps] <Piano, Classic, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Helene Grimaud  -  Johann Sebastian Bach (Partita or Violin Solo No.3 in E Major, BWV 1006 - 1. Preludio)  3:42
-02.  Martha Argerich  -  Peter Ilyich Tchaikovsky (Piano Concerto No.1 in B Flat Minor, Op.23, Th.55 - 1. Allegro Non Troppo E Molto Maestoso)  3:38
-03.  Rick Wakeman  -  Morning Has Broken  3:42
-04.  Friedrich Gulda  -  Wolfgang Amadeus Mozart (Piano Concerto No.27 (   Читать дальше...   )Жанр: Piano, Classic, InstrumentalПродолжительность: 04:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46C10CED821EB1CE0F9DC71AA33A28B186A929F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214845   (762987) от 23.03.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762987.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK061 Europe - All Or Nothing
-062 Suicidal Tendencies - Send Me Your Money
-063 Skid Row - Get The Fuck Out
-064 Nickelback - Lullaby(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB256B84FA438DF616AC971B3CE90177F2358C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

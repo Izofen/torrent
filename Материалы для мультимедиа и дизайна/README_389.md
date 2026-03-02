@@ -1,3 +1,29 @@
+###  Публикация: 1787601   (23458) от 26.03.2025
+
+Пресеты - PhotoWhoa - 5000+ Best Photography Lightroom Presets Bundle [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_23458.jpg" />
+</div>
+
+
+###  Подробнее
+
+От эстетичных осенних красок до теплых летних ощущений — придайте своим фотографиям необходимую атмосферу с помощью этих пресетов.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4540233EAF69E4FCC32955AACC2E0D54131837F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787564   (23436) от 26.03.2025
 
 Пресеты - Creative Market - Lightroom Presets-Entire Collection - 3516459 [XMP, DNG, LRTEMPLATE]
@@ -660,34 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9FED088704FD0568DE8A720A1C36F4753EC17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789260   (22606) от 03.04.2025
-
-Шрифты - Alina Absaliamova - Behance - NIT - Free Display Font - 188881135 [OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей.
-Разработчик: Alina Absaliamova
-В файлах в папке "NIT By He Rez AD" от "He Rez AD" добавлена немного расширенная кириллица (Украинская, Белорусская, Молдавская), глифы теперь в обоих регистрах, им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F078E741A96D4E13380984417E63B1D3B3026C
 ```
 
 https://mybot314.ru/tekegram_catalog/

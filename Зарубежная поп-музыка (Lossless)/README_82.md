@@ -1,3 +1,118 @@
+###  Публикация: 1677917   (149071) от 19.11.2023
+
+Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alles funkelt! Alles glitzert!
+02. Neonfarbenwelt
+03. Alles wird gut
+04. Wir tun es nochmalЖанр: Eurodance, EuropopПродолжительность: 00:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677723   (148910) от 19.11.2023
+
+Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceano [00:04:03]
+02. My Confession [00:04:58]
+03. Mi Mancherai (Il Postino)Жанр: PopПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B705530AD2DEA635927812C2F5F2726F3D82FDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677843   (148751) от 19.11.2023
+
+Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl You Know It's True [00:03:18]
+02. Baby Don't Forget My Number [00:04:10]
+03. Blame It on the Rain [00:04:08]
+04. I'm Gonna Miss You [00:03:59](   Читать дальше...   )Жанр: Pop, Rap, Synth-popПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271560   (148566) от 24.12.2018
+
+Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + .cue] <Pop, Disco, 70s, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Quijote (4:06)
+ 02. Egy Huszas Eleg (3:37)
+ 03. Marathon (5:27)
+ 04. Korben-jaras (3:45)(   Читать дальше...   )Жанр: Pop, Disco, 70s, 80sПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E35C485AB971956E9A0E2DB4649910B20BE4E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435031   (148098) от 26.12.2020
 
 VA - Glory of Love: Classic Love Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -626,123 +741,6 @@ Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27003FA15B7F0BCC7AC61CA711195AFBF1332B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435573   (141976) от 29.12.2020
-
-Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till I See You Again (3:17)
-02. I Love You Baby (3:29)
-03. Bye Bye Girl (3:24)
-04. Sunshine Superman (4:07)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9E30EB9B845B89082F38DEBA18635E8A272FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435566   (141960) от 29.12.2020
-
-The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] <Rock, Pop, Surf>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan & Dean - Surf City (2:30)
-02. Jan & Dean - Deadman's Curve (2:27)
-03. Jan & Dean - I Get Around (2:06)
-04. Jan & Dean - Help Me Rhonda (2:56)(   Читать дальше...   )Жанр: Rock, Pop, SurfПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520458   (141840) от 28.12.2021
-
-VA - Now 100 Hits Christmas (2019) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Christmas, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительный пост в уходящем году. Не то чтоб на этом сборнике Вас ждали какие-то уж совсем новинки, но всё здесь подобрано старушкой Соней так, чтоб лишний раз не отвлекаться от праздничного стола и салат оливье сочетался с хорошим музыкальным сопровождением.
-Не пугайтесь того, что в первом видео внизу вас встретит надпись о шокирующих кадрах. Время меняется и (   Читать дальше...   )CD1:
-01. John Lennon - Happy Xmas (War Is Over)  (3:35)
-02. Shakin’ Stevens - Merry Christmas Everyone  (3:40)
-03. Elton John - Step Into Christmas  (4:31)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 8 ноября 2019 годаЖанр: Christmas, Pop, RockПродолжительность: 05:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5273ED0E837C65A77B5FF4BF666B4538700BD805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435578   (141539) от 29.12.2020
-
-Sonny & Cher - The Collection (1990) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cher - Gypsies, Tramps And Thieves (2:35)
-02. Cher - Dark Lady (3:25)
-03. Cher - The Way Of Love (2:31)
-04. Sonny & Cher - I Got You Babe (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4D80BB7480B6979006CB7D5D008B6190ED13BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

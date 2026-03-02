@@ -1,3 +1,29 @@
+###  Публикация: 1367730   (913416) от 17.03.2020
+
+Проекты - VideoHive - Page Flip Logo - After Effects Template - 22090263 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это проект с быстрой демонстрацией ваших фотографий и логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1895D78F3D3F65480E90DB096A81EAD9A394BB1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990022   (913164) от 24.02.2016
 
 Проекты - VideoHive - Flush Logo [AEP]
@@ -174,32 +200,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8CEC547F1949BBB7BF3BB61CD1078B52753BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867297   (904108) от 07.02.2015
-
-Проекты - VideoHive - Fluid Opener Pack [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Fluid Opener Pack - проект для создания логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546864CB15C9D6F17E9AF12ECB3CE22CFCF5AA74
 ```
 
 https://mybot314.ru/tekegram_catalog/

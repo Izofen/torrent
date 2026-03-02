@@ -1,32 +1,3 @@
-###  Публикация: 1622099   (1030515) от 27.03.2023
-
-Tom Raley - Tangled Up And Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tangled Up And Blue (4:14)
-02. Late Night (3:50)
-03. Southbound Train (4:42)
-04. Tell Me You Love Me One More Time (3:00)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D404E6A4F5661824BB51B85DAD54FB57737D9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622043   (1030506) от 27.03.2023
 
 Savoy Brown - Blues All Around (2023) [FLAC|Lossless|image + .cue] <Blues Rock, R & B>
@@ -745,6 +716,35 @@ Nathan B. Spooner - Grampa's Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1715F7B02AD735BC424D4C5F0E9A9B949E1284A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623076   (1029611) от 31.03.2023
+
+Vince Guaraldi - Alma-Ville (1969) 2005, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Cool, Latin Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Masked Marvel [5:21]
+02. Cristo Rendentor [4:51]
+03. Detained in San Ysidro [3:33]
+04. Eleanor Rigby [5:13](   Читать дальше...   )Жанр: Cool, Latin Jazz, Piano JazzПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627FE901BA6227FEC41B2A30D6F1482EBD33F94F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1780731   (27015) от 20.02.2025
+
+Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Alternative, Covers>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Like An Egyptian (& The Bangles) (Leo Metal Covers Volume 31 2020)
+02. Skyfall (& Adele) (Leo Metal Covers Volume 44 2023)
+03. (You Gotta) Fight For Your Right (To Party !) (& Beastie Boys) (Leo Metal Covers Volume 38 2022)
+04. Agatha All Along (& Kristen Anderson-Lopez) (Leo Metal Covers Volume 33 2021)(   Читать дальше...   )Жанр: Metal, Alternative, CoversПродолжительность: 15:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59D77A443BF60C31F4559C16C463AB2FE4EF05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782143   (26275) от 27.02.2025
 
 Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
@@ -716,35 +745,6 @@ Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBEC90ADCEDE1E20C114A8A4EB270BBD208AB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796474   (18415) от 13.05.2025
-
-Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indie rock, Pop rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sharks (Imagine Dragons-Live In Vegas | 2023)
-02. Natural (Origins | 2018)
-03. My Life (Mercury-Acts 1 & 2 | 2022)
-04. Radioactive (Night Visions | 2012)(   Читать дальше...   )Жанр: Alternative rock, Indie rock, Pop rockПродолжительность: 03:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

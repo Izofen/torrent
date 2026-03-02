@@ -1,3 +1,205 @@
+###  Публикация: 1015646   (774044) от 11.05.2016
+
+VA - Italo disco 80s 100 Hits (2016) [MP3|224-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Adriano Celentano - Soli (03:56)
+002 Al Bano & Romina Power - Felicita (03:07)
+003 Eros Ramazzotti - A Mezza Via (05:43)
+004 Ricchi & Poveri - Piccolo Amore (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC20E28EDE5BA6693D13C22A86D19495D8A3653D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278078   (774034) от 23.01.2019
+
+Nirvana - This Is Nirvana (2019) [MP3|320 Kbps] <Rock, Grunge>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Smells Like Teen Spirit
+02 – Come as You Are
+03 – Heart-Shaped Box
+04 – Lithium(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 02:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9AE45F40FC06F27118B10684D540046749B0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212853   (774006) от 14.03.2018
+
+Savage - Only You (2017) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774006.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Only You
+2. Master Remix
+3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA56103EB5721C23E333F5064826DE396FA197B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015483   (773984) от 11.05.2016
+
+VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes - Stitches
+002. Lukas Graham - 7 Years
+003. Dua Lipa - Be The One
+004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB2A07AB4CC57AE45F57130562ED9D80214F40B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015686   (773979) от 11.05.2016
+
+Ирина Аллегрова - Перезагрузка. Перерождение (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перезагрузка
+02. По МКАДу
+03. Птица
+04. Сумка(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659E72EBF58349715D9A63CD6D78650BDA6542C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278106   (773960) от 23.01.2019
+
+VA - Empire Records - Deep Blue 3 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Blu feat. Sansa - Thinking About You (JYYE Remix)
+02. Lipless & Patrick Baker - Stranger (Original Mix)
+03. Stravan - Eat Pussy Not Cake (Original Mix)
+04. Georgian - Closer (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278010   (773956) от 23.01.2019
+
+VA - Дискотека 2019 Dance Club Vol. 187 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka 2019!):
+01. Mr. DJ Monj, A-Mase feat. Da Buzz - Without Breaking (Extended Version) (5:42)
+02. Adip Kiyoi & Christina Novelli - Carousel (Extended Club Mix) (6:01)
+03. Pete Bellis & Tommy - Looking For A New Home (Original Mix) (4:27)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 24:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89571573710719430A370BDF5AE3DDC6404C3FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015566   (773930) от 11.05.2016
 
 Ozzy Osbourne - The Best Hits (2016) [MP3|320 кб/с] <Rock>
@@ -541,221 +743,6 @@ VA - 90's Dance Attack (2019) [MP3|320 Kbps] <Euro-House, Dream House, Hard Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBD6A8FB7873092E88290946EDBB01085A84CBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015884   (772971) от 12.05.2016
-
-VA - Mуз-сливки хит-парадов. Русский выпуск (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Даша Столбова - Баллада
-002. Brainstorm - Пропуск
-003. Kristina Si - Не Обижай Меня
-004. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4030799D87C52A1784518B7234F9E00DA05F1DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016037   (772833) от 12.05.2016
-
-VA - Acoustic Roots Great Britain (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Cuddeford - Jenny Wren
-02. James Betteridge - Home Prelude
-03. James Betteridge - Home
-04. L Caminero - Donnelly Reel(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FCDC0B88630BE9C608EEDEF188FDF1431290D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278146   (772816) от 24.01.2019
-
-VA - Не за горами весна (2019) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Логунов - Тайга встречает март
-02. Андрей и Наталья Язвинские - Вишни
-03. Олег Газманов & Ирина Круг - Твой дом
-04. Алексей Брянцев - Тебя мне подарила зима(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13687A6839B728709D02BBB06807827507BC3B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015992   (772813) от 12.05.2016
-
-VA - 80s Heart Soul Hits (2016) [MP3|320 кб/с] <Euro Disco, New Wave, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotch - Disco Band (Remix) 08:49
-02. Lian Ross - Say You'll Never 06:36
-03. Bad Boys Blue - I Wanna Hear Your Heartbeat (Sunday Girl) 06:29
-04. Mike Mareen - Don't Talk To The Snake 08:01(   Читать дальше...   )Жанр: Euro Disco, New Wave, SynthpopПродолжительность: 03:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279CC95CC3AA33A46ABF21D265FC1663306DE7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015908   (772671) от 12.05.2016
-
-VA - Хиты для хорошего настроения (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Марк Тишман - Пьяные, Счастливые
-02. Олег Верд - Иду К Тебе
-03. Mado - Ты Не Пришла
-04. Филипп Киркоров - Где-то, Но Не Со Мной(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD97C6A7478F9A38A146BE7F0362156529A0D067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318519   (772590) от 06.04.2011
-
-VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Tas - Without You (V I F Remix)
-02. Alex Barattini - Let Me Kiss You (Radio
-03. Alisiya - Колыбельная (Dj Pomeha Remix)
-04. Arnej - The Day Will Come (Sied van Riel Remix)
-05. Axwell - Nothing But Love (Radio Edit)
-06. Benassi Bros feat. Dhany - Hit My Heart (DJ Freedom Remix)
-07. Bob Sinclar Feat. Ben Onono - Rainbow Of Love
-08. Candi Lynn - Hopn Popn (Disco Fries Clean Radio Edit)
-09. Cher - You Haven't See The Last Of Me (Almighty Radio Edit)
-10. Coolio - Gangsta's paradise (Bernasconi & Farenthide radio mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EB0761FA3F1E204E1C68EEBBCFB17EC36E9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318389   (772582) от 06.04.2011
-
-VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) [08:10]
-02. Armin Van Buuren Feat. Christian Burns - This Light Between Us [05:09]
-03. Tony Igy - Astronomia (Original Mix) [05:58]
-04. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix) [04:37]
-05. Avicii - Malo [07:14]
-06. Laurent Wery feat. Swiftkid - Hey Hey Hey [05:29]
-07. Black Eyed Peas - The Time [05:09]
-08. Nero feat. Alana - Me & You [04:31]
-09. DJ Feel, Matisse & Sadko - A Day To Remember [04:14]
-10. David Guetta & Snoop Dogg - Wet [05:42](   Читать дальше...   )Жанр: House, Electro, Trance, DanceПродолжительность: 02:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

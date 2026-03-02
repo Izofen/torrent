@@ -1,3 +1,120 @@
+###  Публикация: 1249421   (436008) от 23.09.2018
+
+Greyson Chance - Hold on 'til the Night (2011) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Outside the Lines (3:52)
+ 02. Unfriend You (3:22)
+ 03. Home Is in Your Eyes (3:31)
+ 04. Hold on 'til the Night (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D97AB62FCAD59D0F17A48E1A2A7AA9096233690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945150   (435260) от 09.10.2015
+
+Selena Gomez - Revival (Deluxe Edition) (2015) /Scene/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BED64C2B451501E2113E5FD4A054BC6353E00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707929   (434794) от 06.10.2013
+
+VA - Pure... Fitness (2013) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем одноклубникам, коллегам по фитнесу посвящается!
+Старушка Sony Music тряхнула закромами родины и собрала забойные вещи аж с 1974 по 2011 годы. Получилась подборка под которую действительно тянет заниматься и заниматься (кому уж и чем придется). Мои коллеги по фитнесу восприняли её на ура и вот теперь спешу поделиться со всеми.01. A Tribe Called Quest - Can I Kick It ? (4:14)
+02. NINA SIMONE vs GROOVEFINDER - Ain't Got No, I Got Life  (3:21)
+03. ELVIS vs JXL - A Little Less Conversation  (3:33)
+04.  Apollo 440 - Stop The Rock (3:34)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 04:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2623BD0F2444FC36B5D7DDD9840D85AF74B35A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063433   (434680) от 16.10.2016
+
+Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Material Girl
+02. Angel
+03. Like A Virgin
+04. Over And Over(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AC38F7D04357B100DBF6995B941A6135C5ECFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410781   (433973) от 22.09.2020
 
 The Naked and Famous - Recover (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -629,122 +746,6 @@ Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166788   (421269) от 18.09.2017
-
-Kaleida - Tear The Roots (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Convolution
-02. Echo Saw You
-03. All The Pretty Pieces
-04. Division(   Читать дальше...   )Жанр: Alternative Pop, Synthpop, Indie PopПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FDD09C8F8A51670C4FD19DA36B5F2C14805148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947344   (420399) от 16.10.2015
-
-VA - Movie Love Songs (1997) [FLAC|tracks + .cue]<Pop, Soul, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Nitzsche & Buffy Sainte-Marie - Up Where We Belong.
-02. Giorgio Moroder & Tom Whitlock - Take My Breath Away.
-03. Stevie Wonder - I Just Called to Say I Love You.
-04. Franke Previte, John DeNicola & Donald Markowitz - Time of My Life.(   Читать дальше...   )Жанр: Pop, Soul, Easy ListeningПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345B0027F08EBB84300C2C6553D5F747598DF353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947285   (420257) от 16.10.2015
-
-Pentatonix - Pentatonix (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<Pop, A Cappella>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Na Na Na
-02. Can't Sleep Love
-03. Sing
-04. Misbehavin'(   Читать дальше...   )Жанр: Pop, A CappellaПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B05B375FA513B8C54887C0417615026CBBDEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572631   (418958) от 28.08.2022
-
-Bee Gees - The Many Faces Of (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Barry, Maurice и Robin Gibb, более известные как Bee Gees, являются одними из самых успешных вокальных групп в истории рок-н-ролла. Немногие группы могут сказать, что они держались вместе более сорока лет, не говоря уже о том, что за это время было продано более 200 миллионов пластинок. У братьев Gibb было почти сверхъестественное чутье на создание первых (   Читать дальше...   )CD 1 The Bee Gees In Concert:
-01. This Is Where I Came In (4:01)
-02. Massachusets (2:32)
-03. To Love Somebody (2:45)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 02:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9905A0C9E921A73F2CCB387D5F54AFAA41DCCC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

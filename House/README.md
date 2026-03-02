@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1855513   (1058310) от 23.02.2026
+
+VA - Dance Report, Vol. 4 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonora Garcia - Get High (3:59)
+02. MUPHUS - Momentum (2:15)
+03. Rob Olsen - Arrival (Original Mix) (5:21)
+04. Alex Nocera, Nico Zandolino & Roy Batty - Out of My Head (2:50)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6719F2471A1A0C8FE439FEA51DECE055CA9BCC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855220   (1057997) от 21.02.2026
+
+VA - Dance Report, Vol. 3 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stylezz & Ametisto feat. Ticia - Let You Go (Original Mix) (2:46)
+02. Mojo - Blue Paradise (Original Version) (3:56)
+03. Sam Collins & Chuwe - Pancake (3:29)
+04. Amon - Get Loud (Extended Mix) (4:10)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B85B405EC0C99429FABC8BFDE4AD8997A04F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854537   (1057572) от 18.02.2026
 
 VA - Ultimate Dance 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -685,64 +743,6 @@ VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841520   (1048155) от 11.12.2025
-
-VA - 100% Ibiza (The Late Night Club Closings 2025) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz - Frequencies (Video Edit) 02:58
-02. Steen Thottrup & Kaia Mainz - Dreamers (Stefano Martiago Remix) 05:03
-03. Kornpluck - Tincture (Vocal Mix) 05:23
-04. Jacob Ireng - Contemplation (Radio Edit) 02:37(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0CC44BD62372FCCA49FC3B73B2F739F38A1C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841657   (1048089) от 12.12.2025
-
-VA - Black Hole House Music 12-25 (2025) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Nation - Hold On (Extended Mix) 04:32
-02. Bt & Jan Johnston - Mercury & Solace (Little Foot Extended Remix) 05:45
-03. Manufactured Superstars & Vedic - Diva 03:12
-04. Fonzerelli, Jaki Nelson & H4lo - Edge Of Tomorrow (Extended Mix) 05:17(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567E28DEE724A30F2C256DEDA0F75E6564B15AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -324,58 +324,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 162972   (986473) от 07.01.2010
-
-VA - The Essential Borodin (2 CD) (1955-1994) [APE|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 02:31:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164411   (985144) от 08.01.2010
-
-Mozart - The Very Best (2005) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 02:18:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613088   (982446) от 04.02.2013
 
 VA - Adagio - Serene Classical Music For A Peaceful Mind (2003) 2CD[FLAC|Lossless]<Classical>
@@ -472,41 +420,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 438218   (976011) от 18.01.2012
-
-VA - Accuphase Special Sound Selection (for Superior equipment) (2007) [FLAC|Lossless]<Classica / Jazz>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonic poem "Also sprach Zarathustra" Op.30 Einleitung [00:01:55]
-02. Children's comer Golliwog's Cakewalk [00:02:58]
-03. Partita No.3 Emajor BWV.1006 Gavotta en Roudeau [00:02:55]
-04. Vienna, City Of My Dreams [00:03:09]
-05. Cantiones profanae "Carmina Burana" in taberna quando sumus [00:03:10]
-06. Horn Concerto No.1 in D major K.412/K.514 [00:04:57]
-07. Piano Trio No.4 in E minor Op.90 "Dumky" [00:05:35]
-08. Scherzando in D major [00:03:58]
-09. Funeral march of a Marionette for Woodwind Quartet [00:03:33]
-10. "Pictures at an Exhibition",Suite Baba-Jaga [00:03:44](   Читать дальше...   )2007Жанр: Classical / JazzПродолжительность: 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637A48576A1E4EB477DF65D40DAE04439F16FBD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 167395   (972444) от 18.01.2010
 
 VA - 100 Best Adagio Voices (6CD Box-set) (серия "Best 100") (2008) [FLAC|Lossless]<Classical>
@@ -558,32 +471,6 @@ VA - Calm Modern Classical Music: 14 Relaxing and Chilled Classical Pieces (2020
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:633D8ABA6C004F4C0B4CB8A4D0B34F293EB293B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618335   (969248) от 14.02.2013
-
-Various Artists - Top 100 der Klassik (2004) [FLAC (image+.cue)|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 06:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65A014DFDCBB574B6730C9326A4FF71F443B421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,34 +595,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 752263   (938122) от 04.02.2014
+###  Публикация: 987342   (927592) от 16.02.2016
 
-Kammerorchester Berlin - Leopold Mozart. Kindersinfonie. Die Bauernhochzeit. Die musikalische Schilittenfahrt (2002) /Eterna/ [FLAC|Lossless]<Classical>
+Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Classical>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Leopold Mozart (1719-1787)
-    Kindersinfonie
-    ("Toy" Symphony)
-01. Allegro
-02. Menuetto
-03. Finale. Allegro
-
-    Die Bauernhochzeit.
-    (Peasant Wedding)
-04. Marcia villanesca(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:33
+01. Kaze no densetsu  03:33
+02. Tani he no michi  02:41
+03. Tori no hito  03:54
+04. Dream  03:02(   Читать дальше...   )Жанр: Score, ClassicalПродолжительность: 01:06:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:609903D6E1CD1DCCA797113F4F34A2851CCE7BCE
+magnet:?xt=urn:btih:11F792ED8535591D101D4FF176FC6FBE7983D203
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -743,32 +624,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 752423   (937965) от 04.02.2014
+###  Публикация: 987785   (924331) от 18.02.2016
 
-VA - 111 More Classic Tracks (2010) /Second Limited Edition, 6CD BoxSet/ [FLAC|tracks+.cue|Lossless]<Classical>
+Russian National Orchestra, Mikhail Pletnev - Russian Overtures (1994) [FLAC|Lossless|tracks + .cue] <Romantic, Contemporary, Neo-Romantic>
 
 >>Классика
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Irmgard Seefried, Erik Werba - Wolfgang Amadeus Mozart: Das Veilchen K. 476 [02:20]
-02. Renata Scotto, Giuliana Tavolaccini, Gianni Raimondi, Franco Ricciardi, Silvio Maionica, Virgilio Carbonari, Giuseppe Morresi, Orchestra del Teatro alla Scala di Milano, Antonino Votto, Coro del Teatro alla Scala di Milano, Norberto Mola - Guiseppe Verdi: Libiamo ne' lieti calici from La Traviata [03:12]
-03. Rudolf Serkin - Ludwig van Beethoven: Piano Sonata no. 30 in E major op. 109 1. Vivace [03:59]
-04. Heinrich Schlusnus, Richard Strauss - Richard Strauss: Zueignung op. 10 no. 1 [01:45]
-05. Pierrette Alarie, Leopold Simoneau, Radio-Symphonie-Orchester Berlin: Lee Schaenen - Giacomo Puccini: O soave fanciulla from La Boheme [04:05]
-06. Orchester der Deutschen Oper Berlin: Giuseppe Sinopoli, Chor der Deutschen Oper Berlin: Walter Hagen-Groll - Carl Maria von Weber: Was gleicht wohl auf Erden from Der Freischutz [02:52]
-07. Gerard Souzay, Dalton Baldwin - Claude Debussy: Mandoline [01:24]
-08. Maria Stader, Radio-Symphonie-Orchester (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:06:58
+01. Glinka, Mikhail - Ruslan and Ludmilla - Overture (4:47)
+02. Borodin, Alexnader - Prince Igor - Overture (10:16)
+03. Shostakovich, Dmitri - Festival Overture, Op.96 (5:37)
+04. Prokofiev, Sergey Sergeyevich - Semyon Kotko, Suite, Op.81a - Introduction (3:37)(   Читать дальше...   )Жанр: Romantic, Contemporary, Neo-RomanticПродолжительность: 00:62:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ACBD328E0AF5E45EE3E9F25228111F8A7E3F1F3
+magnet:?xt=urn:btih:820814DC0DC119F027D950D2BEBA5E693764EFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992247   (902424) от 01.03.2016
+
+Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caballe / Je Veux vivre dans le reve (3:51)
+02. Caballe / Questo cor ben lo comprende (3:08)
+03. Caballe, Carreras / Ah, quegli occhi... Mia gelosa! (5:55)
+04. Caballe / Spargi d'amore pianto (4:30)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992288   (902418) от 01.03.2016
+
+VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Classic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902418.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1: 
+01. Sarah Brightman -  Time To Say Goodbye (Quarantotto) (4:07)
+02. Il Divo -  You Raise Me Up (Lovland) (4:02)
+03. Nigel Kennedy -  Czardas ((Monti) (5:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: СD1: 01:14:49; CD2: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992342   (902391) от 01.03.2016
+
+VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ф.Шуберт - Ave Maria (5:50)
+02. Ф.Куперен - 'Любимая' (чакона) (5:34)
+03. Т.Альбиони - Адажио (2:48)
+04. Ф.Шопен - Фантазия-экспромт (4:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990847   (902255) от 01.03.2016
+
+Mozart - Very Best Of Mozart (2005) 2CDs [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade No.13 'Eine kleine Nachtmusik': Allegro (6:06)
+02. Horn Concerto No.4: Rondo: Allegro vivace (3:38)
+03. Cosi fan tutte: Soave sia il vento (3:14)
+04. Violin Sonata K.378: Andantino (6:39)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850C71C5F79BB18112821266393013E2668CB8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

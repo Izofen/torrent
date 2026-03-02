@@ -1,3 +1,206 @@
+###  Публикация: 1129829   (718632) от 30.04.2017
+
+VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Ed Sheeran – Shape of You
+003. Burak Yeter – Tuesday (feat. Danelle Sandoval)
+004. Jason Derulo – Swalla (feat. Nicki Minaj Ty Dolla ign)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DC35AE439E8042C625B15DC69E119C1869AD77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129907   (718612) от 30.04.2017
+
+VA - Record Super Chart #484 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Nash - Know My Love  4:23
+02.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
+03.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
+04.  Martin Garrix feat. Brooks - Byte  4:45(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB12A2F2282132D8A8935123915B982950C700E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285751   (718586) от 27.02.2019
+
+VA - Hit Music (весна 2019) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718586.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LMFAO - I'm Sexy and i know it (ART PRYDE Remix)
+002. Tim Schou - Acapella
+003. ДеЛайла - Парадайз
+004. Kaaze feat. Nino Lucarelli - I Should Have Walked Away(   Читать дальше...   )Жанр: PopПродолжительность: 11:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7DFECDB99FC39E207C5F4AD8B56D8FAD66E178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531851   (718549) от 17.02.2022
+
+VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booker T. & The MG's - Green Onions (02:55)
+02. Pink Floyd - Alan's Psychedelic Breakfast (2011 Remastered Version) (13:00)
+03. The Spencer Davis Group - Gimme Some Lovin' (Single Mix) (02:58)
+04. Al Kooper - Stop (04:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4026176BA57AD15B46996780C3BEF91166FC0310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129814   (718441) от 30.04.2017
+
+VA - Music Of Dreams: Original Relax Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718441.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Deep Sleep Hypnosis Masters - Massage Music  3:26
+002.  Xerxes & Phoenix - Scarecrow  4:04
+003.  351 Lake Shore Drive - Frozen Heart  6:51
+004.  Marga Sol - Ibiza Blue  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285431   (718385) от 27.02.2019
+
+VA - Club Dance Ambience vol.172 (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718385.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #Неболира - На Твой Свет (Ivan Art Remix)
+002. 5&Dime, Left Of The Boom - Shackles Feat Janine Fagan  (Dj Bong Mash Up)
+003. A.Chal - Oooooo (Amice Remix)
+004. Aaron Smith - Dancin (Sladkoff & Andrienko Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65525067F7D5000A16F5624D422102723E4C640C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129927   (718354) от 30.04.2017
+
+VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco, Synthpop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roger Meno - I Find The Way  6:47
+02.  Modern Talking - Your'e My Heart, Your'e My Soul (Paul Masterson's Extended Remix)  7:19
+03.  C.C.Catch - One Night's Not Enough (Maxi Version)  5:17
+04.  K.B.Caps - Do You Realy Need Me (Extended Version)  6:36(   Читать дальше...   )Жанр: Disco, Euro-Pop, Italo-Disco, Synthpop, DanceПродолжительность: 13:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024363   (718259) от 08.06.2016
 
 VA - Neuro House Version Driver (2016) [MP3|264-320 кб/с] <Electronic, House, Progressive, Funky>
@@ -542,209 +745,6 @@ VA - Весенний марафон на Europa Plus (4) (2018) [MP3|256 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BB089B64D1E4F964525CAF8A032DE7D3BFDAC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219081   (717659) от 12.04.2018
-
-VA - Экспресс русских хитов на Hit FM (4) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лев Тимашов Feat. А.Арсентьев - 48 Минут
-002. Неангелы - Точки
-003. Стас Пухх - Ты Как Пуля В Груди
-004. Сергей Восьмой - Скажи Мне Брат(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0ADA8082777214906C38D0A3E5417902785EFF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218980   (717657) от 12.04.2018
-
-VA - Экспресс русских хитов на Hit FM (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717657.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Nana - Вибрации
-002. Алекс Малиновский - Пойдем Со Мной
-003. Андрей Леницкий - Подари Мне Любовь
-004. Вирус - Лети(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C020E4347FC4728DEC0C41C374EB680BE771CC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218965   (717527) от 12.04.2018
-
-VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atlanta - Romantic Break
-002. Brooklyn Guy - Cold Stuff (Original Mix)
-003. Eucariontes - Tell Me More (Original Mix)
-004. The Fans - M.A.F.I.A.(   Читать дальше...   )Жанр: Italo Disco, Pop, New GenerationПродолжительность: 10:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219051   (717519) от 12.04.2018
-
-VA - Душевный шансон в хорошей компании (2) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717519.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Edik Salonikski & Elli Mouratidou - Улетим
-002. Вера Верба - Мы Будем Жить
-003. Федосей - Ведьмочка
-004. Олег Карпович - Истина(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712A0EB7917CE79AC4D1F150B1ACCC3AAE375CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219048   (717515) от 12.04.2018
-
-VA - Душевный шансон в хорошей компании (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717515.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marina (Марина Алексеева) - Горькое Вино Любви Моей
-002. Сергей Трофимов - Интернет
-003. Валерий Палаускас - Девочка-Умничка
-004. Дмитрий Романов & Вова Шмель - Я Не Буду(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E49ECE4D26AF1D7012B383693B6ECF2FF839F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218969   (717514) от 12.04.2018
-
-VA - Sacred Killer: Metal Compilation (2018) [MP3|320 Kbps] <Black, Death, Brutal Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ellende - Am Sterbebett Der Zeit
-002. ANA - Ana
-003. Burning Shadows - Day of Darkness
-004. Soijl - Death Do Us Part(   Читать дальше...   )Жанр: Black, Death, Brutal MetalПродолжительность: 12:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01B50D06A6D02687549194D34BC7280F7B246FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219108   (717405) от 12.04.2018
-
-VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los 4 - Tu de Que Vas
-02. Ciclon Cubano - Echale Salsa
-03. Damian/Los Desiguales/El Principe - Eso Es Bola (Salsa Version)
-04. El Pequeno De La Salsa - Te Quiero(   Читать дальше...   )Жанр: Salsa, Bachata, Kizomba, OtherПродолжительность: 04:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFF8390FBDB78AF095553B7C757291351765EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

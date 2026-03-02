@@ -1,3 +1,61 @@
+###  Публикация: 1473851   (1013358) от 31.05.2021
+
+DMX - Exodus (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's My Dog (feat.The LOX, Swizz Beatz) (5:06)
+02. Bath Salts (feat. Jay-Z, Nas) (3:00)
+03. Dogs Out (feat. Lil Wayne, Swizz Beatz) (2:46)
+04. Money Money Money (feat. Moneybagg Yo) (2:09)(   Читать дальше...   )Производство: Def Jam RecordingsЖанр: Hip-HopПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E446783422E7EA733BEA8F5EFA67299046886E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474539   (1012992) от 02.06.2021
+
+VA - Chillhop Essentials Summer 2021 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hip-Hop, Trip Hop, Fusion Jazz>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Middle School, Henry Gritton – Solstice (2:26)
+02. xander. – Evening Stroll ft. Blue Wednesday (2:48)
+03. Mama Aiuto – Solar Cove (2:59)
+04. Misha – Talk (2:32)(   Читать дальше...   )Производство: Chillhop MusicЖанр: ChillHop, Hip-Hop, Trip Hop, Fusion JazzПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFEACA533CA1E02CF9384BA9CD63115E0C73AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335034   (1007228) от 10.07.2021
 
 Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Hardcore, R&B, Soul>
@@ -346,76 +404,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610266   (990085) от 29.01.2013
-
-Вадяра Блюз и Dendy - Из самых негр (2013) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
- 02. Зима
- 03. Взгляды
- 04. Дай мне пять
- 05. По цепочке
- 06. За завод
- 07. Раз
- 08. Песенка Денди
- 09. Пора попропагандировать
- 10. Пятница(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593C01AD1521DBB8A0618D4AFF96B51ECD4698CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611091   (989146) от 30.01.2013
-
-VA - Посвящение Михею [Трибьют] (2013) [MP3|320 кб/с]<Hip-Hop|R'n'B>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Кошка (Банд'эрос)
-02. Рыбка (Ева Польна)
-03. Для тебя (Бумбокс)
-04. Favorite Color (Пицца)
-05. Плачет по тебе (Даша Суворова)
-06. Мы дети большого города (СерьГа)
-07. Так чисто (Иван Дорн)
-08. Mama RMX (DJ LA)
-09. Сука Любовь (Ёлка)
-10. Достоин (Nanik)(   Читать дальше...   )Жанр: Hip-Hop|R'n'BПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26248C64B505D9B9C7AD1CDB84B2FFB005CC54F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434082   (986272) от 10.01.2012
 
 Lil Wayne - 10 Albums (1999-2011) [MP3|320 kbps]<Rap/Hip-Hop>
@@ -467,103 +455,6 @@ Lisa Fischer - So Intense (2013) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:041804D2340D29137A0FA65B7117D7ECD325ECC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742677   (976557) от 07.01.2014
-
-Naughty Boy feat. Sam Smith - La La La (2013) CDS [FLAC|Lossless]<R'n'B, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  La La La   (3:42)
-02.  La La La (Instrumental)   (3:43)Жанр: R'n'B, PopПродолжительность: 00:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D3E504FD8DDBE825FA5895D1C244B8AD70931E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438285   (976157) от 18.01.2012
-
-Мальчишник - Grand Collection (2011) [MP3|320 kbps]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Секс-контроль
-02. Улицы города
-03. Последний раз
-04. Кома' с' утра
-05. Стриптиз
-06. Rock-n-roll
-07. Мисс большая грудь
-08. Танцы
-09. Я хочу тебя
-10. Пойдем за вином(   Читать дальше...   )2011Жанр: Rap, Hip-HopПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0992218B0DAC2BD4EC9297964CB64CD729ABC4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165909   (975909) от 15.01.2010
-
-Black Eyed Peas - The E.N.D. (2009) /Deluxe Edition (2CD)/ [FLAC|Lossless]<RnB/Swing, Conscious>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Boom Pow (5:08)
-02. Rock that Body (4:29)
-03. Meet me Halfway (4:44)
-04. Imma Be (4:16)
-05. I Gotta Feeling (4:49)
-06. Alive (5:03)
-07. Missing you (4:35)
-08. Ring-a-Ling (4:33)
-09. Party all the Time (4:44)
-10. Out of my Head (3:52)(   Читать дальше...   )Жанр: RnB, Electronic, Hip Hop, PopПродолжительность: 01:44:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -765,6 +656,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3261D007807B2145CB3587DEB9BD4E6769FE832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360306   (960666) от 15.02.2020
+
+VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Notorious B.I.G. - Juicy (2005 Remaster)
+02. Ol' Dirty Bastard - Brooklyn Zoo
+03. Junior M.A.F.I.A. - Get Money
+04. Del tha Funkee Homosapien - Mistadobalina(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 06:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360622   (959449) от 16.02.2020
+
+Ресторатор - Непопулярное мнение (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прелюдии (3:04)
+02. Назло (feat. ChipaChip) (4:20)
+03. Ревность (feat. Zorin) (3:11)
+04. Cпасательный круг (2:44)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332935BD2B4919B83E4AAD185A27523777D97EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360623   (959394) от 16.02.2020
+
+Макс Корж - 2 Типа Людей (2019) Single [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Типа Людей (4:16)Жанр: Rap, Hip-HopПродолжительность: 00:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

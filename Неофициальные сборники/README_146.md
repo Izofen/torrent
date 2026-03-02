@@ -1,3 +1,206 @@
+###  Публикация: 1115611   (825669) от 18.03.2017
+
+VA - Клубные Суперхиты (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blasterjaxx & Jonathan Mendelsohn - Black Rose (Blasterjaxx Club Mix)  3:47
+02.  DJ Antoine & Conor Maynard - Dancing In The Headlights (Rudeejay & Da Brozz Club Mix)  4:01
+03.  Katy Perry & Skip Marley - Chained To The Rhythm (Liam Keegan Instrumental Mix)  4:37
+04.  Vali - Ain't No Friend Of Mine (Jesus Montanez Club Mix)  5:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDC9E2EACE9E394C35241BD0DAD908F478B02FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115808   (825667) от 18.03.2017
+
+VA - 20 Песен, которые заставляют сердце биться чаще (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - With Or Without You - 04:55
+02. Aerosmith - I Don't Want To Miss A Thing (Radio Edit) - 04:58
+03. Jeff Buckley - Hallelujah (Radio Edit) - 04:15
+04. A-ha - Velvet (Album Version) - 04:19(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D780B6F7E77A2E670D61FD5DC667DA7CB2A4F812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115816   (825663) от 18.03.2017
+
+VA - 20 Кавер версий которые превзошли оригинал (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You - 04:30
+02. Johnny Cash - Hurt - 03:38
+03. Jeff Buckley - Hallelujah (Radio Edit) - 04:15
+04. Nirvana - Man Who Sold The World (Live, MTV Unplugged) - 03:50(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1012FDBC7B7C4D76AFDD6C1101895A70152A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006697   (825585) от 13.04.2016
+
+VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuriy Pilin - Dream (Original Mix) 04:31
+02. Soundmare - Digital Sunlight (Original Mix) 06:14
+03. Alex Tasty - Double Senses (Original Mix) 06:19
+04. Romashin - A Cold Winter Sun (Original Mix) 09:51(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775120   (825535) от 08.04.2014
+
+VA - Лирика шансона (2014) [MP3|320 кб/с]<Шансон, Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Андрей Алёшкин - Дороги
+02. Григорий Лепс - Господи, дай мне сил
+03. Анатолий Полотно - В холодах
+04. Эдуард Изместьев - У моей любви глаза зелёные(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 04:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209F0157D11F1BD334BD97854339F753DB276838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006904   (825481) от 13.04.2016
+
+VA - Junodownload DJs Most Charted March (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Club House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep House:
+01.Detroit Swindle - Howsmusic (Original Mix) (7:36)
+02.COEO - Back In The Days (5:40)
+03.Mad Rey - Quartier sex (7:40)(   Читать дальше...   )Жанр: Deep House, Nu-Disco, Club House, Tech House, TechnoПродолжительность: 16:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1577E031E70AEE38C8297AC1F009014887FB08A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006909   (825476) от 13.04.2016
+
+VA - Popular Dance Boy And Girl (2016) [MP3|64-320 кб/с] <Pop, Dance, Eurodance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ro-MINA & Christiano Jordano - Insane (Dave Aude Remix)
+002. Coldplay - Adventure Of A Lifetime (Audien Extended Remix)
+003. Acim - All My Life (Original Mix)
+004. Lenny Kravitz & Merk & Kremont - Are You Gonna Go My Way(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 08:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3D905F5C759887389763F0724AC16A46F8F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006834   (825472) от 13.04.2016
 
 VA - В пятницу №76 (2016) [MP3|256 кб/с] <Pop,Shanson>
@@ -542,209 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8C82330EFD938350EB05BBAC00D86B6DD03AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007148   (823635) от 14.04.2016
-
-VA - BacauHouseMafia Vol.10 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bass Inside (Original Mix) - AC Slater 04:24
-002. Adam Lambert - If I Had You (Ricky C Remix) 04:11
-003. Ahxello - Levitate (Original Mix) 03:21
-004. Anro - I Remember House (Original Mix) 06:04(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 13:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1F3B160415C41C11C6E25D338F67FBA97309F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007114   (823567) от 14.04.2016
-
-VA - Мачо. Академия хитов шансона (2016) [MP3|256-320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Кнут - Ножичек
-02. Мурки - Мачо
-03. Виктор Калина - Дочка
-04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314BC4182A9E8E1E66378C70A3211A6BC5B05FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007020   (823484) от 14.04.2016
-
-VA - La Noche Piano: y Dulces Atmosferas Musica Clasica (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philip Bennetts - Proud Achievement
-02. Francesco Morettini - Nel pianoforte in A Major - for Piano
-03. Pino Cangialosi - Rain on Kids
-04. Gianluca Ricciardi - Conseguenze(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC3EE3CBA9DBDE6D94FC2F1EAC9ACC31D8C5CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006395   (823392) от 14.04.2016
-
-VA - Interkosmos (Compiled by Breeeze) (2016) [MP3|128-320 кб/с] <Cosmic Disco, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amberflame - Ultra Violet (05:23)
-02. Kim & Buran - Running On The Waves (05:38)
-03. Anton Romezz - Marzipan World (06:53)
-04. D-Pulse - Lazy Sun (Live At Bubble Bar) (07:23)(   Читать дальше...   )Жанр: Cosmic Disco, Nu DiscoПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA6BD27AB044DB66237D27261F376BE4B791AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007310   (823388) от 14.04.2016
-
-VA - Spring Blues (2016) 2CD[MP3|128-320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mable John - Your Good Thing (Is About to End)
-02. The Blues Project - Caress Me Baby
-03. Fleetwood Mac - Long Grey Mare
-04. Janis Joplin - Little Girl Blue(   Читать дальше...   )Жанр: BluesПродолжительность: 05:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909ED560F3C9DC9E3979058EEA3031FCC3DF2733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007379   (823314) от 14.04.2016
-
-VA - Ты придумала счастье. Шансон для души (2016) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Весенин - Весну У Двоих Не Отнять
-02. Юрий Сандик - Ты придумала счастье
-03. Весна - Самый Близкий Человек
-04. Александр Бешенный - Под Дождем(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E543CFDD1CBB47D65BC7D418FECBF83C864F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007381   (823300) от 14.04.2016
-
-VA - Зажигательный молодежный музыкайф на Europa Plus - 2 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823300.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Иван Гаранин - Я Тебя Люблю
-002. Faydee - Sun Dont Shine
-003. Aisha - Поцелуи
-004. Medina - We Survive(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E26841415B4BC5284F7AC97C5E476429464462B
 ```
 
 https://mybot314.ru/tekegram_catalog/

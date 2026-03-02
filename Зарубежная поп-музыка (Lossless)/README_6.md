@@ -1,3 +1,120 @@
+###  Публикация: 1468783   (1016716) от 10.05.2021
+
+Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paul Julien André Mauriat (4.03.1925 – 3.11.2006) был руководителем и дирижером французского эстрадного оркестра Le Grand Orchestre de Paul Mauriat, который исполнял легкие эстрадные мелодии. Каталог звукозаписи Paul Mauriat насчитывает более 1000 названий, а его альбомы разошлись по всему миру в количестве более 40 млн копий.
+Английский лейбл Vocalion представляет (   Читать дальше...   )01. Eleanor Rigby (2:15)
+02. My Sweet Lord (3:01)
+03. Yesterday (2:34)
+04. Hey Jude (3:10)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF164839EB341E118B1717F6473C38438FF2087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469544   (1016286) от 13.05.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016286.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Break My Heart Myself (feat. Travis Barker) (02:31)
+2. Sabotage (02:56)
+3. Trust Fall (02:30)
+4. Better Mistakes (02:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470920   (1015474) от 18.05.2021
+
+Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 - The World Starts Tonight
+1978 - Natural Force
+1979 - Diamond Cut
+1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471425   (1015125) от 20.05.2021
+
+St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pay Your Way In Pain [03:03]
+02. Down And Out Downtown [03:42]
+03. Daddy's Home [03:19]
+04. Live In The Dream [06:29](   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCDC010D87F94244EA442430F9482F2FC33EE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471998   (1014667) от 23.05.2021
 
 Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +746,6 @@ VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479598   (1009559) от 24.06.2021
-
-VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - drivers license (04:02)
-02. Hailee Steinfeld - Let Me Go (02:54)
-03. Selena Gomez - Lose You To Love Me (03:26)
-04. Bülow - Revolver (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ACE4757128EFAF306585D303EF1E4BD37B4265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479926   (1009298) от 26.06.2021
-
-Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский певец, который провел на музыкальных подмостках 74 года своей жизни и активно занимался музыкальной индустрией вплоть до своей смерти в 2012 году. За свою карьеру он записал 43 альбома, 18 из них стали золотыми и 3 получили платиновый сертфикат. По всему миру было продано более 100 млн пластинок с его (   Читать дальше...   )CD - 1:
-01. Can't Get Used To Losing You (2:21)
-02. Music To Watch Girls By (2:31)
-03. Speak Softly Love (Love Theme from ''The Godfather'') (3:03)(   Читать дальше...   )Жанр: Pop, Vocal, OldiesПродолжительность: 03:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480227   (1009128) от 27.06.2021
-
-VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - The Nights (2:56)
-02. Plain White T's - Hey There Delilah (3:52)
-03. Zedd, Foxes - Clarity (4:31)
-04. Norah Jones - Don't Know Why (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC4B07E9497DC29ECE008786667CDFD5A059A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481201   (1008448) от 02.07.2021
-
-Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Fighter Prologue
-02. Lonesome Fighter
-03. Om Mani Padme Hum
-04. Mysterious Call(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8425F2D37E86CEB138B0611D659C99848512CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

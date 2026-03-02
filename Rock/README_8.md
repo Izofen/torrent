@@ -1,3 +1,67 @@
+###  Публикация: 1352274   (1001277) от 13.01.2020
+
+Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Progressive Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Morning (5:44)
+02. In a Sacred Manner (4:40)
+03. Sundance Chant (4:10)
+04. Young Coyote (3:18)(   Читать дальше...   )Жанр: Progressive Rock, KrautrockПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC16946A98EFA3FF3258943EBC94538CC37725A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597302   (1000689) от 01.01.2013
+
+Кам'яний Гість - 60/70 (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Під плач гітари моєї #1
+2. Там вдалині
+3. Люди дивні
+4. Мерседес Бенц
+5. Зафарбую чорним
+6. Ми знали
+7. Вітер десь носить
+8. Леді в чорному
+9. Храм короля
+10. Ти скажи мені, друже…(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919C37B41A520137CBF5E33AB8D9E9130EC50854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596864   (1000501) от 02.01.2013
 
 Mondo Generator - Hell Comes To Your Heart (2012) [MP3|320 кб/с]<Stoner Rock>
@@ -754,76 +818,6 @@ VA - 70s Forever: The Ultimate Rock & Pop Classics (2019) 3CD [MP3|320 Kbps] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D136731603686D178DF8413C8092B0741DA2978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607268   (991148) от 28.01.2013
-
-Bonnie Tyler - All The Best (3CD) (1996) [MP3|320 кб/с]<pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991148.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 101. More Than A Lover
-02. Where Were You
-03. God Gave Love To You
-04. Sending Me Angels
-05. Careless Heart
-06. Whenever You Need Me
-07. Why
-08. Till The End Of Time (Duet With Dan Hartman)
-09. Heaven Is Here
-10. Love Is In Love Again(   Читать дальше...   )Жанр: popПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5DAF3A38D0D418AAB8B3ABD223D71F97667711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610742   (989398) от 30.01.2013
-
-Buddy Holly - The Ultimate Best Of Buddy (2011) [MP3|320 кб/с]<Rock-n-Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 What To Do
-02 Early In The Morning
-03 Peggy Sue
-04 Everyday
-05 Maybe Baby
-06 Baby I Don't Care
-07 Learning The Game
-08 I'm Gonna Love You Too
-09 Fool's Paradise
-10 True Love Ways(   Читать дальше...   )Жанр: Rock-n-RollПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC0AEE87D7A1E8B20D12F551C915D1A6449B96C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1119014   (809597) от 27.03.2017
+
+VA - Положительный заряд отличного настроения выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Смирнов & Компания - Прочь 3:31
+002. Зара - Миллиметры 3:33
+003. Piar - Страны Города 3:41
+004. Evidelle - Ну Почему 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385C4E5AC492F3A1BA33026F9F1EF62C80BB87C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119016   (809596) от 27.03.2017
+
+VA - Танцевальная вечеринка на Hit FM выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Слава Басюл - Ты Меня Ранишь Поцелуями 4:45
+002. Тина Кароль - Lost In The Rain 3:18
+003. Алина Башкина Feat. Dj Andrey Sanin - Ты Изменил Мою Жизнь 3:18
+004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656622359110D0CD64D045104F76D61EE9683983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198195   (809595) от 10.01.2018
+
+VA - Deep House Collection Vol.151 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7even (GR) - What Makes U Feel (Original Mix) 6:26
+02. A-Mase & Sharliz - Ты Где-То (Original Cover Mix) 5:38
+03. Ace of Base - Happy Nation (Fred & Mykos Remix) 3:55
+04. Adrien Kepler - Following the Girl (Original Mix) 6:38(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1A01019D436F02CFEFE272A925DB7E43975E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198197   (809590) от 10.01.2018
+
+VA - Deep House Collection Vol.152 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessio Cala' - Free Life (Original Mix) 5:54
+02. Alexander Price - Waiting (Paramour Dub Mix) 7:19
+03. Alex Moiss - Tribute To Helly (BDTom Remix) 8:46
+04. Allies for Everyone - Conjure (Original Mix) 6:32(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8732BE5B9F5FD88285218609A3E000B39B7C8777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009249   (809546) от 21.04.2016
+
+VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer & Brooklyn Bounce - Don't Stop (Raindropz! Remix)
+02. Nick Skitz & Raverockerz feat. Brooklyn Bounce - Rock The Party (Original Mix)
+03. Off Tap - Focus (Ryan N Remix)
+04. Xam Soto - Flatline (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B2C36949175897F93EB82C7D78CA00684B8131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504187   (809480) от 24.10.2021
+
+VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave, Synthpop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Panoptic, Paul Anthonee - Surface
+002. Wang Inc. - Approdo
+003. Betonkust - Because I Want To Fit In
+004. Lord Of Loud - Starlight(   Читать дальше...   )Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 08:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12BC073E33922C513164E0929D718CE08219F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119020   (809465) от 27.03.2017
+
+VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. София Куценко - Луна 3:34
+002. Виталий Козловский - Мое Желание 3:31
+003. Зара - Забыть О Тебе 3:32
+004. Bubble Gum - Вытворяют Чудеса 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF37BF9DD224E42972F21A0E9191B6EAB90162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119024   (809462) от 27.03.2017
 
 VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -542,209 +745,6 @@ VA - Blues Collection 7 (2017) [MP3|320 Kbps] <Blues Rock. Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9B4242C6FE78F69D204DF5CEC99129727C236C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119000   (808545) от 27.03.2017
-
-VA - Дискотека  Dance Club Vol.162 (2017) [MP3|320 Kbps] <Dance, Club, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MCB 77 - Dangerous Game (Original Mix) 4:03
-002. Higheffect feat. Silvia Dias - Sweet Dreams 3:35
-003. KSHMR & Crossnaders feat. Micky Blue - Back To Me (Extended Mix) 3:56
-004. Светлана Лобода - Случайная 3:53(   Читать дальше...   )Жанр: Dance, Club, Deep HouseПродолжительность: 18:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFFDBEC51FAF85BD972491283F2A0E8499C1535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009658   (808357) от 22.04.2016
-
-VA - Sound Of Tomorrow (Mixed By DJ Flybeat) (2016) [MP3|320 кб/с] <House, Progressive House, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas & Mazza - Why (Original Edit) 02:42
-02. Picco - You Know Why (Original Edit) 03:04
-03. CJ Stone - Lost (Original Edit) (feat. Lyck) 03:26
-04. Ghost - Not Alone (Stefan Rio Remix Edit) 03:25(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 04:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B57EA20F8A5D44C0794ADDA57FE6B256A6419C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383797   (808268) от 17.05.2020
-
-VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Capon - Shut Up Chicken 2:31
-02. Тайпан feat. Agunda - Луна не знает пути 2:11
-03. Topic & A7S - Breaking Me 2:47
-04. Little Big - UNO 2:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F8CE8FB6149519ABD3FBE4871B3B0E08894C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009842   (808245) от 22.04.2016
-
-VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gal Abutbul & Sarah Russell - You Have Realised (Uplifting R 05:56
-02. Walsh & McAuley and Katty Heat - Wider Horizon (Azotti Remix) 06:18
-03. Matteo Marini & Ellie Lawson - Dreaming of a Better World (Ma 04:58
-04. Mike Saint-Jules Ft. Sandel - Broken Turn (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009706   (808238) от 22.04.2016
-
-VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonsugi - Under the Cool Rain
-002. Monroe Days - A Gentle Wind
-003. Cane Garden Quartet - Toca Me
-004. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009657   (808234) от 22.04.2016
-
-VA - Megalodon Bass (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BassBrothers - It's Right
-02. Royalston, Hannah Joy - People on the Ground
-03. Annix - Forever
-04. Anile - Jack of Clubs(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 05:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BF3E576C6A38D077143DEB661CD51C172A1CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009601   (808233) от 22.04.2016
-
-VA - Весна на шансоне 5 (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вячеслав Московкин - Что Же Ты Командир
-002. Любовь Попова - Мама
-003. Альберт Ибраев - Здравствуй Весна
-004. Александр Казанцев - Цыган(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA779FFE86833304805CC78E8065DE88C2F842DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

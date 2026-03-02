@@ -1,3 +1,206 @@
+###  Публикация: 1609899   (1042898) от 05.02.2023
+
+VA - Night Rider 5 (2023) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zerb feat. Kidd Thorn - Winding Road (Extended Mix) (3:45)
+02. Alex Nocera Roy Batty - Odyssey (Extended Mix) (4:44)
+03. Amo M - Cry My Name (Starix Production & Twin Remix) (3:06)
+04. Alok, ALOTT & Apophis - Alone (Zack Dean Edit) (3:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15401E98FAE37D2B235E64FD23EED9D8DEEF036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609779   (1042890) от 05.02.2023
+
+Parov Stelar - Nu-Jazz compilation (2023) [MP3|320 Kbps] <Nu-Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candy Girl Feat Vallemarie
+02. Clap Your Hands
+03. Josephine Feat. Anduze
+04. The Paris Swing Box(   Читать дальше...   )Жанр: Nu-JazzПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43C6FBA2717839641D292C48134482B9CE3A913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609785   (1042886) от 05.02.2023
+
+Parov Stelar - Assorted compilation (2023) [MP3|320 Kbps] <Electro Swing, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coco (Feat. Lilja Bloom)
+02. Keep on Dancing Feat. Marvin Gaye
+03. Silver Line
+04. Six Feet Underground (Feat. Claudia Kane)(   Читать дальше...   )Жанр: Electro Swing, House, OtherПродолжительность: 02:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C152C49C6C0DC4DF2D0534DAA9B42E5B3B2387C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609776   (1042874) от 05.02.2023
+
+Oscar Benton - Compilation (2023) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bensonhurst Blues
+02. Please Love Me
+03. Helpless
+04. He's Crazy(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3178293847902D3E533855EDB42A2FFB5F7A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610017   (1042866) от 05.02.2023
+
+VA - Deep House & Groove Mixed (2023) [MP3|320 Kbps] <Deep-House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Aedidias - L'aquitaine
+002. Bobby Smile - Get Up
+003. Jordan Brando - Marz
+004. Groove Republic - Garden Grooves(   Читать дальше...   )Жанр: Deep-House, ElectroПродолжительность: 11:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914AE0F0F18C1B44301E28CAA3FA6777B0F8BC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610054   (1042851) от 05.02.2023
+
+VA - Record Super Chart 04.02.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady GaGa - Bloody Mary (Clinton Sparks Remix) (4:02)
+02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+03. Alok feat. Sigala & Ellie Goulding - All By Myself (2:51)
+04. David Guetta feat. Bebe Rexha - I'm Good (Blue) (4:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC4D01B8F7CF19056CBD52C8FA052A1FB0ABAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436881   (1042776) от 02.01.2021
+
+VA - Music News vol.61 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042776.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анастасия Рэй - Станем Cтранными (03:00)
+ 002. Alex D'Rosso & Swizznife feat. Eeva - Good Vibrations (02:25)
+ 003. AlphaLove feat. Conor Maynard - Don't Wanna Stop (02:37)
+ 004. Anabel Englund - Picture Us (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AA33FF5F90DB7099FE23A34029FBBE5A846E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436848   (1042761) от 02.01.2021
 
 VA - Ремиксы 2К21 (2021) [MP3|320 Kbps] <Pop, Club, Dance>
@@ -542,209 +745,6 @@ VA - Metamorphosis: Psy Trance Set (2021) [MP3|320 Kbps] <Psy, Goa, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1929CA3F38244ADD7A962D46764A0C28D2442422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437589   (1042010) от 05.01.2021
-
-VA - Cristmas Dance Electropop (2021) [MP3|320 Kbps] <Pop, Dance, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное ни один Новый год не обходится без хорошей музыки. Особенно это актуально для новогодних корпоративов. Специально для тех, кого назначили ответственным за подбор музыкального сопровождения на праздник, мы предлагает сборник "Cristmas Dance Electropop", песни из которого отлично подойдут для вашего празднования и заведут даже самую невеселую публику.001. Ivan Cappello - Tico Tico
-002. Selena Gomez - Crowded Room
-003. Huebiproductions - This Need
-004. 71 Digits - My Loneliness(   Читать дальше...   )Жанр: Pop, Dance, ElectropopПродолжительность: 08:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842B3ABF14994E627F3DE87D9CFCFA05F6EFE1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437582   (1042007) от 05.01.2021
-
-VA - Rap Hop Yearmix (2021) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любитель лирики, речитатива и битов? Именно для вас вышел новый сборник из 155 треков "Rap Hop Yearmix", в котором молодые исполнители в стиле рэп и хих-хоп делятся своим умением читать лиричные тексты под музыку. И когда вы дослушаете этот сборник до конца, то получите массу удовольствия и новых впечатлений.001. Kasimir1441 - Doppel K
-002. Blockrepp Shad - Rated R
-003. Lew Kangg - Soulja Slim
-004. Antidote - Badd(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E75CA85895B81DAC620EC6DDFE9D43726A29B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437509   (1041992) от 05.01.2021
-
-VA - Spacesynth Music Collection (Presents Elgujakviso) (2021) [MP3|320 Kbps] <SpaceSynth, SynthDisco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Spacehawk - Cybernoid
-002 Galaxy Hunter - Return From Orion (Instrumental Version)
-003 Bellatrix - Cosmodrome
-004 Cyber Space - Grains Of Energy(   Читать дальше...   )Жанр: SpaceSynth, SynthDiscoПродолжительность: 18:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BDDA4FBC13397A233F198C421676E18D65CF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437585   (1041929) от 05.01.2021
-
-VA - не Громкие новинки недели 93 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Мочалин - Право На Сновиденья (4:55)
-02. Нико ЛайТ & KrisTi - Фейерверки, Новый Год! (4:45)
-03. Григорий Лепс & Хибла Герзмава - Ящик Пандоры (4:32)
-04. Александр Шоуа & Непара - Плачь и Смотри (DJ Prezzplay Radio Edit) (4:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB56556A0E784CC6425C469F212D4055B664AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437768   (1041706) от 06.01.2021
-
-VA - Vocal Chillout (2021) [MP3|320 Kbps] <Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041706.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. PALASTIC, Youkii - I Care (2:44)
-002. Y.V.E. 48 - Holding On (2:38)
-003. NLSN, Lisa Rowe - Tattoo on My Face (Chill Edit) (2:33)
-004. Camishe, Max Oazo - Can't Get You Out of My Head (3:31)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 06:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7E5DECC94490EB6331F48609D83F98C00F03F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437542   (1041688) от 06.01.2021
-
-Mick Jagger - Angel in My Heart (2021) 2CD, Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired All Night
-02. Lucky Day
-03. Out of Focus
-04. God Gave Me Everything(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6368F2E1049B2377E7D20A5F751E571503AC6860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611180   (1041635) от 10.02.2023
-
-VA - Party 2023 More In The Year (2023) [MP3|320 Kbps] <Nu Disco, Progressive House, R&B, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quavo & Takeoff - Messy - Michael Louis & Charles Zoo Remix (Dirty)
-02. Offset & Hit-Boy - 2 LIVE - Tall Boys 100-84 Transition (Dirty)
-03. Russ - PUT YOU ON GAME - JoeytheGAWD (Dirty)
-04. Skrillex, Fred Again.. & Flowdan - Rumble - Dunisco Remix(   Читать дальше...   )Жанр: Nu Disco, Progressive House, R&B, Hip HopПродолжительность: 04:24:15 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF0CCCF0AF155AEA1564C063BCDD8615E66CCE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

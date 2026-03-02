@@ -1,122 +1,3 @@
-###  Публикация: 430784   (993213) от 03.01.2012
-
-Misstrip - Sibylline (2006) [APE|Lossless]<Alternative Rock, Trip Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 A Ticket To Death (4:16)
-02 Marvellous Pills (4:36)
-03 Mothers-Of-Pearl (3:19)
-04 Lilly White (4:12)
-05 Acalmy (1:48)
-06 Inside And Beyond (4:28)
-07 Exhibition Room (3:59)
-08 Sibylline (3:47)
-09 Brainwashing (3:47)
-10 Unemotional (3:46)(   Читать дальше...   )Жанр: Alternative Rock, Trip HopПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608812   (992720) от 26.01.2013
-
-Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: GrungeПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353459   (991968) от 18.01.2020
-
-...And You Will Know Us by the Trail of Dead - X The Godless Void and Other Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opening Crescendo (02:54)
-02. All Who Wander (04:56)
-03. Something Like This (04:36)
-04. Into the Godless Void (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353619   (991927) от 18.01.2020
-
-Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Post Punk, Psychedelic Soul>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Year (3:15)
-02. Dispossession (4:15)
-03. Hour Of The Furnaces (4:26)
-04. Losing Is Ours (3:44)(   Читать дальше...   )Производство: Matador RecordsЖанр: Alternative Rock, Post Punk, Experimental, Psychedelic SoulПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595677   (991740) от 27.01.2013
 
 Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative Rock / Post-Grunge>
@@ -132,41 +13,6 @@ Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative R
 ###  Подробнее
 
 Жанр: Alternative Rock / Post-GrungeПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432479   (990616) от 06.01.2012
-
-Agnes Obel - Philharmonics (2010) [FLAC|Lossless]<Piano, Woman Vocal, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Falling, Catching (1:34)
-2. Riverside (3:49)
-3. Brother Sparrow (3:59)
-4. Just So (3:35)
-5. Beast (3:50)
-6. Louretta (2:06)
-7. Avenue (4:07)
-8. Philharmonics (3:33)
-9. Close Watch (4:00)
-10. Wallflower (2:26)(   Читать дальше...   )Жанр: Piano, Woman Vocal, Indie RockПродолжительность: 00:39:54
 
 ## Скачать торент
 ```bash
@@ -231,41 +77,6 @@ Our Last Night - 5 Альбомов (2004-2012) Дискография [FLAC|Los
 06. Voices
 07. Conspiracy
 08. Enemy(   Читать дальше...   )Тип издания: ДискографияЖанр: Post-HardcoreПродолжительность: 00:36:18 >>>
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432812   (988719) от 08.01.2012
-
-Muse - Absolution (2003) [FLAC|Lossless]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Intro :: 00:22
-02. Apocalypse Please :: 04:12
-03. Time Is Running Out :: 03:56
-04. Sing For Absolution :: 04:54
-05. Stockholm Syndrome :: 04:58
-06. Falling Away With You :: 04:40
-07. Interlude :: 00:37
-08. Hysteria :: 03:47
-09. Blackout :: 04:22
-10. Butterflies & Hurricanes :: 05:01(   Читать дальше...   )2003      |Жанр: Alternative Rock      |Продолжительность: 00:52:18
 
 ## Скачать торент
 ```bash
@@ -511,76 +322,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 164461   (985087) от 08.01.2010
-
-Three Days Grace - 3 альбома (2003-2009) [FLAC (tracks+cue), lossless] <Alternative Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В 1997 году после двухлетнего перерыва в деятельности группа была воссоздана под новым названием Three Days Grace, а в её составе осталось лишь трио — Гонтьер, Сандерсон и Уолст. Перебравшись в Торонто, музыканты при помощи своего прежнего менеджера познакомились с продюсером Гэйвином Брауном (англ. Gavin Brown), ранее работавшим с(   Читать дальше...   )Bitter Taste (04:00)
-Break (03:13)
-World So Cold (04:03)
-Lost In You (03:52)
-The Good Life (02:53)
-No More (03:45)
-Last To Know (03:27)
-Someone Who Cares (04:52)
-Bully (03:38)
-Without You (03:33)(   Читать дальше...   )Жанр: Alternative Metal, Post-GrungeПродолжительность: 02:25:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435053   (983860) от 12.01.2012
-
-Nina Hagen - 14 Friendly Abductions: The Best Of Nina Hagen (1996) [FLAC|Lossless]<Punk / Electronic / Dub / Synth-pop / Disco>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Zarah
-02 - New York New York
-03 - Smack Jack
-04 - Tv-glotzer (white Punks On Dope)
-05 - Spirit In The Sky
-06 - African Reggae
-07 - Universal Radio (universal Dance Mix)
-08 - My Sensation
-09 - Iki Maska
-10 - Wir Leben Immer Noch (lucky Number)(   Читать дальше...   )Жанр: Punk / Electronic / Dub / Synth-pop / DiscoПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355382   (983620) от 26.01.2020
 
 Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] <Krautrock, Alternative Rock, Experimental>
@@ -603,76 +344,6 @@ Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3EB2E544CC1E226140197E16DE30B0134B0DE49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741775   (982016) от 04.01.2014
-
-Shaka Ponk - The Geeks and the Jerkin' Socks (2011) [FLAC|Lossless]<Pop punk / Funk / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Let's Bang  [04:02]
-02 - I'm Picky  [03:54]
-03 - Brunette Localicious  [03:42]
-04 - I'm a Lady  [04:44]
-05 - Sex Ball  [04:11]
-06 - My Name Is Stain  [03:25]
-07 - Shiza Radio  [04:58]
-08 - Run Run Run  [03:53]
-09 - Dancing Dead  [04:48]
-10 - Reset After All  [03:56](   Читать дальше...   )Жанр: Pop punk / Funk / ElectronicПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A66D0CCDCEF6F27755A25A6999B6CEEE83AE81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741759   (981865) от 04.01.2014
-
-A Day To Remember - Common Courtesy (2013) [FLAC|Lossless]<Melodic Hardcore, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - City Of Ocala  [03:29]
-02 - Right Back At It Again  [03:20]
-03 - Sometimes You're The Hammer, Sometimes You're The Nail  [04:34]
-04 - Dead & Buried  [03:13]
-05 - Best Of Me  [03:27]
-06 - I'm Already Gone  [04:04]
-07 - Violence (Enough Is Enough)  [04:01]
-08 - Life @ 11  [03:22]
-09 - I Surrender  [03:34]
-10 - Life Lessons Learned The Hard Way  [02:17](   Читать дальше...   )Жанр: Melodic Hardcore, Pop-PunkПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FC20EAAF8F12EAD011D22D992F7E9F6258AB33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -800,6 +471,296 @@ Zeromancer - 6 Альбомов (2000-2013) Дискография [FLAC|Lossles
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356010   (979123) от 30.01.2020
+
+Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Tide (06:09)
+02. Kinda Dark (03:25)
+03. It Just Doesn’t Happen (05:01)
+04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974628   (975798) от 12.01.2016
+
+Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Piano Blues, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 8 Men and 4 Women
+02 - Long Black Veil
+03 - Down so Low
+04 - Interlude (Time)(   Читать дальше...   )Жанр: Piano Blues, AvantgardeПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669F7806C49B6544115DA48C9E80BC9170C39471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974925   (972113) от 15.01.2016
+
+Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop, Classic Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amsterdam (01:13)
+02. Black Widow (03:16)
+03. Makin' Babies (01:58)
+04. Stuck On You (02:31)(   Читать дальше...   )Жанр: Alternative, Britpop, Classic Indie RockПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B40DE55ABCF3D81F86D2CFB1DC9BB4E86636F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974817   (972109) от 15.01.2016
+
+Diamanda Galas - La serpenta canta (2003) [FLAC|Lossless|image + .cue] <Piano Blues, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diamanda Galas - La serpenta canta (disc one)
+01 - Intro
+ 02 - Ain't no grave can hold my body down
+ 03 - Burning hell(   Читать дальше...   )Жанр: Piano Blues, AvantgardeПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C061FAF6992E28CBE3E7BD32C42C8C7F1933A0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975764   (970985) от 16.01.2016
+
+Madness - Divine Madness (1992) [FLAC|Lossless|image + .cue] <Rock, Ska Revival, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Prince
+02 - One Step Beyond
+03 - My Girl
+04 - Night Boat To Cairo(   Читать дальше...   )Жанр: Rock, Ska Revival, New WaveПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1716E2ED12FE413CBF3655F02F5CE70528D9AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357747   (970741) от 06.02.2020
+
+Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up (02:33)
+02. Is It Real (03:05)
+03. Everything Else Has Gone Wrong (04:09)
+04. I Can Hardly Speak (03:59)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4A66DD764AF3059FF07DC7C71F30DF4C869AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 428789   (968435) от 08.02.2020
+
+Mando Diao - 11 альбомов (2002 - 2019) [FLAC|Lossless|tracks + .cue]<Indie Rock, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mando Diao - шведская рок-группа, история котрой начинается в 1999 году в Бурленге. Название группы, по словам самих музыкантов, не имеет определённого смысла, однажды лидеру банды Бьорну Диксгорду приснился странный человек, который бежал ему навстречу и кричал "Мандо Диао". Дебютный альбом Bring 'Em In, вышедший в сентябре 2002 года получил хорошую критику, (   Читать дальше...   )Список альбомов:
+2002 - Bring 'Em In
+2004 - Hurricane Bar
+2006 - Ode To OchrasyЖанр: Indie Rock, GarageПродолжительность: Кодек: FLAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F31EB36219E440B478BA1EFAD7FE555CC4F0F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358581   (967498) от 09.02.2020
+
+Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (Alternative Version) (Bonus Track) (04:49)
+02. Unbound (Alternative Version) (Bonus Track) (03:52)
+03. Where Is My Mind? (Bonus Track) (04:06)
+04. Trust (Bonus Track) (03:11)Жанр: Indie PopПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358751   (967425) от 09.02.2020
+
+Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little God                                                            [04:59]
+02. Strangers with Nothing to Lose                                        [04:48]
+03. Lonely Man                                                            [03:36]
+04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358708   (967226) от 09.02.2020
+
+Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father Of All... (02:31)
+02. Fire, Ready, Aim (01:53)
+03. Oh Yeah! (02:51)
+04. Meet Me On The Roof (02:40)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF8DD668DCFFA493F76ADF49B04CFC8B83D199F
 ```
 
 https://mybot314.ru/tekegram_catalog/

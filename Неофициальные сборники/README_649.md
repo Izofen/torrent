@@ -1,3 +1,248 @@
+###  Публикация: 470527   (83450) от 21.03.2012
+
+VA- Для Юбилея, Дня Рождения Иностранный (2012) [MP3|128 - 256 кб/с <Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Boney m - sunny (3:44)
+2.  Gloria gainor - i will survive (3:25)
+3. Cher - believe (3:52)
+4.  Heath hunter - revolution in paradise (3:27)
+5. Whizzkids & inusa dawuda - rub-a-dub girl (3:46)
+6. Smokie - what can i do (3:38)
+7. Mr. President - coco jambo (3:41)
+8. Boney m - boney m kalimba de luna (4:11)
+9. Shaft mambo italiano (2:47)
+10.  Ricky martin - living la vida loca (4:00)2012Жанр: Dance, РорПродолжительность: 09:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08026EBED256190B7AFEE8D35D2998E783A654D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471417   (83433) от 21.03.2012
+
+VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Raumwohnung - 2 Von Millionen Von Sternen
+002. Aakarshan - Tantra Cafe (Sacred Spirit Of Love Mix)
+003. Acoustik Undo - You Don't Love Me (No, No, No)
+004. Adele Del Rey - - Steel Curry (Cafe Bombay Steel Sitar Mix)
+005. Ali Kaan Gebes - The Simplycity
+006. Ali Sural - Follow Me
+007. Alphawezen - Chance Destination
+008. Animelatine - Por Do Sol No Mar (Original Mix)
+009. Anja Garbarek - No Trace Of Grey
+010. Antique Beats Om - Voices Of India (Mantra Mix)(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 10:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471150   (83421) от 21.03.2012
+
+VA - 100 Взрывных Хитов в Авто (2012) [MP3|192-320 kbps]<Pop | Dance | Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83421.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Тимур Родригез - Скажи Мне (Dfm Remix).
+002 Faktor-2 - А Меня Нет (Extended Version).
+003 Инфинити - Ты Мой Герой (Original).
+004 Maxima - Так Тихо (Fidel Wicked Radio Edit).
+005 См@йлик - Не Звонил (1 Bit Hq Remix).
+006 Oksi - Раскали Меня.
+007 Invisible Dj S & Inверсия - Джонни (Иди На).
+008 Dj Настя Крайнова - Я Это Ты.
+009 Таша Фролова - Всё Что В Тебе.
+010 Mixi - Между Мной И Тобой (Dj Prado Remix).(   Читать дальше...   )2012Жанр: Pop | Dance | ClubПродолжительность: 07:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470674   (83322) от 20.03.2012
+
+VA - Дорожный патруль. Музыка в дорогу (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Юрий Сальников - Эх, Дорога (3:04)
+2. Дмитрий Касаткин - Мечта (2:25)
+3. Алексей Берест - Старое Кафе (3:44)
+4. Волк - Дуют ветра (4:30)
+5. Сергей Трофимов и Лайма Вайкуле - Я и Ты (4:22)
+6. Рома Заря - Нежная (4:44)
+7. Весна - В Ростов на Дону (3:21)
+8. Георгий Лонг - Геленджик (3:39)
+9. Олег Андрианов - Нарды (3:12)
+10. Юрий Белошевский - Усталое Такси (3:46)2012Жанр: ШансонПродолжительность: 06:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1016EB1FAEA9C58287904D9F80DE08D5F84B071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470887   (83232) от 20.03.2012
+
+VA - Ночной Клуб Radio Record (2012) [MP3|160-192 kbps]<Uplifting Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eximinds - Afterlight (original mix)
+02. Dave 202 & Dave Emanuel - Overture (Open mix)
+03. Blue Tente feat. Aelyn - You’re Not Mine (Uplifting mix)
+04. InterSys - Electro Fever (Ziki vs. S-B Noise remix)
+05. Dart Rayne - Agnus Dei (original mix)
+06. Bonn Lewis and Phil Metcalfe - Nevaeh (N and R Project remix)
+07. Faruk Sabanci & Nurettin Colak - Anatolian Emotions
+08. Matt Pincer - Social Media Break (original mix)
+09. Leon Bolier - War Of The Worlds (Hodel remix)
+10. Ziki vs. Underbeat - Outbreak(   Читать дальше...   )2012Жанр: Uplifting TranceПродолжительность: 08:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90AE807BB9AA6896D1A9E9846A77680818E8E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469557   (83223) от 20.03.2012
+
+Best Of 538 Dance Smash - Summer Edition (2011) 5CD [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist CD 1 Time: 01:06:27
+1. Sak Noel - Loca People (What The Fuck)
+2. Yves Larock - Rise Up
+3. Eiffel 65 - Blue (Da Ba Dee)
+4. Stromae - Alors On Danse
+5. Quintino feat. Mitch Crown - Heaven
+6. Faith Evans - Mesmerized
+7. Daft Punk - Around The World
+8. The Shapeshifters - Lola's Theme
+9. Guru Josh Project - Infinity 2008 (Klaas Vocal Edit)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 05:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A13C69685C9E02ECC9475DD470C0C51FDDEE353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470405   (83218) от 20.03.2012
+
+VA - Танцевальный топ радиостанций Зарубежный (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Inna Feat. Bob Taylor - Deja Vu
+ 02 Tony Igy - Astronomia (Dfm Mix)
+ 03 Melanie C - Think About It
+ 04 Lady Gaga - Alejandro (Bimbo Jones Mix)
+ 05 Sak Noel - Loca People (Clean Radio Edit)
+ 06 Paul Hardcastle - I Cant Get By
+ 07 Enrique Iglesias Feat. Ludacris & Dj Frank E - Tonight (I'm Lovin' You)
+ 08 Armin Van Buuren - Monogato Miami Vibe (Omnia Remix)
+ 09 Geneva 8-96 - Missing You
+ 10 Ne-Yo Feat., Pitbull, Afrojack & Nayer - Tonight (Give Me Everything )(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099754D8E3CD00B94F37FF217F087B3C40B65038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470681   (83211) от 20.03.2012
 
 VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
@@ -638,233 +883,6 @@ VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455380   (77398) от 20.02.2012
-
-VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1968-20111. Волк-одиночка (3:06)
-2. Волк (3:09)
-3. На поляне среди леса (3:50)
-4. 5 квартал - Волк (3:57)
-5. 6.10 - Травля волков (3:23)
-6. A-HA - Cry wolf (4:03)
-7. Axxis - The wolf (4:45)
-8. Bahh Tee - Волчонок (3:19)
-9. Blaze of Steel - Путь волка (2:57)
-10. Butterfly Temple - Бегу я рысью, бегу я волком (3:33)(   Читать дальше...   )Жанр: разныеПродолжительность: 17:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454223   (76990) от 18.02.2012
-
-Алиса - Сборник каверов (2012) [MP3|320 kbps]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрно-белый цвет (orig. "Машина времени") (03:39)
-02. Мой мир (orig. А.Крупнов) (04:21)
-03. Я Дышал Синевой (orig. В.Высоцкий) (07:24)
-04. Старые раны (orig. Майк Науменко) (04:54)
-05. Песня без слов (orig. В.Цой) (04:20)
-06. Ночь (orig. Э.Шклярский) (04:09)
-07. Дух (orig. Рикошет) (04:22)
-08. Илья (orig. А.Крупнов) (02:36)
-09. Отход на север (orig. "Наутилус Помпилиус") (03:04)
-10. Ком с горы (orig. Д.Романов) (03:26)(   Читать дальше...   )2012Жанр: Русский рок, RockПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B21DF438DE18223277DAB50794112636DD87138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451461   (75718) от 12.02.2012
-
-VA - Dubstep Light vol. 4 (2012) [MP3|320 kbps]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antiserum & No Thing - Animal
-02. Modestep - Exile
-03. Shock One - True Believer (Feat. Metrik) (Phetsta Remix)
-04. Anggun - Buy Me Happiness (Zette Remix)
-05. Zoe Leela - Destroy She Says (The Unik & Tambour Battant Remix)
-06. Ellie Goulding - Lights (Wired Remix)
-07. Avicii - Levels (Tristam Remix)
-08. Lana Del Rey - Without You (Kill Paris Remix)
-09. Kdrew - Flying Bass Kick (Feat. Mr. Nickelz)
-10. Hectix - Love Radar(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C6EB045226DDF4377BA0E98A374F07418AF94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449144   (74845) от 08.02.2012
-
-VA - Beatport TOP 100 Download February (02.2012) [MP3|320 kbps]<House, Electro, Techno, Dubstep, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ivan Gough & Feenixpawl feat. Georgi Kay - In My Mind (Axwell Mix)
- 002. Afrojack & Shermanology - Can't Stop Me (Club Mix)
- 003. Hardwell - Spaceman (Original Version)
- 004. Tommy Trash - Cascade (Original Mix)
- 005. Chuckie - Together (Original Club Mix)
- 006. Wolfgang Gartner - There And Back (Original Mix)
- 007. Richard Grey - Lady (Federico Scavo Remix)
- 008. Disco Stu & John Monkman - Don't Have To Be Beautiful (Original Mix)
- 009. Dirty South & Thomas Gold feat. Kate Elsworth - Eyes Wide Open (Original Mix)
- 010. Starkillers & Nadia Ali - Keep It Coming (Original Mix)(   Читать дальше...   )02.2012Жанр: House, Electro, Techno, Dubstep, TranceПродолжительность: 10:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476EAE8EB0F482AB132118AD79C7A3A649EADE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774018   (71634) от 18.01.2025
-
-VA - KAZAL Records presents Volume1 (2024) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yohhanan - How Can I Help? (Original Mix) (06:56)
-02. Mak Sim - Everest (Original Mix) (04:50)
-03. DJ Kazal - Unbelievable (Extended Mix) (07:34)
-04. Authenticity - Resonance (Extended Mix) (05:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D827FBDE66E28F54DD357DE3D640B2C7A33CE1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775331   (71451) от 26.01.2025
-
-VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Polkovnik - Мелодия Души
-02. Neuron - The Fall
-03. Сергей Грищук - Волшебство Мгновения
-04. Dj Polkovnik - Размышление(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA906D3B2C5ED822B369248A31106A17BA4E1FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775346   (71449) от 26.01.2025
-
-VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delal Derin - Hard to Forget You
-02. Azimov - Autumn Fairy Tale
-03. Muvi - P a R I S
-04. Delal Derin - If Only(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4610490F2A5280E9325F284F6989210CFEC89F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

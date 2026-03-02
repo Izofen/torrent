@@ -1,3 +1,119 @@
+###  Публикация: 821452   (483415) от 16.09.2014
+
+VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<Pop, Rock, Classical , Soul, Funk, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Percy Sledge - When A Man Loves A Woman [02:56]
+02. Ben E King - Stand By Me [02:54]
+03. Phyllis Nelson - Move Closer [04:12]
+04. Al Gree - Let's Stay Together [03:16](   Читать дальше...   )Жанр: Pop, Rock, Classical , Soul, Funk, Jazz |Продолжительность: 05:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566453   (482335) от 29.07.2022
+
+Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482335.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2022 году легендарная Bananarama отмечает 40-летие сенсационного прорыва на мировой музыкальный Олимп. Именно тогда, в далеком 1982 году синглы новой girl group возглавили UK Singles Chart, а затем покорили музыкальные хит-парады многих стран мира. Феноменальный успех как в pop-, так и в dance чартах привел к тому, что Bananarama была занесена в Книгу рекордов (   Читать дальше...   )01. Favourite (3:08)
+02. Stay Wild (3:47)
+03. Velvet Lies (2:46)
+04. Masquerade (4:13)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9B5329F35776C06F792A57FAC4036A54CB3B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244414   (482020) от 01.09.2018
+
+Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Waiting Heart
+02. Don't Pay The Ferryman
+03. Fire On The Water
+04. Sailing Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3B0BD364BB0A25142EF69B8091D95F17C1918C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056404   (481684) от 25.09.2016
+
+Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже удивительно, что Olivia Newton-John так мало представлена на нашем трекере. Может быть потому, что она из Австралии, может быть потому, что уже мало кто помнит её замечательный дуэт в фильме 1978 года "Бриолин" с Джоном Траволтой (на нашем трекере он по праву в разделе зарубежной классики). А ведь пятнадцать её хитов достигали лучшей десятки хит-парада (   Читать дальше...   )01. You’re The One That I Want (John Farrar) ©1978 Polydor (UK) Ltd.
+02. Xanadu (Jeff Lynne) ©1980 MCA Records
+03. Magic (John Farrar) ©1980 MCA Records
+04. Sam (John Farrar / Hank Marvin / Don Black) ©1976 MCA Records(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938405   (481594) от 18.09.2015
 
 Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
@@ -646,131 +762,6 @@ Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
 4. Talk To Me [02:52]
 5. Just A Step Away [03:47]
 6. Both Sides Now [03:52]Жанр: PopПродолжительность: 00:20:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245848   (467880) от 08.09.2018
-
-MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expectations (02:49)
-02. Core (03:35)
-03. More of You (03:54)
-04. Kiss Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F3368225ED69453D2CC8A212BFDA20C8778275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245721   (467877) от 08.09.2018
-
-Knuckle Puck - Shapeshifter (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nervous Passenger (1:32)
- 02. Twist (3:03)
- 03. Double Helix (2:51)
- 04. Gone (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F39509E68185229D44F5398278C22A805DDB126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548576   (466907) от 18.09.2012
-
-VA - AUDIO'S Audiophile Vol. 09 - Cover Me (1999) [FLAC|Lossless]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelique Kidjo - Voodoo Child [03:51]
-02. Rahsaan Patterson - Street Life [05:02]
-03. Dianne Reeves - In Your Eyes [05:21]
-04. Sara K. - Oh Well [02:45]
-05. Roger Daltrey - Say It Ain't So Joe [04:18]
-06. Livingston Taylor - Baker Street [03:58]
-07. Sidsel Endresen & Bugge Wesseltoft - Fifty Ways To Leave Your Lover [04:58]
-08. Jose Feliciano - Light My Fire [03:37]
-09. Jesse Cook feat. Holly Cole - Fragile [03:57]Жанр: Pop, RockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548537   (466902) от 18.09.2012
-
-Mika - The Origin Of Love (2012) / Casablanca Records / [FLAC|Lossless]<Pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мульти-платиновый британский певец и автор песен Mika выпустил свой третий студийный альбом - Происхождение любви (The Origin of Love). Диск выпущен во Франции 17 сентября 2012 года на лейбле Casablanca Records, в Великобритании выйдет 8 октября 2012 - на Barclay Records. Альбому предшествовал альтернативный сингл соответствующего региона: Elle Me Dit впервые был  выпущен во Франции, а Celebrate в Объединенном Королевстве. (   Читать дальше...   )01. Karen (3:57)
-02. L'amour dans le mauvais temps (4:07)
-03. Un soleil mal lune (3:06)
-04. Tah Dah (5:47)
-05. Make You Happy (5:55)
-06. Celebrate (5:02)
-07. Elle me dit (3:11)
-08. Make You Happy (2:50)Жанр: Pop, rockПродолжительность: 01:23:18
 
 ## Скачать торент
 ```bash

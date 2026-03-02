@@ -1,3 +1,61 @@
+###  Публикация: 1578520   (345938) от 23.09.2022
+
+Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandon
+02. Unbreakable
+03. Stand My Ground
+04. Halcyon Days(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D70AC6FA8078E7B11864E6BD9C5F10EC5541B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725469   (343677) от 23.11.2013
+
+Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fr-Fr-Fr-Frustrated
+02. Insane
+03. That Will Be
+04. What You See Is What You Get(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36698DAE82FFBF26F249DC7295D6123C98C439C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578633   (343656) от 24.09.2022
 
 Stratovarius - Stratovarius (2005) Reissue, 2012, Victor [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
@@ -687,64 +745,6 @@ we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7A271877FC477564394BE55ADA1629222674D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955109   (337357) от 09.11.2015
-
-VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, Blues Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outlaws - What Child Is This
-02. Artimus Pyle Band - God Rest Ye Merry Gentlemen
-03. Steve Morse - We Three Kings of Orient Are
-04. Point Blank - Merry Christmas Baby(   Читать дальше...   )Жанр: Christmas, Southern Rock, Blues Rock, Country RockПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEAE6E6CFC35411E36C7423E94EC9FE3C781E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954993   (337349) от 09.11.2015
-
-VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tie Your Mother Down - Lemmy Kilmister & Ted Nugent
-02. We Will Rock You - L.A. Guns
-03. Bohemian Rhapsody - John Wetton
-04. Killer Queen - Glenn Hughes & Carmine Appice(   Читать дальше...   )Жанр: Rock, Hard Rock, Metal, PopПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A031BAD2C707DC1D17A81A87AD61D1A5600C2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

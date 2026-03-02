@@ -1,3 +1,31 @@
+###  Публикация: 1208627   (779764) от 23.02.2018
+
+Векторный клипарт - Shutterstock - March 8 gift card flyer poster vector image [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+8 марта подарочная карта листовки плакат векторное изображение
+25 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02767D343985F520B6EDBEA69FD9CCAED68D9AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208778   (779757) от 23.02.2018
 
 Кисти - Creative Market - 80 Smoke and Fire Brushes - 1541606 [ABR, ASL]
@@ -668,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A61700F57E889497000DA8F52580B4943516DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209623   (779223) от 27.02.2018
-
-Растровый клипарт - Dreamstime - Old temple religion relic landscape of different countries [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старые храмы, пейзажи разных стран с Dreamstime, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4176x2873-8286x4823
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAB52FDF82CE79E555F209EFF4595B553493F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

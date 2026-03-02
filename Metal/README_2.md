@@ -1,3 +1,90 @@
+###  Публикация: 1438919   (1040534) от 10.01.2021
+
+Hellhole - Whores in the guise of saints (2020) [MP3|320 Kbps] <Black Metal, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Religion of lies (05:27)
+ 02. We're all going to hell (05:19)
+ 03. At heart (10:11)
+ 04. God does not hear you (05:43)(   Читать дальше...   )Жанр: Black Metal, Post-MetalПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46C5614823170686A56E7B95F26D58ED3DFAD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439030   (1040403) от 11.01.2021
+
+VA - The Unquiet Grave 2020 (2020) [MP3|320 Kbps] <Darkwave, Gothic Rock, Coldwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shadow Assembly - Languish [00:04:46]
+02 - A Cloud Of Ravens - The Tempest [00:03:27]
+03 - Ships In The Night - Lost Times [00:04:25]
+04 - I Ya Toyah - Glass Eyes (The Joy Thieves Remix) [00:05:08](   Читать дальше...   )Жанр: Darkwave, Gothic Rock, ColdwaveПродолжительность: 02:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BAFA7E68A8F85D102713AD08EFD46B2E1A4175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612368   (1040398) от 15.02.2023
+
+Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Land Of Sleeper (2023) [MP3|320 Kbps] <Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ultimate Hammer
+02 Terror's Pillow
+03 Big Rig
+04 The Weatherman(   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755627ECDD704C5C79BF17C89BAA792C7B820079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612714   (1040175) от 16.02.2023
 
 Graphic Nature - A Mind Waiting To Die (2023) [MP3|320 Kbps] <Nu-Metal, Metalcore>
@@ -658,93 +745,6 @@ Druid Stone - 3 Albums (2022-2023) [MP3|320 Kbps] <Blackened Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8CA660C2A81D2FA83292D3DB66AEA6E949E811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441886   (1037049) от 23.01.2021
-
-Accept - Too Mean to Die (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie Apocalypse (5:35)
-02. Too Mean To Die (4:21)
-03. Overnight Sensation (4:24)
-04. No Ones Master (4:10)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F0FC08FB0F5334692EC1D4B1B9F28ED98AA267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442153   (1036954) от 24.01.2021
-
-Tribulation - Where the Gloom Becomes Sound (2021) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Remembrance [00:06:50]
-02. Hour of the Wolf [00:04:31]
-03. Leviathans [00:04:54]
-04. Dirge of a Dying Soul [00:05:08](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE1389D03228770F738E2E07C1429C02FE6C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442182   (1036953) от 24.01.2021
-
-Ronin - Ronin (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One in the Same [00:07:14]
-02 - Greetings [00:05:21]
-03 - Spider and Fly [00:05:11]
-04 - Down [00:05:14](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73989275E7C3FAD51F865ADD7F55A814670E01B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

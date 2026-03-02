@@ -1,176 +1,3 @@
-###  Публикация: 1280472   (760198) от 03.02.2019
-
-The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon Classic Concert Album 2018 (2018) [MP3|320 Kbps] <Instrumental, Pop>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.アバンBGM (0:20)
-02.ムーンライト伝説 (5:51)
-03.セーラームーン劇伴(BGM)音楽メドレー (13:17)
-04.同じ涙を分け合って (1:57)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C4FB07943E3D85A4D4002793041DCCEAA2956A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280663   (758498) от 04.02.2019
-
-V.A. - Sailor Moon The 25th Anniversary Memorial Tribute (2018) [MP3|320 Kbps] <OST, JPop, Pop>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.LiSA - ムーンライト伝説 (2:44)
-02.月蝕會議 - ラ・ソウルジャー(La Soldier) (4:22)
-03.BiSH - Moon Revenge (3:01)
-04.石田燿子 - 乙女のポリシー (3:16)(   Читать дальше...   )Жанр: OST, JPop, PopПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A24305BCBD8DE40333DD518C33A8E43CE25019E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394533   (758379) от 08.07.2020
-
-Trinity Seven | Святая семёрка [2014-2019][MP3|320 Kbps][18CD] <OST+OP+ED+Character Song>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник OST'ов по Trinity Seven, как сериалу так и фильмам.Производство: avex pictures (Label), avex pictures Inc. (Manufacturer, Distributor)Жанр: OSTПродолжительность: 13:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779EDF8BA4E80C40A862A895AB08D4F368B200BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781404   (756046) от 28.04.2014
-
-Frontier Aja - Koumajou Densetsu OST (2009-2011) [FLAC|Lossless] <OST, Touhou, J-Rock>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756046.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:00] 01. 柳 英一郎 - afraid -evening style-
-[02:27] 02. 柳 英一郎 - Scarlet Tears -afternoon style-
-[04:17] 03. 柳 英一郎 - IZAYOI
-[03:31] 04. 柳 英一郎 - Last Phantasm
-[04:55] 05. 癒月 - fatal bile
-[04:57] 06. 吉河 順央 - 紫焉
-[02:01] 07. 茶太 - afraid (Short Edit)
-[04:51] 08. 柳 英一郎 - afraid(Instrumental)
-[05:32] 09. 柳 英一郎 - 薔薇殺しのカーミラ(Instrumental)
-[04:55] 10. 柳 英一郎 - fatal bite(Instrumental)(   Читать дальше...   )Жанр: Touhou, Instrumental, Vocal, Doujin Ongaku, J-RockПродолжительность: 00:00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095796D1F0BB216A8FDABD865C0F39939C81696F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399145   (734146) от 29.07.2020
-
-Oedo wa Nemurenai! OST (1993) [FLAC|Lossless|tracks] <OST>
-
->>Аниме музыка
->>Аниме OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734146.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:03] 01. 金沢 明子 — 東京音頭
-[00:16] 02. めいなCo. — お江戸はねむれない! 菊組参上
-[05:16] 03. めいなCo. — 恋の花街吉原育ち　薄雲太夫ここにあり (   Читать дальше...   )Тип издания: CommercialЖанр: OSTПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C0D7EF8F5124AB7998AC60D31D12ED5C89FC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025927   (705593) от 14.06.2016
-
-Kokoro ga Sakebitagatterunda. (Kokosake) / The Anthem of the Heart / Сердцу хочется петь (2015) [MP3|320 Kbps] <OST>
-
->>Аниме музыка
->>Аниме OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705593.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Дзюн была весёлой, счастливой девочкой, но как-то раз она сказала нечто такое, из-за чего её семья распалась. Тогда Дзюн явилось волшебное разумное яйцо и лишило её способности говорить, чтобы она больше никому не причинила вреда. С тех пор девочка старалась жить тихой жизнью и особо не отсвечивать, но в один прекрасной день ей предлагают стать исполнительным (   Читать дальше...   )Тип издания: OST, Theme songsПродолжительность: 04:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB360087F8E3712FD6F503254A8AB7A8F10C06F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226224   (656738) от 19.05.2018
 
 Uma Musume: Pretty Derby ED1 — Grow Up Shine! | Девушки-лошадки: Милое дерби ED1 (2018) [Regular Edition] [FLAC|tracks] <ED Single>
@@ -728,6 +555,178 @@ Ai no Uta ~ LOVE SONG COLLECTION (2008) [FLAC|Lossless|tracks] <J-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCAFC129272909CC6CA071AA82E379259992F19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308088   (554434) от 12.06.2019
+
+ALICE SOFT Vocal Collection — 2 альбома (2010-2011) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2010.11.26 (ALO-036) ALICE VOCAL COLLECTION
+2011.12.22 (AST-004) ALICE VOCAL COLLECTION IIЖанр: J-PopФормат: Anime games OSTПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385E0CE9EEA7CF369FFC0B0518303C5B5D6283A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308100   (554431) от 12.06.2019
+
+LiLiM Vocal Collection (2007) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554431.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:34] 01. Aoba Ringo, Oda Chieri, Miyazawa Yuana — Kango-sentai nurse ranger short ver.
+[05:12] 02. Nanasawa Mituki — Homura no senki
+[06:01] 03. Rita — Shiki no haguruma
+[05:18] 04. Nagasaki Minami — Hikari wo...(   Читать дальше...   )Жанр: J-PopФормат: Anime games OSTПродолжительность: 00:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC78B62E942542585E06B8CF5DCBD3117FBF659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308102   (554425) от 12.06.2019
+
+THE WORKS (2009) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554425.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:16] 01. Itou Kanako — F.D.D.
+[04:16] 02. Nogawa Sakura — PARTY PLAY
+[05:18] 03. ELISA — Houyoku no Prophesia
+[05:36] 04. Ayane — ARCHIVE LOVERS(   Читать дальше...   )Жанр: J-PopФормат: Anime games OSTПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC64DF29D401E7294EE25C89B30D1D689055471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308098   (554422) от 12.06.2019
+
+Katakiri Rekka — History of WORXSONGz — 2 альбома (2011) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2011.04.13 (KDSD-00421) Katakiri Rekka — History of WORXSONGz 1
+2011.04.13 (KDSD-00422) Katakiri Rekka — History of WORXSONGz 2Жанр: J-PopФормат: Anime games OSTПродолжительность: 2:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC442849246EA63C5B22F5BFBF55E5ED3FCAAC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308086   (554400) от 12.06.2019
+
+ALcot Vocal Collection — 3 альбома (2008-2010) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2008.08.15 (AL-AV-002) ALcot Vocal Collection Vol.1 ~ recollections
+2008.12.28 (AL-AV-003) ALcot Vocal Collection Vol.2 ~ relations
+2010.08.13 (AL-AV-005) ALcot Vocal Collection Vol.3 ~ SistersЖанр: J-PopФормат: Anime games OSTПродолжительность: 02:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4208968AE99EA885179EC10F5B125599520D8F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308093   (554399) от 12.06.2019
+
+Atelier Series Vocal Collection — 3 альбома (2005-2010) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
+
+>>Аниме музыка
+>>Аниме OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2005.04.20 (KDSD-00067) Atelier Series Vocal Collection ~ VOLKSLIED
+2007.05.30 (KDSD-10024) Atelier Series Vocal Collection ~ VOLKSLIED 2
+2010.06.23 (KDSD-10050) Atelier Series Vocal Collection ~ VOLKSLIED 3Жанр: J-PopФормат: Anime games OSTПродолжительность: 02:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6241CAC7977DCA9DCED62D11FE604EA49D02B38
 ```
 
 https://mybot314.ru/tekegram_catalog/

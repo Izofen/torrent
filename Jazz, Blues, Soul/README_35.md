@@ -1,32 +1,3 @@
-###  Публикация: 1465773   (1018998) от 27.04.2021
-
-Buddy DeFranco (De Franco) - 1949 - 1952 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boy Next Door [2:36]
-02. A Bird in Igor's Yard [2:54]
-03. This Time the Dream's on Me [3:08]
-04. Bud's Invention [2:39](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC392F94437405670531C5CA7E2DA257AE5C902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465760   (1018993) от 27.04.2021
 
 Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
@@ -742,6 +713,34 @@ Leo Zanco - A Gentleman (Most of the Time) (2021) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB6E8EB45424A56C468F3436F590E70BCF2A67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467323   (1017688) от 04.05.2021
+
+Pat Smillie - Last Chance (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart in a Headlock (3:04)
+02. Something on My Heart (5:31)
+03.Жанр: BluesПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684FCAAB4F6D5062B1A5B72313E6A06D2C6CF299
 ```
 
 https://mybot314.ru/tekegram_catalog/

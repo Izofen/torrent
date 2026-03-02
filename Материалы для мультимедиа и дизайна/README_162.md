@@ -1,3 +1,29 @@
+###  Публикация: 682494   (629999) от 23.07.2013
+
+Векторный клипарт - Абстракция / Abstraction [JPEG,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые фоны в формате EPS и JPEGФормат: JPEG,EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEBB3610D56B45393679EA8E89C0A284F88C5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229247   (629972) от 04.06.2018
 
 Векторный клипарт - Floral Borders Elements Set 62 [AI]
@@ -667,34 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C6716FBFBCC27373581B71394E12029CFD66C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229260   (627953) от 05.06.2018
-
-Векторный клипарт - Retro Car Service Labels 11 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Автомобильные логотипы
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477338B845C0E2313D30016C8FDA9BAF20293333
 ```
 
 https://mybot314.ru/tekegram_catalog/

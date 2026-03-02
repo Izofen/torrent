@@ -1,127 +1,22 @@
-###  Публикация: 1170967   (779830) от 22.02.2018
+###  Публикация: 1207897   (780139) от 20.02.2018
 
-Улица (2017) WEB-DLRip (сезон 1, серии 1-79 из 79)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779830.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Улица» — это история жителей одной из улиц спального района большого города. Школьники и студенты, домохозяйки и продавцы, олигархи и простые рабочие — здесь встретятся более 30 персонажей разного возраста и социального статуса, у каждого из них своя история. В большой Вселенной «Улицы» нет главных и второстепенных героев, здесь есть бурная жизнь с ее радостями, (   Читать дальше...   )Производство: Россия / ТНТ, ГудСториМедиаЖанр: драма, мелодрама, комедияРежиссер: Жанна Кадникова, Николай Бурлак, Михаил СоловьёвАктеры: Егор Клинаев, Ольга Баранова, Владимир Хацкевич, Екатерина Седик, Павел Савинков, Сергей Змичеревский, Артемий Падалка, Марина Богатова, Ксения Жданова, Марта Дромашко и др.Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6719F170B802112348BE443F2E410D213430B5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208255   (779829) от 22.02.2018
-
-Леди Берд / Lady Bird (2017) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристина МакФерсон учится в консервативной католической школе в Сакраменто. Она ищет себя, своё место в мире и пытается быть не похожей на других. Её волосы выкрашены в странный красно-розовый цвет, а имя Леди Бёрд она дала себе сама и именно так просит её называть. И главная её мечта — вырваться из этого провинциального захолустья и поехать учиться в Нью-Йорк.Производство: США / Film 360Жанр: Драма, комедияРежиссер: Грета ГервигАктеры: Сирша Ронан, Тимоти Шаламе, Одейя Раш, Лори Меткаф, Лукас Хеджес, Кэтрин Ньютон, Бини Фелдштейн, Джейк Макдорман, Трэйси Леттс, Даниэль МакДональдПеревод: Любительский (многоголосый закадровый) HDrezka StudioСубтитры: Русские, английские (отдельным файлом)Продолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308C242206BC1E6A32CA1E91E826610DFF0F2B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208177   (779828) от 22.02.2018
-
-GS Group запустил массовое производство первых российских SSD-накопителей
+Скиф (2017) WEB-DLRip
 
 >>3
->>10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_779828.jpg" />
-</div>
-
-
-###  Подробнее
-
-GS Group объявляет о начале массового производства первых SSD-накопителей собственной разработки. Полный производственный цикл реализован в инновационном кластере «Технополис GS» (инвестиционный проект GS Group в г. Гусеве Калининградской обл.), мощности которого позволяют выпускать более 1 млн устройств в год. До конца 2018 года GS Group выведет на рынок линейку (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181837   (779827) от 22.02.2018
-
-Как избежать наказания за убийство / How to Get Away with Murder (2017) WEBRip [H.264/1080p] (сезон 4, серии 1-12 из 15) Jaskier, Кириллица, Profix Media (обновляемая)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Эннализ Китинг — блестящий адвокат. Она преподает у студентов дисциплину под названием: «Как избежать наказания за убийство». Но те даже не подозревают, что в скором времени им придется применить свои знания в этой области в реальной жизни… Загадка убийства Уоллеса Махони не разгадана, местонахождение Фрэнка до сих пор неизвестно, а «Пятерка Китинг» с трудом (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, криминал, детективРежиссер: Билл Д’Элиа, Майкл ОфферАктеры: Виола Дэвис, Чарли Вебер, Карен Кабрера, Билли Браун, Альфред Энок, Джек Фалахи, Кэти Финдлей, Аджа Наоми Кинг и др.Перевод: Многоголосый закадровый, профессиональный - Jaskier, Profix Media,
-Дублированный - студия Кириллица по заказу FOXСубтитры: русские (Amedia до 8 серии), английскиеПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8664A0688BAF5BBDEC630861556603D3FA68D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207874   (779826) от 22.02.2018
-
-Афера доктора Нока / Knock (2017) BDRip [H.264/1080p]
-
 >>След.
->>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779826.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1950-е. Карманник и авантюрист Нок, скрываясь от «коллег» в небольшом французском городке Сен-Морис, притворяется лицензированным врачом. Он придумал хитрый, но простой план, как не остаться без средств к существованию: лечить здоровых людей от несуществующих у них болезней. Нок — мастер в искусстве манипуляции и соблазнения — почти достиг желанной цели, если бы (   Читать дальше...   )Производство: Франция, Бельгия / Canal+Жанр: КомедияРежиссер: Лоррэйн ЛевиАктеры: Омар Си, Алекс Лутс, Ана Жирардо, Сабин Азема, Паскаль Элбе, Одри Дана, Мишель Вюйермоз, Кристиан Эк, Элен Венсан, Андреа ФерреольПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:54:01
+Действие фильма происходит во время смены цивилизаций. В Евразии начинается новая эра. Ушли в небытие гордые воины — скифы, их вымирающие потомки превратились в безжалостных наемных убийц, «волков Ареса». Ратнику Лютобору предстоит тяжелое испытание. Втянутый в междоусобные интриги он отправляется в опасный путь ради спасения семьи, а его проводником становится пленный (   Читать дальше...   )Производство: Россия, Кинокомпания СТВЖанр: Драма, История, Фэнтези, Боевик, ПриключенияРежиссер: Рустам МосафирАктеры: Алексей Фаддеев, Виталий Кравченко, Александр Кузнецов, Александр Пацевич, Юрий Цурило, Андрей Пермяков, Василиса Измайлова, Алексей Овсянников, Фёдор Рощин, Рустам МосафирПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:40:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:944744FF90CB4BFEE1486850344071DF94C58A1D
+magnet:?xt=urn:btih:027B7A68246834569C25178A1076CC1B8B356027
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183854   (779825) от 22.02.2018
+###  Публикация: 1208052   (780138) от 20.02.2018
 
-Легенды завтрашнего дня / DC's Legends of Tomorrow (2017) WEBRip [H.264/720p-LQ] (сезон 3, серии 1-11 из 18) LostFilm (обновляемая)
+Невеста реаниматора / Bride of Re-Animator (1989) BDRip [H.264/720p]
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779825.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Увидев будущее, которого обязательно нужно избежать, Рип Хантер, путешественник во времени, собирает команду из героев и злодеев, чтобы противостоять смертельной угрозе. На кону стоит не только наша планета, но и все время в целом. Сможет ли эта команда победить бессмертное зло, абсолютно непохожее на то, что они видели раньше?Производство: СШАЖанр: фантастика, боевик, драма, приключенияРежиссер: Дермотт Даунс, Глен Винтер, Джо ДантеАктеры: Виктор Гарбер, Брэндон Рут, Кейти Лотц, Артур Дарвилл, Сиара Рене, Франц Драмех, Доминик Пёрселл, Вентворт Миллер, Каспер Крамп, Фальк Хеншел и дрПеревод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: английскиеПродолжительность: ~00:43:00 серия
+Кровавые события, произошедшие в свое время в клинике Мискотоник, не останавливают Герберта Уэста и его друга Дэна Кейна: два молодых таланта продолжают свои эксперименты по улучшению уникального эликсира, способного возвращать к жизни любое, даже самое мертвое тело. Дополнив состав эликсира новым ингредиентом, Уэст и Кейн получают возможность еще более изощренно (   Читать дальше...   )Производство: США / Wild StreetЖанр: Ужасы, Фантастика, Комедия, ТриллерРежиссер: Брайан ЮзнаАктеры: Джеффри Комбс, Брюс Эбботт, Клод Эрл Джонс, Фабиана Уденио, Дэвид Гэйл, Кэтлин Кинмонт, Мел Стюарт, Ирен Форрест, Майкл Страссер, Мэри ШелдонПеревод: Профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: АнглийскиеПродолжительность: 01:36:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35B9C419088FE5106850C3B5F39AEB59CFAA7A14
+magnet:?xt=urn:btih:84FE8A6772740D8192A3C478F90D757393E78AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170901   (779824) от 22.02.2018
+###  Публикация: 1208005   (780137) от 20.02.2018
 
-Улица (2017) SATRip (сезон 1, серии 1-79 из 79)
+Реаниматор / Re-Animator (1985) BDRip [H.264/720p] [Integral Version]
 
->>Отечественные сериалы
->>
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779824.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Улица» — это история жителей одной из улиц спального района большого города. Школьники и студенты, домохозяйки и продавцы, олигархи и простые рабочие — здесь встретятся более 30 персонажей разного возраста и социального статуса, у каждого из них своя история. В большой Вселенной «Улицы» нет главных и второстепенных героев, здесь есть бурная жизнь с ее радостями, (   Читать дальше...   )Производство: Россия / ТНТ, ГудСториМедиаЖанр: драма, мелодрама, комедияРежиссер: Жанна Кадникова, Николай Бурлак, Михаил СоловьёвАктеры: Егор Клинаев, Ольга Баранова, Владимир Хацкевич, Екатерина Седик, Павел Савинков, Сергей Змичеревский, Артемий Падалка, Марина Богатова, Ксения Жданова, Марта Дромашко и др.Продолжительность: ~00:27:00 серия
+Мертвецов реанимирует с помощью таинственной сыворотки, полученной в результате немыслимых экспериментов, студент медицинского университета Герберт Вест. Сосед Веста по комнате Дэн помогает приятелю в его страшном деле.
+Начинают они с кошки, потом добираются до трупов из университетского морга…Производство: США / Empire Pictures, Re-Animator Productions Inc.Жанр: Ужасы, Фантастика, КомедияРежиссер: Стюарт ГордонАктеры: Джеффри Комбс, Брюс Эбботт, Барбара Крэмптон, Дэвид Гэйл, Роберт Сэмпсон, Джерри Блэк, Кэролин Пёрди-Гордон, Питер Кент, Barbara Pieters, Йен Патрик УильямсПеревод: Профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:25:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:814742A6CAE9CBB24828EEFE422BE995464EB2D5
+magnet:?xt=urn:btih:EABF1499A5A215B5B27445DD32DBB5539D22600D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,27 +77,105 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 585914   (779823) от 22.02.2018
+###  Публикация: 1098663   (780136) от 20.02.2018
 
-Андрей Круз | Полное собрание сочинений [26 книг + карта] (2009-2014) [FB2, JPG] (обновляемая)
+3D модели - Evermotion - Archmodels Vol. 173 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В сборник вошли высокодетализированные модели комнатных растений и цветов в вазах.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153AD3B237F3CE24645AA84CB375A8D08866489E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207877   (780135) от 20.02.2018
+
+Red Giant Magic Bullet Suite 13.0.6 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Magic Bullet Suite — пакет мощных плагинов для профессиональной цветокорекции, регулировки освещения используемые в программах: Adobe After Effects, Adobe Premiere Pro, Adobe Photoshop, Sony Vegas. В комплект входят основные инструменты: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, Magic Bullet Mojo 2, Magic Bullet Cosmo 2, Denoiser (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D0C586B0C31404970D905B071AECAE3B33AFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062747   (780134) от 20.02.2018
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2 — продолжение ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры 1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog. В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A07E937C60E61AB87F932BC71E10ACCD853F144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062599   (780133) от 20.02.2018
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/upd17/dlc) Repack =nemos= [Deluxe Edition]
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779823.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полное собрание сочинений Андрея Круза.
-Отличия от других сборников сети:
-Добавлены новые книги: На пороге Тьмы. Странник, Нижний уровень, Рейтар, Отблески тьмы, Мёртвый Лерой и Близится буря (Ветер над островами 2)Жанр: Фантастика;Формат: FB2;
+Shadow Warrior 2 - продолжение  ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры  1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog.  В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E0BC2D03B31B0ED9566540A0193DAA25C6A1ED6
+magnet:?xt=urn:btih:A8EAD37D80C2EC54E5BD376E6A3CC73B06A517ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,28 +183,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208690   (779822) от 23.02.2018
+###  Публикация: 1208184   (780132) от 21.02.2018
 
-Enrico Pieranunzi Latin Jazz Quintet - Live At Birdland (2008) 2010, CAM Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
+Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779822.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Talk [00:12]
-02. Danza 2 [14:42]
-03. Choro del Infinito Hombre [09:08]
-04. Rosa del Mare [06:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:52
+01. I Got A Right To Cry [02:52]
+02. Old Devil Moon [05:11]
+03. The Minstrels [03:31]
+04. You Belong To Me [04:24](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:52:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCB15DB64E020D05705AD4D48390C1DFA9F9B710
+magnet:?xt=urn:btih:E9D82A760D2C53022D7A0FFB1770C372FF30CCB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,57 +212,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208516   (779821) от 23.02.2018
+###  Публикация: 1208192   (780131) от 21.02.2018
 
-FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Nights 05:43
-02. Cave Drawings 04:56
-03. Jessy Lanza 05:29
-04. Don Caballero 04:38(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DC6BA21CEBD9AC5E53B6F4D8619A7B98216786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208693   (779820) от 23.02.2018
-
-Helen Forrest & Benny Goodman - The Complete Helen Forrest With Benny Goodman (1939 - 1941) 3CD, 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
+Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779820.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Busy As A Bee (I'm Buzz, Buzz, Buzzin') [03:15]
-02. What's The Matter With Me? [03:06]
-03. What'll They Think Of Next? [03:18](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 02:50:22
+01. Backwards Bop [06:38]
+02. Rebirth [07:39]
+03. Stay [05:59]
+04. Dance of Shiva [06:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:56:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9820CDEF6787709BA17B59DAB568AA13CF276D6E
+magnet:?xt=urn:btih:DF92CC8983AF6F0EE753A2F2FDDA423342F9438D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,28 +241,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208703   (779819) от 23.02.2018
+###  Публикация: 1208181   (780130) от 21.02.2018
 
-VA - Errormatic Vol​.​1 (2018) Clean Error [FLAC|Lossless|WEB-DL|tracks] <Abstract, Glitch, IDM, Experimental, Ambient>
+The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779819.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grier Edward Carson – Imjpg (04:43)
-02. Nearfield – One Moment (04:01)
-03. Barbiss Trysand – Alleyshftr (03:04)
-04. Ogrvne – Elden (03:26)(   Читать дальше...   )Жанр: Abstract, Glitch, IDM, Experimental, AmbientПродолжительность: 01:30:22
+01. After You've Gone [04:53]
+02. When Johnny Comes Marching Home [05:16]
+03. Deep River [05:43]
+04. Till We Meet Again [04:19](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:48:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3788571D0E0C7ACEF4AFEDC2868D8016FCD13C6
+magnet:?xt=urn:btih:2B0B91CB24EBC447B5BA78FA0C1EA7B742A6CDBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +270,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208607   (779818) от 23.02.2018
+###  Публикация: 1208140   (780129) от 21.02.2018
 
-VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
+VA - Power Sounds (Volume 1) (2018) [MP3|320 Kbps] <Progressive House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779818.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kite Lost - Popular Odor
-02. DJ Mr Gogo - The Cellar of the Secrets
-03. Oriental Surprise - Oltre Muras
-04. Mister Gregor - Stop Range(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:57:13
+01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound  04:18
+02. Denis Dawydow, Simon Aces - F.A.Q.  05:15
+03. Julian Blaze, StarBouncers - Valentine (Time to Groove)  04:43
+04. Grimm Brothers - Back to Trumpets  04:52(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B479C27613FD782AC0F8812C4852142C7FF32181
+magnet:?xt=urn:btih:1AE5201ABF7BB3643285CE8A64BEA1FDCFA0C1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,28 +299,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208674   (779817) от 23.02.2018
+###  Публикация: 1208325   (780128) от 21.02.2018
 
-Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
+John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779817.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infinitum (06:38)
- 02. Hyper Density (06:02)
- 03. Anthropology (06:06)
- 04. Emerald City (06:00)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:11
+01. Elements (08:27)
+ 02. Symbols (07:15)
+ 03. Implant (07:17)
+ 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:245B2BD3C188A5BAF155C0A56DB5791BAC18ABFE
+magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,57 +328,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208450   (779816) от 23.02.2018
+###  Публикация: 1208199   (780127) от 21.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Сноуборд. Мужчины. Сноуборд-кросс. Квалификация (15.02.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779816.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 февраля 2018 года, четверг. 05:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Сноуборд. Мужчины.
-Сноуборд-кросс. Квалификация(   Читать дальше...   )Телекомпания: TeleSportЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6E650B07D73E849CD9F0B46B0F7800C7C9F65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208689   (779815) от 23.02.2018
-
-Bill Evans - The Bill Evans Album (1971) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779815.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Funkallero [07:49]
-02. The Two Lonely People [06:14]
-03. Sugar Plum [07:06]
-04. Waltz for Debby [07:46](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:10:33
+01. Treelines [11:39]
+02. Tumbledown [10:29]
+03. Blue Yonder [07:53]
+04. Nishiyuu [14:58](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 01:06:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:508A6E175467AE51B155A95FD4DC0858E0ACABE4
+magnet:?xt=urn:btih:C9DF4DFFD20F3F1B38FF567B4127020D447A7B02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,28 +357,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208717   (779814) от 23.02.2018
+###  Публикация: 1208011   (780126) от 21.02.2018
 
-Corey Nolen & Ashley Spurling - Not All Roses (2018) [FLAC|Lossless|WEB-DL|tracks] <Country Folk>
+Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779814.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Doing Alright 03:06
-02. My Love 03:21
-03. Page That Never Turned 04:24
-04. Version Of Love 03:07(   Читать дальше...   )Жанр: Country FolkПродолжительность: 00:37:36
+01. Prince of Peace [08:52]
+02. Balance [12:40]
+03. Izipho Zam [28:47]Жанр: Avant-Garde JazzПродолжительность: 00:50:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38DF2F46E13C60759F604D67361FA284B8D586AD
+magnet:?xt=urn:btih:A7619A2C45ABA5A4D448271086710FE96F4E7B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,28 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208470   (779813) от 23.02.2018
+###  Публикация: 1208180   (780125) от 21.02.2018
 
-Adrena Line - Live @ Club Level (3 Urodziny duetu DJ Gacki & DJ Pavlik ) (2018) [MP3|320 Kbps] <Electro House, Progressive House>
+Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779813.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Tiesto - Traffic (Dropshakers & KCR 2k17 Bootleg)
-02 Kalwi & Remi - Explosion (KBN & NoOne Bootleg)
-03 DJ Matys & D-Gor - Orgasm (Mr Matt 2014 Remix) w/DJ Matys & D-Gor - Orgasm (DJ Domingez & Jay Paul Remix)
-04 Digital Rockers - Because I Love You (Acid Luke & X-Meen Bootleg)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:28:54
+01. Undecided [04:03]
+02. Fatha's Blues [05:12]
+03. A Sunday Kind Of Love [04:20]
+04. I've Found A New Baby [03:28](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:37:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D17165D8384967B7B4BAD1BDAA60FD8C20D45D89
+magnet:?xt=urn:btih:E7724CB1C92A408B972E62E9CCD9091C79A01177
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208645   (779812) от 23.02.2018
+###  Публикация: 1208196   (780124) от 21.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Мужчины. Гонка 15 км. Свободный стиль (16.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps] Россия1 HD
+Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779812.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 февраля 2018 года, пятница. 09:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Мужчины.
-Гонка 15 км. Свободный стиль(   Читать дальше...   )Телекомпания: Россия1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:26
+01. Southend Stomp [06:36]
+02. Numbly [07:05]
+03. Con Alma [08:19]
+04. Traffic Jamm'n [09:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:835338836EC7E5964D1900F4AD1347FFE60BB4C0
+magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,28 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208832   (779811) от 23.02.2018
+###  Публикация: 1207957   (780123) от 21.02.2018
 
-Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779811.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Living Out Loud 4:32
-02. Lost Cause 5:02
-03. Landslide 5:28
-04. That Which Doesn't Kill Me 4:42(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 00:55:50
+01. Porch Light [04:02]
+02. Autumn Landscape [03:44]
+03. Uyawda [04:43]
+04. Lolly Pop [02:19](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:32:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B775E228F7D650FE9BA00DC81EE0E6FB70DCEBB
+magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +472,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208612   (779810) от 23.02.2018
+###  Публикация: 1208198   (780122) от 21.02.2018
 
-VA - Sexy Miami Beach, Vol. 2 (2018) [MP3|320 Kbps] <Progressive House>
+Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I (For Kenny Wheeler): Ouverture [01:17]
+02. Part I (For Kenny Wheeler): Starbright [15:26]
+03. Part II (For Jan Jarczyk): To Jan [06:21]
+04. Part III (For John Coltrane): Drum Interlude [01:35](   Читать дальше...   )Жанр: Modern Creative, Third StreamПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5860D7C5BB2A3C84E23718FBCABA571E50DD6514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208187   (780121) от 21.02.2018
+
+Mose Allison - I Don't Worry About A Thing & Mose Alive (1962, 1966) 1999, Collectables Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Worry About A Thing [02:19]
+02. It Didn't Turn Out That Way [02:44]
+03. Your Mind Is On Vacation [02:38]
+04. Let Me See [04:12](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACAB99484580D881D01BEE74F0CAD5D50AF3CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208282   (780120) от 21.02.2018
+
+М.В. Лутцев и др. | Католицизм в конфессиональном пространстве Уральского региона (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780120.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике представлены материалы Межрегионального круглого стола «Католицизм в конфессиональном пространстве Уральского региона» посвящённого 170-летию издания указа о постройке католического собора в г. Оренбурге (28 ноября 2014 г., Оренбург). Книга объединяет научные статьи, освящающие историю и современное положение Римско-Католической Церкви в России и на Урале, (   Читать дальше...   )Жанр: Материалы Межрегионального круглого столаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E03D71B5A10C9349D8B64309F4255ED84796FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208186   (780119) от 21.02.2018
+
+The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779810.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afrikano - Sundance
-02. Da Angerboyz - Infinity
-03. Dippu - Magnificent Space
-04. DJ Luciano - DJ Make It Rain(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:38
+01. Hope (11:02)
+ 02. Disfigured Phantasy (05:53)
+ 03. Levitation (08:16)
+ 04. Psycho Kinesis (05:23)(   Читать дальше...   )Жанр: Techno, Ambient, IDMПродолжительность: 01:16:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E184E55F4E7C7CE2819E12CD1C9CF4DB9504488
+magnet:?xt=urn:btih:A2F75A81FC8F8707077B79FFFDA466F31B8822E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,28 +585,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208641   (779809) от 23.02.2018
+###  Публикация: 1208193   (780118) от 21.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Мужчины. Гонка 15 км. Свободный стиль (16.02.2018) WEB-DL [H.264/720p-LQ]
+Tom Guarna - The Wishing Stones (2017) Destiny Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [02:19]
+02. Song for Carabello [05:15]
+03. Surrender Song [07:05]
+04. Hope [07:17](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary Jazz, Post-BopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA57C893A95F2D24EE4BA06E215027D90E6E83E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208038   (780117) от 21.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Женщины. Гонка 10 км. Свободный стиль (15.02.2018) WEB-DL [H.264/720p-LQ]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779809.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 февраля 2018 года, пятница. 09:00 МСК
+15 февраля 2018 года, четверг. 09:30 МСК
 XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Мужчины.
-Гонка 15 км. Свободный стиль(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:52
+Лыжные гонки. Женщины.
+Гонка 10 км. Свободный стиль(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81D60F35AFE78237B3F043E0CE65E8713F6F955B
+magnet:?xt=urn:btih:581AE629CA5D8E91C72BC962843C001AFA1FF7BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +643,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208398   (779808) от 23.02.2018
+###  Публикация: 1208301   (780116) от 21.02.2018
 
-Дипломатическая неприкосновенность / Diplomatic Immunity (1991) HDTV [MP4|1920x1080]
+VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779808.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коул Хикел, морской пехотинец, преследует в Парагвае убийцу дочери, выпущенного из тюрьмы под защиту «дипломатической неприкосновенности»Производство: Metro-Goldwyn-MayerЖанр: Боевик, Драма, ТриллерРежиссер: Питер МарисАктеры: Брюс Бокслайтнер, Билли Драго, Мег Фостер, Том Брезнахан, Фабиана Уденио, Кристофер Ним, Маттиас Хьюз, Шэрон Кейс, Роберт Дукуй, Ли де Бру, Кен ФориПеревод: Двуголосый закадровыйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:00
+01. Blake Baxter - Where Is The Love (05:42)
+ 02. Santonio Echols - Sources (05:01)
+ 03. Eddie 'Flashin' Fowlkes - T.M.F.61 (05:59)
+ 04. Thomas Barnett - Operation-10 (05:05)(   Читать дальше...   )Тип издания: CD •Жанр: Techno, Detroit Techno •Продолжительность: 00:54:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB3D6D405B63B3F6E476F57A29391111AD7B6218
+magnet:?xt=urn:btih:12557AE82B0B714A70BCA091AA511E8114685B11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,83 +672,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208748   (779807) от 23.02.2018
+###  Публикация: 1208141   (780115) от 21.02.2018
 
-Eleine - Until the End (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Story Untold (5:05)
- 2. Echoes (4:06)
- 3. Sanity (3:59)
- 4. From the Grave (4:13)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3441ED8675488F39DF4F48C04B3C046144E44A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208749   (779806) от 23.02.2018
-
-В. Замаровский | Их величества пирамиды (1986) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного чехословацкого популяризатора Войтеха Замаровского, написанная на основе существующей литературы по египтологии и личных наблюдений автора, представляет собой увлекательный рассказ об истории "открытия" пирамид и их научного изучения.Жанр: История, науковедение, археология, искусствоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF7CABA64D3934DC899BA14555121FF0FC16541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208665   (779805) от 23.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фигурное катание. Мужчины. Короткая программа (16.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Женщины. 2-й тур. Китай — Россия (ОАР) (15.02.2018) WEB-DL [H.264/1080p-LQ]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779805.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 февраля 2018 года, пятница. 04:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фигурное катание. Мужчины.
-Короткая программа(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:48:39
+15 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг. Женщины. 2-й тур.
+Китай — Россия (ОАР)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:58:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB4CE23DA231B30839089FFE87C0CE1B86ACB12E
+magnet:?xt=urn:btih:2FEF509CADA5F7B9E774B25474EDE1D3BA2EE531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208170   (780114) от 21.02.2018
+
+Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Darkwave, Ethereal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterdancer (06:08)
+ 02. Ocean Nymph (03:45)
+ 03. Seahorses (03:34)
+ 04. Asleep In The Undercurrent (04:33)(   Читать дальше...   )Жанр: Ambient, Downtempo, Darkwave, EtherealПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9240883905E63FBB277159D0258D9D864C99CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

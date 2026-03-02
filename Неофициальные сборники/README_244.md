@@ -1,3 +1,203 @@
+###  Публикация: 1130657   (714419) от 02.05.2017
+
+aQuaLuna - Classic Mix (1994 - 1999) [MP3|256 Kbps] <Acid Hard, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acid Hard, Goa, TranceПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37906A8C099AB8DA8C044FE11D5622C4A51DBCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286120   (714364) от 01.03.2019
+
+VA - Дискотека 2019 Dance Club Vol. 188 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka 2019!):
+01. Катя Чехова - Дискотека (NewRetro Remix) (3:54)
+02. Zeyn - Silence (3:48)
+03. Dj Vianu x Vict Molina - Save Me (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 29:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488CF0E52FAAF56C002E5A599A3C1B0D6C84BC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130606   (714328) от 02.05.2017
+
+VA - Synthwave Drive (4CD) от DON Music (2017) [MP3|320 Kbps] <Synthwave, Electronic, Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With The Dead - Venom (03:56)
+02. Carpenter Brut - L.A. Venice Bitch 80's (04:11)
+03. Perturbator - Disco Inferno (05:13)
+04. Scandroid - Neo-Tokyo (Dance With The Dead Remix) (05:47)(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthpopПродолжительность: 04:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FF8C69DDABE8A6B2CEFC84AF178A307B95AA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024780   (714317) от 10.06.2016
+
+VA - Nu Collection: Cool Tunes, Electronic and Chill Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meadowlark - Eyes Wide (3:43)
+02. Saavan - Flown (3:54)
+03. Glimmer of Blooms - Take My Hand (3:21)
+04. La Fine Equipe - Cheese Naan (3:37)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A980A1851B605435CB268B6C846109081BBC0DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130672   (714225) от 02.05.2017
+
+VA - Romantic Erotic Piano: Sensual Erotic Jazz (2017) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Music Lovers Club - Romantic Erotic Piano
+02. Lovely Heart Zone - Intimate Evening
+03. Romantic Piano Background Music Academy - All Night
+04. Sexy Lovers Music Collection - Pure Romance(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998504CD82446C00941E16B924B722D3B31C8B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024656   (714133) от 10.06.2016
+
+VA - Блатной музобоз (2016) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виталий Синицын - Встречай Зека
+02. Евгений Сидорук - Наколочка
+03. Артур - Лак Дождя Покрыл Асфальт
+04. Александр Вестов - Лесоповал(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE41BB4E7855CBCA4543F3B37069842369F9CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130562   (714131) от 02.05.2017
+
+VA - СОЮЗ 60 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Егор Крид & Molly - Если ты меня не любишь  3:27
+02.  Светлана Лобода - Случайная  3:53
+03.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18
+04.  Burito - По волнам  3:19(   Читать дальше...   )Жанр: PopПродолжительность: 03:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2588EFCEC7A76D5AAA5C8A00AF9106ECD8600D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024628   (714073) от 10.06.2016
 
 VA - Летний плейлист 2 (2016) [MP3|256 кб/с] <Pop>
@@ -542,209 +742,6 @@ VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837C13DD874A101820479270F8B04B33B0714C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401020   (713473) от 08.08.2020
-
-VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Head & Heart (feat. MNEK)
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. Nathan Dawe - Lighter (feat. KSI)
-04. Harry Styles - Watermelon Sugar(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39054FDDA8ECECE7A779714ADBF2D7CEE5E53823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401037   (713359) от 08.08.2020
-
-VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Sie ruft
-02. Apache 207 - Bläulich
-03. Bonez MC - Tilidin Weg
-04. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F3AE8907CAFFE6D7B520744CB08AD351E7821A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401016   (713344) от 08.08.2020
-
-VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cocino - Where Do We Go
-002. Jay Fox - Heartbeat
-003. Sunnery James - Pray (Extended Mix)
-004. Asher Postman - Walk Away(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 08:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219359   (713329) от 14.04.2018
-
-VA - Ultimate Chillout Dreams (2018) [MP3|256-320 Kbps] <Ambient, Chillout, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2illusions - Flying Butterfly (Original Mix) 3:56
-02. 2illusions - Spring Day 3:15
-03. Daminika - Last Goodbye 4:03
-04. DJK - I Like Chopin (Rainy Daze Chillout mix) 4:54(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 18:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16B051E3CDE27EEAF4333CB7780A0A5C41365CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401019   (713323) от 08.08.2020
-
-VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713323.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sirius Delta - Stray
-002. Moam - Run With It
-003. Dorian Lay - Level Down
-004. Hdsn - Shake The Ground(   Читать дальше...   )Жанр: House, Electro, ClubПродолжительность: 10:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FB141685BDEE8F802C4B9326BE96B3A20DBEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400689   (713122) от 08.08.2020
-
-VA - New Rock 2 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theory Of A Deadman - World Keeps Spinning (3:34)
-02. The Strokes - Bad Decisions (4:53)
-03. The Rolling Stones - Living In A Ghost Town (4:07)
-04. The Pretty Reckless - Death by Rock and Roll (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41D695F5206F78D7B5E88FC907000A1CBE91800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286387   (713106) от 02.03.2019
-
-VA - Tropical Vibes vol. 7 (2018 - 2019) [MP3|320 Kbps] <Tropical House, Deep House, Soulful House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Goman - Forward To The Sun (Original Mix)
-02. FunFil - Feels (Original Mix)
-03. Kavinsky & Lovefoxxx - Nightcall (DJ VoJo Remix)
-04. Delaise - The Moonlight's Show (DJ VoJo Remix)(   Читать дальше...   )Жанр: Tropical House, Deep House, Soulful House, Nu Disco, Indie Dance, Future BassПродолжительность: 04:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F05D335E0DB20B1B42EA6A2F768936EC11E55C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

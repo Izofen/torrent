@@ -1,3 +1,31 @@
+###  Публикация: 989354   (916341) от 22.02.2016
+
+Шаблоны - Business Report PowerPoint Template [PPTX, PPT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественный бизнес-шаблон для PowerPoint,
+более 100 слайдов в 6 цветовых решениях.
+Макет присутствует как в Standard(4:3), так и в Wide(16:9)Формат: PPTX, PPTРазрешение файлов: 1920х1080 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A55C970668C12A0FE9885317378D30E338BE770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541882   (916337) от 22.02.2016
 
 Звуковые библиотеки - Bluezone Corporation Samples Pack [WAV, AIFF]
@@ -643,34 +671,6 @@ Facebook in Dark - это макет, который может представ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AF02728DEC4AA6A0F6114B8B62FC919DD31704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491391   (912210) от 24.08.2021
-
-Векторный клипарт - Cartoon Symbol Of The Year [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сборка детского клипарта
-21 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070D07D2B86CBBA6D2C63874E6566FF016B4AA74
 ```
 
 https://mybot314.ru/tekegram_catalog/

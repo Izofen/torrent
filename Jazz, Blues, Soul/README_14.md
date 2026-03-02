@@ -636,35 +636,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438394   (1041037) от 08.01.2021
-
-Vargas Blues Band - The Very Best Of (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Spanish Wine (feat. Chicuelo)
-02. Blues Latino (En Directo)
-03. Del Sur (feat. Chicuelo)
-04. Albatross (En Directo)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4592D4AF102E10990899B64001EA62BB81A12F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438420   (1041031) от 08.01.2021
 
 Salvo - Back to My Blues Vol. 1 (2021) [MP3|320 Kbps] <Blues Rock>
@@ -745,6 +716,35 @@ VA - Ladies In Love classees X (1939 - 1956) 2CD, 2006, Nocturne [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E056C8748F63C1E6FFB6DEC3F87240EFC8225848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438537   (1040816) от 09.01.2021
+
+John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kingsnake Love (03:38)
+ 02. Champion of Fools (04:39)
+ 03. Human Race (03:23)
+ 04. Crossroads (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A298EB1C21B0B764135C7CAD47E2AEFD429AA6D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

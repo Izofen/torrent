@@ -1,3 +1,32 @@
+###  Публикация: 1607605   (1043966) от 27.01.2023
+
+Tarthak - Contra Deus (2022) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - IV [00:01:59]
+02 - Hell Name of Victory [00:04:49]
+03 - Devastation [00:04:10]
+04 - Cadavered City [00:04:58](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A0AF6228900224A6E7A035F1C4FAD69A4CC892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583338   (1043946) от 27.01.2023
 
 Malstrem - 3 Albums (2021-2023) [MP3|320 Kbps] <Symphonic, Black,  Death Metal>
@@ -722,34 +751,6 @@ Fast Food - Collapsing Babylon (2023) [MP3|320 Kbps] <Pop Rock, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A147DCC9B43BD7B83AE7637797B72C2F29EB8173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611961   (1040637) от 14.02.2023
-
-Bogobes - 3 Relises (2022-2023) [MP3|320 Kbps] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Духи Чумы (EP)
-2022 - К2023 - PantheonЖанр: Blackened Death MetalПродолжительность: 3 CD, 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C818F4E9876F1E4E7C02E2249B79CB33A4D72DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

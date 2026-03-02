@@ -1,3 +1,61 @@
+###  Публикация: 1306795   (555450) от 06.06.2019
+
+Santana - Africa Speaks (2019) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Africa Speaks (feat. Buika)
+02. Batonga (feat. Buika)
+03. Oye Este Mi Canto (feat. Buika)
+04. Yo Me Lo Merezco (feat. Buika)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020DFDE5E11D9C00A1A8FE168B9F2A3CD444AE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236300   (554712) от 16.07.2018
+
+Santana - The Best Instrumentals (1997) [MP3|320 Kbps] <Blues-Rock, Latin Rock, Instrumental Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti 4'34
+02. Europa (Earth's Cry Heaven's Smile) 5'01
+03. I Love You Much Too Much 4'41
+04. Aqua Marine 5'29(   Читать дальше...   )Жанр: Blues-Rock, Latin Rock, Instrumental Guitar RockПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A959429BB55D8C70850DC80DD2989971FC4FDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236479   (554500) от 17.07.2018
 
 John Morgan - Kaleidoscope (1971) Reissue, 2013, Prog Temple [MP3|320 Kbps] <Rock, Psychedelic Blues>
@@ -684,64 +742,6 @@ The 69 Eyes - 3 Relise (1997-2013) [MP3|320 Kbps] <Gothic Industrial Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11EEDF2921570F6AF471AF589A2E64CD8FCC9123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557129   (542811) от 14.06.2022
-
-Mount Caravan - Demo (1998-2002) 2022, DAREDEVIL RECORDS [MP3|320 Kbps] <Heavy Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MASTERS OF THE INNERSPACE [00:06:01]
-02. OCEAN WANDERER [00:06:32]
-03. GASOLINE VAN [00:04:57]
-04. THE HOLLOW CORE (Instrumental) [00:05:16](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 3CD, 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEAD65AF72D2E9DBDA3C4E66D39B772BFA7CE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557245   (542704) от 14.06.2022
-
-Sleazy RoXxX - Trinity Junction (2022) [MP3|320 Kbps] <Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boyz4boyz [00:03:30]
-02. Curse Of Generation [00:04:57]
-03. Drunk To Forget [00:04:06]
-04. Everything [00:03:27](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CED2675E0874E85CDD21C620B0DDC1085F38C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

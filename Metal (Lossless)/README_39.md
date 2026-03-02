@@ -1,3 +1,206 @@
+###  Публикация: 1488175   (1002323) от 10.08.2021
+
+Ov Shadows - I Djävulens Avbild (2020) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	The Ravens Are Flying Low 	07:24
+02. 	Knight and Death 		05:20
+03. 	Like Wildfire 			03:55
+04. 	Defenders of Purity 		07:39(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7D0FE3E828601D69580BD2BAC6E4DE0F0A7495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488243   (1002322) от 10.08.2021
+
+Fell Fyre - Devastation And The Dauntless (2020) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return of the Horsemen (04:30)
+02. Blades in the Night (02:05)
+03. Rl'yeh's Cradle (03:24)
+04. Over the Side (03:25)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DE65371D3CA5F128B75382BEECAF7F3785446E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488241   (1002321) от 10.08.2021
+
+Fell Fyre - Tyranny and Triumph (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horsemen Forever (05:11)
+02. Dead Man's Curse (04:16)
+03. Necropolis (03:04)
+04. Vengeful Warrior (02:56)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CF5A0570E84CD3696A0275137C9746180CDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488177   (1002313) от 10.08.2021
+
+Revel in Flesh - The Hour of the Avenger (2019) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	The Hour of the Avenger 	03:26
+02. 	My Trial 			03:20
+03. 	Blood Oath 			04:59
+04. 	The Nihilistic Nothingness 	03:31(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3788C5D7603ECAE6C8B0589072BEE681AFE8E316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488428   (1002081) от 11.08.2021
+
+Wolfstavar - Im Schatten der Götter (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auf nach Walhalla
+02. Tyr
+03. Heimdall - Der Wächter
+04. Der Freiheit entgegen(   Читать дальше...   )Жанр: Heavy Metal, FolkПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EE7AC55FC1C3945A0624B2D46CAFBC7E91D1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488467   (1002077) от 11.08.2021
+
+Ovvercross - Stuttgart, 1943 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuttgart, 1943 (03:52)
+02. Kill All the Time (03:39)
+03. Dead Bodies (04:38)
+04. Partisans (04:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFC221C5A946F65AABA55C6578C17769392996B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488473   (1002075) от 11.08.2021
+
+Kilmara - Across The Realm Of Time (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...And Into The Realm
+02. Purging Flames
+03. The Silent Guide
+04. The End Of The World(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBBFF5C07DB9C62FF49F0B94821F0A4E90DAD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488426   (1002074) от 11.08.2021
 
 Eons Enthroned - Into the Arcane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -581,241 +784,6 @@ Nebulous - The Quantum Transcendence Of Death (2013) [FLAC|Lossless]<Technical D
 7. VII: Forever Impaled (4:07)
 8. VIII: Hivemind (3:29)
 9. IX: Spectrums (3:47)Жанр: Technical Death MetalПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603886   (996687) от 16.01.2013
-
-Therion - 3 Albums + 2 Singles + 1 Compilation (1991-2001) [FLAC|Lossless]<Death, Gothic/Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Death, Gothic/Symphonic MetalПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604849   (996204) от 18.01.2013
-
-Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Preliminaries 01:09
-2. Stumps 03:20
-3. In Glorious Orgy 04:07
-4. Hypertrophic Jellyfish 04:27
-5. Everything Means "I" 03:54
-6. Barf Together 04:22
-7. Cartilages 03:49
-8. The Copy / Paste Syndrome 03:44
-9. The Miss-Treated 03:00
-10. Paraphilias 04:30Жанр: Death MetalПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605022   (995912) от 19.01.2013
-
-Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Industrial Metal | Electronic | Rapcore | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995912.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. The Big Sleep
-02. White Knuckle Mountains
-03. New Recruit
-04. Dusk Becomes A Dawn
-05. Dead End Lane
-06. We Must Start Again
-07. Nautifungus
-08. Higher State Of Truth(   Читать дальше...   )Тип издания: ДискографияЖанр: Industrial Metal | Electronic | Rapcore | Female VocalПродолжительность: 00:46:43 >>>
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511651   (994824) от 22.01.2013
-
-Baroness - 4 albums (2007-2009) [FLAC/APE|Lossless] <Sludge, Progressive / Doom Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994824.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: (00:44:29)
-01. Bullhead's Psalm (01:20)
-02. The Sweetest Curse (04:30)
-03. Jake Leg (04:23)
-04. Steel that Sleeps the Eye (02:38)
-05. Swollen and Halo (06:35)
-06. Ogeechee Hymnal (02:35)
-07. A Horse Called Golgotha (05:21)
-08. O'er Hell and Hide (04:22)
-09. War, Wisdom, and Rhyme (04:25)(   Читать дальше...   )Жанр: Sludge, Progressive / Doom Metal, Post-RockПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607313   (994455) от 23.01.2013
-
-Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Intro  	2:21
-02. 		Her Voice Resides 	4:18
-03. 		4 Words (To Choke Upon) 	3:44
-04. 		Tears Don't Fall 	5:48
-05. 		Suffocating Under Words Of Sorrow (What Can I Do) 	3:36
-06. 		Hit The Floor 	3:30
-07. 		All These Things I Hate (Revolve Around Me) 	3:45
-08. 		Room 409 	4:01
-09. 		The Poison 	3:39
-10. 		10 Years Today 	3:56(   Читать дальше...   )Жанр: Heavy Metal, Rock, HardcoreПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607903   (994019) от 24.01.2013
-
-Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nabataea (7:02)
-02. World of War (4:57)
-03. Live Now! (3:11)
-04. Far from the Stars (4:43)
-05. Burning Sun (5:34)
-06. Waiting for the Thunder (3:54)
-07. Hold Me in Your Arms (5:11)
-08. Wanna Be God (2:02)
-09. Straight Out of Hell (4:35)
-10. Asshole (4:10)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608405   (993677) от 25.01.2013
-
-A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annihilation Induced By The Luminous Firestorm [04:46]
-02. Rapturous Euphoria [03:32]
-03. False Gods Render Death [03:21]
-04. Enhanced Sinister Corruption (F/Matt Brown) [03:16]
-05. Ecliptic Realm [03:07]
-06. And Darkness Was Cast [02:24]
-07. Architect Or Arsonist (F/ Christian Mьenzner) [03:17]
-08. The Carnage Of Infinite Black [03:44]
-09. Purged And Forgotten [03:59]Жанр: Technical Death MetalПродолжительность: 00:31:28
 
 ## Скачать торент
 ```bash

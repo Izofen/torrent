@@ -1,3 +1,32 @@
+###  Публикация: 1371773   (888349) от 01.04.2020
+
+Carlos Santana - 100% Carlos Santana (2020) [MP3|320 Kbps] <Pop, Rock, Latin>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Foo Foo
+03. Oye Como Va
+04. Samba Pa Ti(   Читать дальше...   )Жанр: Pop, Rock, LatinПродолжительность: 03:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37B9FD8BD716E1791A40D03C389A6731223FB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994885   (888196) от 09.03.2016
 
 Mark Mikel - Collection (1993-2007) [MP3|192 - 320 кб/с] <Classic Rock, Power Pop>
@@ -719,35 +748,6 @@ VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765274   (872982) от 13.03.2014
-
-VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Years Hollow - For Life (Feat. Clint Lowery)
-02. Rave The Reqviem - Exhale
-03. Fuel - Cold Summer
-04. An Early Fall - Soma(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4079217F8F6798C1080F4E1C3D710CCA806A2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

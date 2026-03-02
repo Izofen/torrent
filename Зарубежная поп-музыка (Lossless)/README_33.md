@@ -1,3 +1,119 @@
+###  Публикация: 1285607   (718687) от 27.02.2019
+
+Julio Iglesias - De Julio 100 (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Quiereme Mucho
+02. Un Canto A Galicia
+03. To All The Girls I've Loved Before(   Читать дальше...   )Жанр: PopПродолжительность: 06:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE479553F8108072D1FE4361249E2B680753583E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129900   (718507) от 30.04.2017
+
+The Chainsmokers & Coldplay - Something Just Like This (Remix Pack) (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Just Like This (Alesso Remix) (4:13)
+ 02. Something Just Like This (R3hab Remix) (2:43)
+ 03. Something Just Like This (Dimitri Vegas & Like Mike Remix) (3:51)
+ 04. Something Just Like This (Don Diablo Remix) (3:51)(   Читать дальше...   )Жанр: Pop, Electropop, HouseПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00D3482A26514A455F31D7F04DC00C5BA16620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129883   (718503) от 30.04.2017
+
+The Chainsmokers - Memories... Do Not Open (2017) [FLAC|Lossless|tracks + .cue] <Pop, Electropop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One (2:58)
+ 02. Break Up Every Night (3:28)
+ 03. Bloodstream (3:44)
+ 04. Don't Say (3:48)(   Читать дальше...   )Жанр: Pop, Electropop, HouseПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B27B87E3F990C40EB59F9B56BE7B32CD6862ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129967   (718425) от 30.04.2017
+
+VA - NRJ Spring Hits (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - весенний сборник (   Читать дальше...   )CD1:
+01. Ofenbach - Be Mine  (2:42)
+02. Petit Biscuit - Sunset Lover  (3:57)
+03. Sean Paul feat. Dua Lipa - No Lie  (3:42)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC94108D638DB5456CD4242D313C7BBC1B0298E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024361   (718161) от 08.06.2016
 
 Hanne Sorvaag - Featuring (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
@@ -631,120 +747,6 @@ ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCE98794F52443CDC8DE4D3BA8602A9FA117FF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131057   (710397) от 04.05.2017
-
-Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doom Or Destiny (Feat. Joan Jett) (02:54)
-02. Long Time (04:35)
-03. Already Naked (04:06)
-04. Fun (04:19)(   Читать дальше...   )Жанр: Pop Rock, Post Punk, New WaveПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31549BB79693CE687279A67199A956556A51901C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025548   (710184) от 12.06.2016
-
-Paris - You Know Me (2002) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway (3:22)
-02. Are You Happy (3:13)
-03. Rock My World (3:28)
-04. I Do Believe (Written by Per Gessle) (3:36)(   Читать дальше...   )Жанр: Pop, Soft Rock, CountryПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8353BDC4789846172B32E3A2FF39A754CC64BCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025699   (710098) от 12.06.2016
-
-Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up    [03:12]
-02. Fightin' Over MeЖанр: Pop, R'n'BПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025459   (710024) от 12.06.2016
-
-Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Divorcio (04:00)
-02.  Corazon de papel (03:58)
-03.  Criollo soy (03:56)
-04.  Qui ganaste (03:02)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D12523B90CABF2A577D0FE300BC9C3163DB7946
 ```
 
 https://mybot314.ru/tekegram_catalog/

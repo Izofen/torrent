@@ -1,3 +1,218 @@
+###  Публикация: 971870   (984594) от 04.01.2016
+
+VA - Explosion Samples Tropic House (2016) [MP3|230-320 кб/с] <Tech House, Soulful, Nu Disco, Progressive, Tropical House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ka One & St-Sene - Page Not Found 05:58
+002. Fred P - Slow Euphoria 07:03
+003. Herron - Feet First 05:26
+004. Lnrdcroy - Donny On The River 02:47(   Читать дальше...   )Жанр: Tech House, Soulful, Nu Disco, Progressive, Tropical HouseПродолжительность: 11:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267BBE320242DE7FF234E034729D3B3D0E37136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971877   (984587) от 04.01.2016
+
+VA - Top 100 Deep House (December) (2016) [MP3|302-320 кб/с] <House, Indie Dance, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AKA AKA & Thalstroem - Faces (Teenage Mutants Remix)
+02. Alex Preda, Amber Long - DNA Matching feat. Amber Long (Arnas D Dub Remix)
+03. ALEXANDER AUREL - SHOUT (Original mix)
+04. Alexander Hristov & Wallmers - Let`s Go Retro (Original Mix)(   Читать дальше...   )Жанр: House, Indie Dance, Nu DiscoПродолжительность: 10:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B09E9C5405AB4EFC76A2E5C24F1E204FAA393C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970828   (984557) от 04.01.2016
+
+VA - Новогодний душевный шансон (2015) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Владимиров И Натаника - Заветные Слова
+02. Вадим Климов - С Тобою Рай На Земле
+03. Елена Хмель - Верила Я
+04. Мирослава Карташова - Не Ревнуй(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9808DBEED99A0A1174BB4CF1F998F4B66F9347EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971991   (984376) от 04.01.2016
+
+VA - EuroHit Top 40 - Итоговый выпуск (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - I'm Not The Only One (04:00)
+02. Charli XCX - Boom Clap (02:47)
+03. Gorgon City & Katy Menditta - Imagination (03:00)
+04. Ellie Goulding - Love Me Like You Do (04:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C165C19C7F78A65440BF91F6359FDE13A895750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971867   (984367) от 04.01.2016
+
+VA - Resident Advisor Top 100 Charted Tracks Of 2015 (2016) [MP3|245-320 кб/с] <Electronica, Techno, Minimal, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Cleis & Klement Bonelli - Marvinello (feat. Martin Wilson) (Original Mix) [08:37]
+002. DJ Koze - XTC [08:20]
+003. &ME - Woods [07:58]
+004. KiNK - Cloud Generator (Original Mix) [07:11](   Читать дальше...   )Жанр: Electronica, Techno, Minimal, Tech House, Deep HouseПродолжительность: 12:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728931EB5571A2B1E0F85F91A4E47246107924AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611231   (984191) от 03.02.2013
+
+VA - The All Time Greatest Movie Songs (4CD) (2010) [MP3|256 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984191.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD11.Savage Garden – The Animal Song (The Other Sister)
+ 2.Boyzone – Picture Of You (Bean : The Movie)
+ 3.Jim Carrey – Cuban Pete (The Mask)
+ 4.Buena Vista Social Club – Candela (Buena Vista Social Club)
+ 5.Hot Chocolate – You Sexy Thing (The Full Monty)
+ 6.Bob Dylan – All Along The Watchtower (American Beauty)
+ 7.Stealer's Wheel – Stuck In The Middle With You (Reservoir Dogs)
+ 8.Presidents Of The USA – Video Killed The Radio Star (The Wedding Singer)
+ 9.Isley Brothers – It's Your Thing (Out Of Sight)
+ 10.Aretha Franklin – Think (The Blues Brothers)(   Читать дальше...   )Жанр: popПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC05324E8D1D84A0099DA169BAD03A1709DE2ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434780   (983941) от 12.01.2012
+
+VA - Сборник энергичных хитов от Русского Радио (Брук Бонд) (2011) [MP3|320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нюша - Выбирать чудо (4:24)
+02. Инфинити - Когда уйдёшь (3:19)
+03. IKA - Держи меня за руку (3:19)
+04. Митя Фомин - Всё будет хорошо (3:49)
+05. Макsим - На радиоволнах (3:49)
+06. Горячий Шоколад - Без ума от счастья (3:48)
+07. Aslan feat. Marina - Где ты (Radu Sirbu Remix) (3:46)
+08. Валерия - Капелькою (3:53)
+09. Ани Лорак - Для тебя (2:55)
+10. Ирина Билык - Моя любовь (3:46)(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39CC0C84B5115C7C8B54BB2624EDC895EAC753B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355314   (983613) от 26.01.2020
 
 VA - German Top 100 Single Charts 24.01.2020 [MP3|320 Kbps] <Pop>
@@ -548,215 +763,6 @@ VA - Traxsource Top 200 Tracks Of 2015 (2016) [MP3|320 кб/с] <House, Indie Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A6166CE0810622DB41EA1E49B0356D2EA37275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972558   (981928) от 06.01.2016
-
-VA - Music For Everyone - Breaks & Breakbeat Vol.4 (2016) [MP3|320 кб/с] <Breaks, Breakbeat>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981928.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Oguretz - Presets (The BassBalls Remix)
-2. Beck - E-Pro (JaPetto Remix)
-3. Deekline & Ed Solo feat. Gala Orsborn - Top Rankin (Slynk Remix)
-4. Earth, Wind & Fire - Shining Star (Featurecast Remix)(   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 01:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ABE54D1C7A93A9E8C884003ADA5B45E86D9A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972690   (981920) от 06.01.2016
-
-Няньки / Twin Sitters (1994) [MP3|201-320 кб/с]<OST>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At War With The Weights
-02. Brothers Forever
-03. The Babysitters
-04. I Ride My Harley(   Читать дальше...   )Жанр: OSTПродолжительность: 00:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CC27782FE978A8B6E0C3645A4D67D5BA47628A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972509   (981854) от 06.01.2016
-
-VA - Russian Club Best Of Music (2016) [MP3|320 кб/с] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Егор Крид - НаЕгор Крид - Надо ли (DJ Noiz Remix)
-02. Алексеи Сулима - Пьеро и Мальвина (Invisible Dye Project Remix)
-03. Алисия - #неботропики (DJ Fisun Remix)
-04. Макс Барских - Хочу Танцевать (Invisible Dye Project Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 05:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F1618DA00EDBCDB60123BF615E5CD0456DC98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972056   (981848) от 06.01.2016
-
-VA - The Best Of Alterportal HITS (2015) [MP3|256- 320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981848.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Enter Shikari - Anaesthetist
-2. Periphery - Alpha
-3. Папа Роач - Дьявол
-4. Blue Stahli - Not Over Til We Say So (feat. Emma Anzai of Sick Puppies)(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972319   (981816) от 06.01.2016
-
-VA - Зимний Союз (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Марсель - Как Жаль
-002. Carlprit Feat. Jaicko - Only Gets Better
-003. Betty Who - Dreaming About You
-004. Owl City - My Everything(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487D4A03AA25AB476B7CE33302DBE4967F0216C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972703   (981731) от 06.01.2016
-
-(OST) Return To Castle Wolfenstein (Bill Brown) (2001) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная музыка отличной игры01. Intro Movie
-02. Return to Castle Wolfenstein Main Theme
-03. Headquarters Briefing
-04. Escaping Castle Wolfenstein(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F34A554B09ECC2C25E1F5D75D6F930F44D40440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613439   (981679) от 05.02.2013
-
-VA - Euphoric Emotions Vol.42 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981679.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex M.O.R.P.H. ft. Sylvia Tosun - An Angel's Love (Vocal Mix)
-002. Gaia - Tuvan (Original Mix)
-003. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
-004. Alex Kunnari feat. Emma Lock - You & Me
-005. Armin van Buuren - Birth Of An Angel (Original Mix)
-006. FKN feat. Jahala - Why (D-Mad Remix)
-007. Arksun - Arisen (Original Mix)
-008. Grace - Not Over Yet (Max Graham feat. Protoculture Remix)
-009. Global Illumination - Tremble (Original Mix)
-010. Fabio XB & Ronnie Play feat. Gabriel Cage - Inside of You (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 02:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12DF297E1BB2713DBB6A06ADB60A22B2C1CB4CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1369557   (902024) от 24.03.2020
+
+VA - Enemy Of Silence (2CD) (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902024.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Hrmülja - Morbid Visions
+02. The Balls - Bliss Point(   Читать дальше...   )Жанр: Hard RockПродолжительность: 08:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBB22D2799F66CD16C41D731019671AB124601C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369596   (901424) от 24.03.2020
 
 Led Zeppelin - 100% Led Zeppelin (2020) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Rammstein - Remixes (2020) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28DCB8A040E3E1B37FBC13C26546C266950CD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371773   (888349) от 01.04.2020
-
-Carlos Santana - 100% Carlos Santana (2020) [MP3|320 Kbps] <Pop, Rock, Latin>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Foo Foo
-03. Oye Como Va
-04. Samba Pa Ti(   Читать дальше...   )Жанр: Pop, Rock, LatinПродолжительность: 03:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37B9FD8BD716E1791A40D03C389A6731223FB36
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1856338   (1058928) от 27.02.2026
+
+VA - Seventies Top 100 Vol. 2 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Light Orchestra (ELO) - Don't Bring Me Down (4:06)
+02. Kiss - Sure Know Something (4:00)
+03. Sherbet - Howzat (3:45)
+04. Herman Brood & His Wild Romance - Never Be Clever (3:05)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A08927778D4868226DAA439D98F55E82EFD8B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855368   (1058774) от 26.02.2026
 
 VA - Seventies Top 100 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
@@ -108,35 +137,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21BFF90647FF8BC8AA7515A86136F0F8CB2E74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856247   (1058694) от 
-
-Филипп Киркоров - UNO (2026) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я эту жизнь тебе отдам
-2. Одинокая нежная
-3. Везувий
-4. Я без тебя задыхаюсь(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCC89BF2FDED5CD7CA64EAF6E8029424B2E7490
 ```
 
 https://mybot314.ru/tekegram_catalog/

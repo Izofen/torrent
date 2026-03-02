@@ -1,3 +1,84 @@
+###  Публикация: 1657744   (192038) от 05.09.2023
+
+Talkpython | Подборка курсов по FastAPI (2021-2022) WEB-DL [EN / EN, RU Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192038.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Full Web Apps with FastAPI (07:12:04)
+FastAPI ворвался на веб-сцену Python. Фактически, опрос разработчиков PSF 2020 года показывает, что FastAPI выходит из-под контроля и становится 3-м по популярности и наиболее быстрорастущим фреймворком для разработчиков Python. Люди, открывающие для себя FastAPI, в восторге от его набора инструментов для создания API. Но (   Читать дальше...   )Производство: TalkpythonЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 12:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68B0A20B381FA9C2F4829F104249245D83408B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658170   (191839) от 06.09.2023
+
+Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте масштабируемые и производительные fullstack приложения на сервере с использованием современных технологий, таких как AppSync, Lambda, DynamoDB и Vue.js. Научитесь строить производительные и масштабируемые полностековые приложения, создавая клон Twitter с нуля.
+Технологии serverless позволяют вам создавать масштабируемые и производительные приложения без (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 35:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE322C8065D24696055EB3F6379B96C83E47059A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657954   (191745) от 06.09.2023
+
+Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basics to Advance (Java OOP) (2022) WEBRip [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191745.jpg" />
+</div>
+
+
+###  Подробнее
+
+From this course, you can learn Object-Oriented Programming from basics to advanced concepts.
+All code examples in the course are written in Java but that's doesn't mean you can't apply the knowledge from this course in other programming languages. You can easily use the knowledge from this course in any language if you want to build applications with the help of (   Читать дальше...   )Производство: Udemy, Learn IT UniversityЖанр: Java, Patterns, GoF, SOLID, OOPЯзык озвучки: АнглийскийПродолжительность: 07:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657994   (191721) от 06.09.2023
 
 Thinknetica Pro, Анна Буянова | Старый Добрый Код: как жить с существующим кодом (2023) WEB-DL [RU]
@@ -613,89 +694,6 @@ Udemy, ASOMobile ASOTeam | Стань ASO специалистом: базовы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19A0F9417FDB65C4DD0C89C47AC186E3B539A11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662513   (187940) от 17.09.2023
-
-Web Dev Simplified | React Simplified - Beginner (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный видеокурс с продолжительностью около 11 часов, разбитый на 79 видео и 10 модулей.
-Хотя этот курс может называться "для начинающих", он не ограничивается только базовыми знаниями. В этом курсе охвачены все аспекты, необходимые для становления квалифицированным разработчиком на React, и он обеспечит вам умение мыслить как разработчик на React.
-Я знаю, (   Читать дальше...   )Производство: Web Dev SimplifiedЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 10:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E1BE5991BC827D7619773D6FC4E43FDC6C553D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662514   (187928) от 17.09.2023
-
-Web Dev Simplified | React Simplified - Advanced (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "React Simplified - Advanced" позволит вам углубить свои знания в React и перейти от уровня начинающего разработчика. В этом курсе представлены продвинутые концепции и подходы к разработке на React.
-В этом курсе будут рассмотрены не только продвинутые функции React, но, что более важно, концепции безопасности, TypeScript, тестирование и написание чистого (   Читать дальше...   )Производство: Web Dev SimplifiedЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 11:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5B82952222CBE287920E9EB1A64228D886AF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662782   (187250) от 19.09.2023
-
-Udemy, Learn IT University, Andrii Piatakha | Java from Zero to First Job, Practical Guide, 2000+ examples (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java Core, TDD, Streams, Lambdas, JPA/Hibernate, SQL, Build Tools, Git, Web Servers, HTML,Servlets, JSP, Spring Boot etc
-
-Welcome to the fundamental and the most complete course 'Java from Zero to First Job'.  As it's declared in the course name, it's created for people who want to learn programming from scratch. You need to know how to turn on your computer, no other (   Читать дальше...   )Производство: Udemy, Learn IT UniversityЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 80:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377E59B3390F47B9784A99817E4A2586E2E44424
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1458620   (1023770) от 29.03.2021
+
+Red Hot Chili Peppers - Devotion to Emotion (2021) live [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Higher Ground (live) [00:03:32]
+02 - Knock Me Down (live) [00:03:53]
+03 - Castles Made Of Sand (live) [00:03:16]
+04 - Me And My Friends  Strip My Mind (live) [00:03:07](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FCB9B214AE8913B82CADC3C842CCABA02AD493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459404   (1023322) от 01.04.2021
 
 I Am Spartacus - Trigger Happy (2021) [MP3|320 Kbps] <Punk Rock, Rock>
@@ -692,69 +721,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599945   (998675) от 09.01.2013
+###  Публикация: 601220   (998338) от 10.01.2013
 
-Subtonix - Tarantism (2002) [MP3|128-320 кб/с]<deathrock/batcave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Fire   (3:15)
-02. Dropout   (2:29)
-03. Black Nails in My Coffin   (3:02)
-04. Ashtray Girl   (3:00)
-05. My Favorite Way to Die   (3:09)
-06. Throwing Rocks in the Sewer   (3:33)
-07. In Theatres   (2:06)
-08. Berlin 1930   (2:36)
-09. X-Rated   (3:17)
-10. Vertigo  (2:50)Жанр: deathrock/batcaveПродолжительность: 00:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1E5B572580D045B22D3333EFB114087908B319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599964   (998637) от 09.01.2013
-
-Blackbird Raum - Under The Starling Host (2009) [MP3|128-320 кб/с]<folk-punk/gypsy-punk>
+Prime Circle - Evidence (2012) [MP3|320 кб/с]<Alt.Rock | Modern Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turning Away   (2:39)
-02. Catherine’s Wheel   (2:33)
-03. Lucasville   (3:20)
-04. All Turning Backs In The Meadow And Wait While Bones Are Thrown   (0:55)
-05. To The Barricades!   (2:36)
-06. William   (2:18)
-07. The Helm Of Ned Kelly   (3:25)
-08. Crumbs   (2:18)
-09. Snare   (2:36)
-10. Ensemble Suicide   (4:27)(   Читать дальше...   )Жанр: folk-punk/gypsy-punkПродолжительность: 00:34:47
+1. Intro
+2. Evidence
+3. Change
+4. Time Kills Us All
+5. Answers
+6. Know you Better
+7. King for a Day
+8. Room of Ghosts
+9. Staring at Satellites
+10. Only Way Out(   Читать дальше...   )Жанр: Alt.Rock | Modern RockПродолжительность: 00:41:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EAF1A9CA760F4584A9A127FC9BF1EE5EEAB92A4
+magnet:?xt=urn:btih:FEB1C2AAE612AC7FED1EDE68F19148809549EF0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

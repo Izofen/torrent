@@ -1,3 +1,128 @@
+###  Публикация: 1245848   (467880) от 08.09.2018
+
+MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expectations (02:49)
+02. Core (03:35)
+03. More of You (03:54)
+04. Kiss Me (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F3368225ED69453D2CC8A212BFDA20C8778275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245721   (467877) от 08.09.2018
+
+Knuckle Puck - Shapeshifter (2017) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nervous Passenger (1:32)
+ 02. Twist (3:03)
+ 03. Double Helix (2:51)
+ 04. Gone (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F39509E68185229D44F5398278C22A805DDB126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548576   (466907) от 18.09.2012
+
+VA - AUDIO'S Audiophile Vol. 09 - Cover Me (1999) [FLAC|Lossless]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelique Kidjo - Voodoo Child [03:51]
+02. Rahsaan Patterson - Street Life [05:02]
+03. Dianne Reeves - In Your Eyes [05:21]
+04. Sara K. - Oh Well [02:45]
+05. Roger Daltrey - Say It Ain't So Joe [04:18]
+06. Livingston Taylor - Baker Street [03:58]
+07. Sidsel Endresen & Bugge Wesseltoft - Fifty Ways To Leave Your Lover [04:58]
+08. Jose Feliciano - Light My Fire [03:37]
+09. Jesse Cook feat. Holly Cole - Fragile [03:57]Жанр: Pop, RockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548537   (466902) от 18.09.2012
+
+Mika - The Origin Of Love (2012) / Casablanca Records / [FLAC|Lossless]<Pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мульти-платиновый британский певец и автор песен Mika выпустил свой третий студийный альбом - Происхождение любви (The Origin of Love). Диск выпущен во Франции 17 сентября 2012 года на лейбле Casablanca Records, в Великобритании выйдет 8 октября 2012 - на Barclay Records. Альбому предшествовал альтернативный сингл соответствующего региона: Elle Me Dit впервые был  выпущен во Франции, а Celebrate в Объединенном Королевстве. (   Читать дальше...   )01. Karen (3:57)
+02. L'amour dans le mauvais temps (4:07)
+03. Un soleil mal lune (3:06)
+04. Tah Dah (5:47)
+05. Make You Happy (5:55)
+06. Celebrate (5:02)
+07. Elle me dit (3:11)
+08. Make You Happy (2:50)Жанр: Pop, rockПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548364   (466761) от 18.09.2012
 
 Tanita Tikaram - Can't Go Back (2012) Deluxe Edition 2CD [FLAC|Lossless]<Pop>
@@ -633,122 +758,6 @@ Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942755   (453760) от 01.10.2015
-
-Michael Cretu - Moon Light Flowers (1989) [FLAC|image+.cue]<Pop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. '57 (The Year I Was Born)
-2. Fire And Rain
-3. Wild River
-4. Shadows Over My Head(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9561647E3BA476AEEF28D051C7201E984A58A2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942718   (453570) от 01.10.2015
-
-VA - KuschelRock 29 (2015) [FLAC|tracks|WEB-DL]<Ballad, Pop, Rock, R&B, Voca>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You+Me - You And Me (2014) - 3:12
-02. Yusuf - I Was Raised In Babylon (2014) - 3:53
-03. Mr. Probz - Nothing Really Matters (2014) - 3:39
-04. En Vogue - Too Gone, Too Long (1997) - 4:43(   Читать дальше...   )Жанр: Ballad, Pop, Rock, Pop Rock, R&B, VocalПродолжительность: 03:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCC6B36D64D974F1076F6310E724F81EF1B23B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569370   (453342) от 12.08.2022
-
-Vanessa Mai - Metamorphose (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 747 (2:23)
-02. Süchtig (3:11)
-03. Happy End (2:18)
-04. VIBE (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023CC0A126A3C8FBEB59A6D7FF60AD0C0D41DF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826804   (453304) от 30.09.2014
-
-VA - Pure... pop (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свой 300-й релиз посвящаю всем коллегам-реставраторам. В своё свободное время они делают благородное дело - возвращают к жизни подзабытые релизы. Не получая за это ничего, кроме собственного удовлетворения. Так что, если наткнетесь на такую надписьCD1:
- 01. Shakira - Whenever, Wherever  (3:19)
-02. Ke$ha - TiK ToK  (3:21)
-03. Usher feat. Pitbull - DJ Got Us Fallin' in Love  (3:42)(   Читать дальше...   )Жанр: Pop, Rock, Pop-RockПродолжительность: 03:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEB22760632189DD3F35A0BB46683C8A23749F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

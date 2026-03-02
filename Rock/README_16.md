@@ -1,3 +1,61 @@
+###  Публикация: 1498091   (857804) от 26.09.2021
+
+Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seventeen [00:02:10]
+02. Satellite [00:04:12]
+03. Feelings (aka 'No Feelings') [00:02:54]
+04. Just Me (aka 'I Wanna Be Me') [00:03:16](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4CD, 04:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32347FD5B464744DDD992DB63B44EA3315F9ED82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001187   (855471) от 27.03.2016
+
+VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  More Than A Feeling - Boston (3:23)
+ 02.  Don't You (Forget About Me) - Simple Minds (4:18)
+ 03.  Time After Time - Cyndi Lauper (4:01)
+ 04.  Africa - Toto (4:25)(   Читать дальше...   )Жанр: Pop Rock, BalladsПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1572FBD5FF099F19A2E0566C3A1C574BD9B945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001338   (853788) от 28.03.2016
 
 VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
@@ -687,64 +745,6 @@ Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380125   (836383) от 01.05.2020
-
-The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Apples In Stereo - американская рок-группа, связанная с Elephant Six Collective. Группа в значительной степени является продуктом ведущего вокалиста/гитариста/продюсера Роберта Шнайдера, который пишет большинство музыки и текстов группы. Звучание группы сравнивают с психоделическим роком от The Beatles и The Beach Boys в 1960-е годы, а также таких групп как Electric (   Читать дальше...   )Список альбомов:
-1995 - Fun Trick Noisemaker
-1997 - Tone Soul Evolution
-1999 - Her Wallpaper Reverie(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 04:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004692   (836161) от 07.04.2016
-
-Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 кб/с] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Blue Sky
-02. Evil Woman
-03. Don't Bring Me Down
-04. Sweet Talkin' Woman(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1452151   (1027897) от 05.03.2021
+
+VA - Новички в попсе Vol 7 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAVRILINA - Ближе к звёздам (1:55)
+02. Свят - Меняли нас (2:00)
+03. Шейх Мансур - Мы сияли (2:02)
+04. Real girl - Пару минут (2:12)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9AA537BA2C49368ADCAE5B3898CF64A3326A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451878   (1027877) от 05.03.2021
+
+VA - 8 марта: Золотые хиты (2021) [MP3|~245 Kbps (V0)] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жирный Атеист - 8-е марта (4:44)
+02. Mad Show Boys - Ну, погоди! (3:16)
+03. Marina - Кино (3:43)
+04. Na-Na - Зинаида (4:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E35BE00A19C2947777693126867C46472DC541D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451924   (1027863) от 05.03.2021
+
+VA - CarMusic for man (2021) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soda - Pullin Up (1:55)
+02. Giorgio Gee - Car Party (2:06)
+03. Darrell Story - Bella Ciao (2:07)
+04. MNEX - Sad (2:12)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 04:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0570F25DBD38AA115F0C53F0A89F35EDC67D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452427   (1027761) от 06.03.2021
+
+VA - The Deep Rotate (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный сборник электронной музыки в стиле Dеер Hоusе, который оставит в душе только приятные впечатления. Многим, кто плохо знаком с подобной музыкой, будет интересно узнать чуть более, а сведущим меломанам - еще раз получить удовольствие от любимых артистов и треков этого сборника.001. Forteba - Airspot
+002. Simon Kidzoo - Weird Chant
+003. The Wind Talkers - Spirit World
+004. Meines - Ajuti (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 15:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA8BFE27FE2F6B98A4598CF6A3E87A4771A4DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452419   (1027721) от 06.03.2021
+
+VA - Lazy Jazz Cat vol 1 (2021) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duponte et Duponte - Chimes (2:43)
+02. Norberg - Abisko (2:48)
+03. The Midnight Quartet - Serenity (2:51)
+04. Ryan Turtle Trio - I Loves You, Porgy (2:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 06:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FEE6D5A37CE7E68DB9CA7E88AFF6AB7B6E58EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452415   (1027717) от 06.03.2021
+
+VA - Music News vol.78 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lidia Buble - Intens (03:19)
+ 02. Alex Parker feat. Bastien - I Need You (Fullpoy Remix) (02:18)
+ 03. Alle Farben & Fools Garden - Lemon Tree (Alle Farben & FRDY VIP Mix) (03:09)
+ 04. Alvaro Soler - Magia (03:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83BB7B6CF34512DBFC8162698E31C3D77D538B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452432   (1027715) от 06.03.2021
+
+VA - Music News vol.79 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NK - Девочки Рулят (02:32)
+ 02. Andre TAY - Потанцуй Со Мной (04:37)
+ 03. Ben & Tan - Iron Heart (02:59)
+ 04. Bruno Mars & Anderson .Paak feat. Silk Sonic - Leave The Door Open (04:02)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BF36141F5420A9D0F4AC9DC3C04C7A97F6B4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452650   (1027598) от 07.03.2021
 
 VA - March Urban Trance Party (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -539,209 +742,6 @@ VA - German Top 100 Single Charts 12.03.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF239CCE235BEF43A995FBF4BF89555E8BEFBCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454109   (1026604) от 13.03.2021
-
-VA - Music News vol.81 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estradarada feat. Danny Wheels - Ради Тебя (04:02)
- 02. Adam Maniac - Vitamins (02:40)
- 03. Au5 feat. HALIENE - Was It You (04:46)
- 04. Banchi - Не Держи (02:29)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CCF2FF9587F48D4FD73C169260B743D7D24257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454358   (1026401) от 14.03.2021
-
-VA - Record Super Chart 13.03.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - The Business (2:44)
-02. Phao KAIZ Remix - 2 Phut hon (3:03)
-03. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-04. Meduza, Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFCDEEC0277F6E0B64DB3A6408E5058A3132C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454328   (1026378) от 14.03.2021
-
-VA - Fresh Pop (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JESSIA - I'm not Pretty (1:58)
-002. Ariana Grande - test drive (2:02)
-003. Jason Derulo, Adam Levine, Maroon 5 - Lifestyle (2:36)
-004. Bilal Wahib, Ronnie Flex - 501 (2:07)(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7A00CB6C0A398EF1D730D02268A7CDA5D1D8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454202   (1026311) от 14.03.2021
-
-VA - Зайцев.нет Лучшие новинки Марта (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AYDZHI - Девочка с картинки (2:00)
-02. NLO, T-killah - Похолодало (2:21)
-03. Alx Beats - Frozen Tears (2:24)
-04. Клава Кока - Сладкие мальчики (2:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF525BE07D9A9EA2B9BE44EA0DC945B3282D313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454481   (1026270) от 15.03.2021
-
-VA - Weekend Picks: Tech House Electro Party (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы любитель клубных тусовок и новинок клубной музыки, то сборник "Weekend Picks" - именно для Вас. Новинки, собранные в этом сборнике, подарят вам заряд энергии, бодрости и перенесут на танцполы мировых клубов!001. Mattia Trani - Collapsar
-002. Matasism - Body Resistance
-003. Zephyr - Skulls (Industrial Mix)
-004. Sera J - Pads (Original Mix)(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 12:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5144B655B1D8CB9AEDA00CA3BA8C542CC0EFC9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454482   (1026259) от 15.03.2021
-
-VA - The Wings Ascending (2021) [MP3|320 Kbps] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые мелодичные композиции, с гармоничным саундом в сборнике "The Wings Ascending", которые покоряют не только популярные FM радиостанции, но и многие топы и чарты отечественных и западных изданий и магазинов.001. Gayax - Neptune
-002. Enea Marchesini - Feel The Power
-003. Bogdan Vix - Stardust
-004. Tasadi & Noah Stewart - The Calling(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 11:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66FBF62588133F19E9EB918EBCD6AD9FA656586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454598   (1026258) от 15.03.2021
-
-VA - Beatport Electro House: Sound Pack #255 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это именно та музыка, которую стоит добавить в свой плейлист и слушать с начала до самого конца. Все композиции 255-го релиза от Beatport вызывают позитивные эмоции уже на первых минутах трека, припевы быстро запоминаются, а для заядлых тусовщиков это станет настоящей находкой, что позволит организовать яркий вечер уже сегодня.001. J. Night - Hyperborea
-002. Christian Prommer - Future Lights
-003. Gai Barone - Two Ghosts
-004. Roy Rosenfeld - Otro(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0260CDF2396760A1768B54B86E1A88863D3323
 ```
 
 https://mybot314.ru/tekegram_catalog/

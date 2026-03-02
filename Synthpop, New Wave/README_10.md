@@ -1,3 +1,32 @@
+###  Публикация: 1266733   (268384) от 04.12.2018
+
+W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinity (3:22)
+02. Tears (3:12)
+03. Can't Stop Falling in Love (3:14)
+04. Faster (2:48)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0DCA5696C4EDD6D8B50E49FBF344717B554F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267117   (267809) от 05.12.2018
 
 HOME - Odyssey (2014) [MP3|320 Kbps] <Synthpop, Synthwave>
@@ -716,35 +745,6 @@ Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B295C1A246C6C965625BEC822A17AF8C9FAEDF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269279   (221553) от 14.12.2018
-
-Experimental Products - Prototype (1982) LP [MP3|320 Kbps] <Electronic, Minimal, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Living (5:41)
-02. Sweet Rejection (5:04)
-03. New Project (3:43)
-04. Feeling Left Out (5:56)(   Читать дальше...   )Жанр: Electronic, Minimal, Synth-popПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2890F54AA41D8C8CE0EC609652BD1F135E0516
 ```
 
 https://mybot314.ru/tekegram_catalog/

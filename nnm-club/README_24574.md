@@ -1,83 +1,25 @@
-###  Публикация: 1803622   (65814) от 24.06.2025
+###  Публикация: 1801897   (66119) от 14.06.2025
 
-Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65814.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bloodshed
-A2 Cannibal Holocaust
-A3 Fallen
-B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803620   (65813) от 24.06.2025
-
-Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
-2019 - Me, Us And Them
-2021 - Echoes of Winter
-2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803614   (65812) от 24.06.2025
-
-Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65812.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bamboleate [3:25]
-02. We've Loved Before [2:30]
-03. Resemblance [5:40]
-04. Mi Montuno [5:23](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:33:21
+01. Time on My Hands [2:42]
+02. Imagination [2:52]
+03. When Did You Leave Heaven [3:19]
+04. Everybody Needs Somebody [2:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C67FEDB530F172DA825286D646F72D6E92706C8
+magnet:?xt=urn:btih:2D0F557E2958243572EF762C7512F5C06DAA3C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803677   (65811) от 24.06.2025
+###  Публикация: 1801993   (66118) от 14.06.2025
 
-Зонтик / Paraplyen (1916) WEBRip [H.264/1080p]
+Crosson - Guilty Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65811.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комедия ошибок. Господина Хольм, производителя и продавца зонтов, преследует имя «Бек», которое внезапно появляется повсюду в его доме. Холм убежден, что Бек — известный театральный актер — ухаживает за его женой. На самом деле, он почти прав, но только почти. Актер Бек увлечен работницей магазина зонтов Хольма. Но путаница на этом не заканчивается: служанка Хольма (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Лау ЛауритценАктеры: Фредерик Бух, Герда Христоферсен, Филиппа Фредериксен, Стелла Линд, Лауриц Олсен, Карл Шенстром, Оскар СтриболтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскийПродолжительность: 00:14:16
+01.  Nobody Wins (4:10)
+02.  No Solution (4:54)
+03.  Bound For Glory (5:00)
+04.  Guilty Of Rock (5:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCB50913836330B20DF475A4841F53491AE4A8D5
+magnet:?xt=urn:btih:F51C59A2D2215CE02C390C2E1AF9AD4D3944187C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +56,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803562   (65810) от 24.06.2025
+###  Публикация: 1801918   (66117) от 14.06.2025
 
-John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps] <House, Tech House, Techno>
+Lonestar - Lonely Grill (1999) [FLAC|Lossless|tracks + .cue] <Country Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Night    [0:04:03.52]
+02. Simple as That    [0:03:17.70]
+03. Amazed    [0:04:00.68]
+04. What About Now    [0:03:29.60](   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20589EB4AE9F31D2595FD2C12A9F6C5AF3692151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802061   (66116) от 14.06.2025
+
+Дева Жанна / Joan the Woman (1916) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует очень большое число фильмов о жизни и смерти Жанны Д'Арк. Уж больно история располагает для кинематографа. Вот и здесь представлен один из первых, но не самый первый, такой фильм. История представляется своеобразно. Не напрямую. Джон Трент, британский офицер Первой мировой войны, находит древний меч в своей траншее,  как раз перед тем, как пойти добровольцем (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, приключения, военный, история, немое киноРежиссер: Сесил Б. ДеМилльАктеры: Джеральдин Фаррар, Реймонд Хаттон, Хобарт Босворт, Теодор Робертс, Уоллес Рид, Чарльз Клэри, Джеймс Нилл, Талли Маршалл, Лоуренс Пейтон, Хорас Б. КарпентерПеревод: немой с интертитрами (meinnameist)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 02:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58248C277FF78932AC5D266CD0C22A3E4A0B3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802035   (66115) от 14.06.2025
+
+slo/tide - The Blur (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236FEBA6DEA84D519DB30B8225ED0AA50BE58A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802055   (66114) от 14.06.2025
+
+VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65810.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Roddy Lima - Night Time
-02.  Shakedown - At Night (Anyma & Layton Giordani Remix)
-03.  SIDEPIECE - ELECTRIC BONGOS
-04.  Cassian - S.O.S(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 08:24:25
+01. Kvaii – Stars Twinkle (Intro Mix)
+02. Dinka & Erik Iker – Orion’s Belt (Orchestral Uplifting Classic)
+03. MaRLo & HALIENE – Whisper (Ferry Tayle Remix)
+04. AYDA – Beyond Time (Pre-release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
+magnet:?xt=urn:btih:ED9028E6E5D8B86DDEC162B2ACA20B1F58057EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +169,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803588   (65809) от 24.06.2025
+###  Публикация: 1802054   (66113) от 14.06.2025
 
-DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rap, Hip Hop, G-Funk>
+Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65809.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Breakin' Bread    [0:04:58.27]
-02. What You Know    [0:03:52.22]
-03. Infatuation    [0:04:34.09]
-04. Infatuation    [0:03:02.50](   Читать дальше...   )Жанр: Rap, Hip Hop, G-FunkПродолжительность: 01:11:11
+01 Lift (Original Mix) 8:25
+02 Lift (Sean Tyas Rework) 8:25
+03 Lift (Bryan Kearney Edit) 8:25Жанр: TranceПродолжительность: 00:25:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A50754FC3AF4AE88EC2DBC5436B468FA9D0AD88
+magnet:?xt=urn:btih:06FE79DAD38C5D2CFC53E728DD77EE803D248099
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,57 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803679   (65808) от 24.06.2025
+###  Публикация: 1802034   (66112) от 14.06.2025
 
-Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Imagination In Jazz (Key A Ver.) (2:33)
-02.  Sustained Endeavor Whispers (Key Eb Ver.) (3:00)
-03.  Deep inside the Head (Key Ab Ver.) (2:33)
-04.  Ideas Blossom Softly (Key C Ver.) (2:34)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731C978E9097FEA87BD7CAA828BD79BB5B644515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803415   (65807) от 24.06.2025
-
-Олег Чубыкин - Вечная любовь (2025) [MP3|320 Kbps] <Pop>
+slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
 
 >>Pop
->>Отечественная поп-музыка
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65807.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Вечная любовь [00:04:28]
-02. Я молюсь за тебя (Album version) [00:03:45]
-03. Любовь вернётся в мир [00:04:09]
-04. Сочи, встречай! [00:03:48](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:47
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1349326BD2E75EE7B62C236B0572C2CE7EA46DAA
+magnet:?xt=urn:btih:B0089E996EFECE66D25A679E0B94F567ACFD8808
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +226,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803590   (65806) от 24.06.2025
+###  Публикация: 1801933   (66111) от 14.06.2025
 
-Tom Talbert Orchestra - This Is Living! (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
+Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro Pop, Mashup, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H. & Jordan Suckley & Andyg vs. Dubvision & Martin Garrix vs. Sharam & Adam Beyer - Ambush Won't Let Go Patt (Johnny de City Intro Mashup)
+02. Tocadisco & Lucas & Steve vs. Lola Young vs. David Guetta & Morten - Morumbi Messy Kill Me Slow (Johnny de City Mashup)
+03. Galoski & Yaksa vs. Tiga vs. Audion vs. Age Of Love (   Читать дальше...   )Жанр: Dance, Electro Pop, Mashup, Hard DanceПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B78D249CE4DFAE394C925A114CC04FC80F0F2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802079   (66110) от 14.06.2025
+
+Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Doom, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows [00:05:18]
+02. Under Blessed Skies [00:05:23]
+03. Where Silence Dwells [00:04:56]
+04. The Pale Light of Fireflies [00:06:57](   Читать дальше...   )Жанр: Melodic-Doom, AcousticПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBE4DD1ADD4CB3DAE9D66B27AA16340172F67BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801960   (66109) от 14.06.2025
+
+The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65806.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Brio Trio    [0:05:02.64]
-02. Love Is A Pleasure    [0:04:52.04]
-03. Of Thee I Sing    [0:04:48.73]
-04. Django    [0:07:34.65](   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:57:43
+01. Moonlight Serenade [4:06]
+02. I'll Be Seeing You [4:40]
+03. Over the Rainbow [4:45]
+04. Moon River [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:28:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:532A1BD75213ED872ED54A7220BD8DCDB7F4AE4A
+magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,26 +312,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803751   (65805) от 25.06.2025
+###  Публикация: 1802192   (66108) от 15.06.2025
 
-Журнал | Дилетант №7 (115) (июль 2025) [PDF]
+Чудо техники с Сергеем Малозёмовым (15.06.2025) WEBRip [H.264/720p]
 
->>Журналы
->>Другие журналы
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65805.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
-В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналИздательство: ООО "Образование 21 век"Формат: PDFКачество: Обработанный скан
+Самые необычные устройства для мониторинга здоровья — кольца, клипсы и очки для фитнеса: насколько точно эти гаджеты следят за пульсом?
+ Одна из крупнейших мировых технологических компаний из США представила и обещает начать поставлять уже в этом году систему 3D-видеоконференций.
+ Питомцы исцеляют: ученые из Австралии выяснили, что контакт с домашними животными помогает (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1246E5D80525B9E0EEDBAB913323DC3094DA93A5
+magnet:?xt=urn:btih:833184EF83340279215B7CAD16809B129E4D2C13
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,25 +340,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803749   (65804) от 25.06.2025
+###  Публикация: 1802281   (66107) от 15.06.2025
 
-Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex Imperialis]
+Живая еда с Сергеем Малозёмовым (14.06.2025) WEBRip [H.264/720p]
 
->>Win Игры
->>RPG
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65804.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. В её сеттинге гримдарк смешивается с научной фантастикой. Данный продукт предлагает путешествовать по космосу на огромном корабле, посещать разные места, болтать с колоритными неписями, прокачиваться, выполнять квесты, участвовать в битвах. Все (   Читать дальше...   )Тип издания: RepackРазработчик: Owlcat GamesЖанр: Role-Playing, Turn-Based, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+Ватрушки, а также калитки и шанежки — сходства и отличия региональных вариаций круглой выпечки с начинкой! С икрой, груздями, съедобным золотом, картошкой, сметаной и ягодами — какой рецепт самый-самый? Откуда взялось слово «ватрушка»? Какого качества начинка в ватрушках из магазина, кондитерской и школьной столовой? Где не доложили творога почти наполовину и в каких (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
+magnet:?xt=urn:btih:EB1D639B2D79EF8B9A3BE4C6DDFD1B8EC7DD43CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,25 +366,220 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803793   (65803) от 25.06.2025
+###  Публикация: 1802268   (66106) от 15.06.2025
 
-Агония (1981) DVDRip (серии 1-2 из 2) [Полная реставрация]
+VA - La Noche Blanca En Ibiza, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Music Of The Earth - Golden Ride (Worldtraveller Dub Mix) (03:26)
+ 02.  Aquadrop; Vanelitne - Plus (03:03)
+ 03.  Five Seasons - One In A Million (05:50)
+ 04.  Alejandro Fernandez Lecce; Andrea Miller - Serandipitous (03:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A06A5238F69FB89C5F5E4E7969E75269E255547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802146   (66105) от 15.06.2025
+
+Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66105.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD6879355900328F545240D5BB62A58F03502B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802140   (66104) от 15.06.2025
+
+Карантин (1983) DVDRemux
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в детском саду объявили карантин, оказалось, что пятилетнюю Машу не у кого оставить, все заняты неотложными делами. Даже прабабушка и прадедушка тоже работают. Поэтому Маша будет жить у родственников, друзей, коллег и случайных знакомых, а заодно, быть может, узнает много полезного, интересного и увлекательного.Производство: СССР, Киностудия им. М. ГорькогоЖанр: Комедия, Семейный, ДетскийРежиссер: Илья ФрэзАктеры: Айлика Кремер, Евгения Симонова, Юрий Дуванов, Светлана Немоляева, Юрий Богатырев, Татьяна Пельтцер, Павел Кадочников, Лидия Федосеева-Шукшина, Елена Соловей, Нина АрхиповаСубтитры: ОтсутствуютПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA46B17F16C0FD492578E1B084BB8355B30A4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802113   (66103) от 15.06.2025
+
+Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Catalogue) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bass/Guitar Doodle (Live at Tingley Coliseum, Albuquerque, New Mexico / 8th January 1997) [2:37]
+02 - Nothing Else Matters (Live at Estadio do Restelo, Lisbon, Portugal / 20th September 1996) [6:04]
+03 - Until It Sleeps (Live at Thomas & Mack Center, Las Vegas, NV / 10th January 1997) [4:21]
+04 - For Whom the Bell Tolls (Live at Prins Van Oranjehal, Utrecht, (   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 20:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A7307C22F2516E5E67BCA5705D3B74D4E69E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802191   (66102) от 15.06.2025
+
+Карантин (1983) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в детском саду объявили карантин, оказалось, что пятилетнюю Машу не у кого оставить, все заняты неотложными делами. Даже прабабушка и прадедушка тоже работают. Поэтому Маша будет жить у родственников, друзей, коллег и случайных знакомых, а заодно, быть может, узнает много полезного, интересного и увлекательного.Производство: СССР, Киностудия им. М. ГорькогоЖанр: Комедия, Семейный, ДетскийРежиссер: Илья ФрэзАктеры: Айлика Кремер, Евгения Симонова, Юрий Дуванов, Светлана Немоляева, Юрий Богатырев, Татьяна Пельтцер, Павел Кадочников, Лидия Федосеева-Шукшина, Елена Соловей, Нина АрхиповаСубтитры: ОтсутствуютПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79819358B24D625FC98B5AE2EDFBEFB087548E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802112   (66101) от 15.06.2025
+
+Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bass/Guitar Doodle (Live at Tingley Coliseum, Albuquerque, New Mexico / 8th January 1997) [2:37]
+02 - Nothing Else Matters (Live at Estadio do Restelo, Lisbon, Portugal / 20th September 1996) [6:04]
+03 - Until It Sleeps (Live at Thomas & Mack Center, Las Vegas, NV / 10th January 1997) [4:21]
+04 - For Whom the Bell Tolls (Live at Prins Van Oranjehal, Utrecht, (   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 20:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C345B075B8D9C425A5E5321C370748F3938EE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802278   (66100) от 15.06.2025
+
+Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66100.jpg" />
+</div>
+
+
+###  Подробнее
+
+История происходит в двух реальностях: человеческом мире (Сибуя, Токио) и мире монстров. В этих двух мирах, которые не должны пересекаться, живут одинокий мальчик и одинокий монстр. Однажды случается так, что мальчик попадает в мир монстров, становится учеником монстра по имени Медвежут и принимает новое имя Девята.Производство: Studio ChizuЖанр: приключения, фэнтезиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7961CA68F1AFFDD492F593FB27761B8630F9922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802243   (66099) от 15.06.2025
+
+Снегурочка (1914) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65803.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1916 год. Россия в критическом положении, на престоле безвольный Николай II. Придворные предчувствовали крах самодержавия. «И вот во дворец вошел и, глумясь и издеваясь, стал шельмовать над Россией неграмотный мужик с сумасшедшими глазами»: - так писал Алексей Толстой о «святом старце» Распутине, который приобрел неограниченную власть над царем, а впоследствии стал (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, биография, историяРежиссер: Элем КлимовАктеры: Алексей Петренко, Анатолий Ромашин, Велта Лине, Алиса Фрейндлих, Александр Романцов, Юрий Катин-Ярцев, Леонид Броневой, Павел Панков, Михаил Светин, Нелли ПшеннаяСубтитры: ОтсутствуютПродолжительность: 01:13:00 + 01:09:17
+Экранизация одноименной пьесы Александра Островского. Снегурочка - дочь Деда Мороза и красавицы Весны. Ее ледяное сердце еще никогда не ведало простых человеческих радостей, никогда не знало любви. И ее попытка жить среди людей как обычная девушка закончилась печально.
+Данная фильмокопия была приобретена в Госфильмофонде энтузиастами из известного интернет сообщества (   Читать дальше...   )Производство: Российская империя / Торговый дом А. Ханжонковъ и К°Жанр: корткометражный, сказка, экранизация, немое киноРежиссер: Владислав СтаревичАктеры: Дора Читорина, Андрей Громов, Арсений Бибиков, Прасковья Максимова, Иван Потёмкин, Александр Херувимов, Софья Гославская, Антонина ФехнерСубтитры: русские (интертитры)Продолжительность: 00:27:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BDCD6C1AE47D23A0A37C655ED926839E7F73493
+magnet:?xt=urn:btih:C1F128BCEA26E1F668850C77B122CFBEDB50B72A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,25 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803658   (65802) от 25.06.2025
+###  Публикация: 1802083   (66098) от 15.06.2025
 
-Очередное достижение: 1000 релизов от kulemin
+Gekijouban Violet Evergarden | Вайолет Эвергарден | Violet Evergarden the Movie | Виолетта Эвергарден [2020, Movie] Blu-ray 1080p raw+rus
 
->>3
->>След.
+>>Аниме разное
+>>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65802.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередное  достижение: 1000 релизов от kuleminУважаемые одноклубники!Дорогие друзья! Мы отмечаем первое, и очень важное достижение Пользователя. Накануне наш Одноклубник, релизёр литературы (в основном презентации аудиокниг) создал 1000-ю раздачу. Преодолев этот рубеж - он не останавливается, и начинает вторую тысячу. Это довольно весомый вклад в развитие трекера (   Читать дальше...   )
+Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: Kyoto AnimationЖанр: приключенияРежиссер: Исидатэ ТайтиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 140 мин.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5F1A243FE4C972AED39D1D2A1D72AC7DC41E535A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,25 +613,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803845   (65801) от 25.06.2025
+###  Публикация: 1802115   (66097) от 15.06.2025
 
-MobiOffice: Word, Sheets, PDF Premium v15.5.56413 Extra Mod by Balatan [Ru/Multi]
+Там, где плачут оливковые деревья / Where Olive Trees Weep (2024) WEB-DLRip [H.264] [DVO]
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65801.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MobiOffice - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи MobiOffice Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать собственный текстовый документ (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 25.06.2025Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+Фильм следует за жизнями нескольких семей в оккупированном Палестинском секторе, где израильская оккупация и постоянное насилие разрушают жизни мирных граждан. Центральная история разворачивается вокруг молодой палестинской двевушке по имени Хадиджа, чьему семейству принадлежит оливковая роща — символ связи поколений с землёй и источник их выживания. Когда деревья (   Читать дальше...   )Производство: США / Science and NondualityЖанр: документальный, политика, войнаРежиссер: Маурицио Бенаццо, Зая БенаццоУчастники: Ашира Дарвиш, Амира Хэсс, Габор МатеПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские, испанские, французские, немецкие, итальянскиеПродолжительность: 01:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDF92C17D856DD727952DC707B81B7CF7BAA027C
+magnet:?xt=urn:btih:CE0FB2063BE7FC9F1F4B973B322992AA75792856
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,25 +639,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803705   (65800) от 25.06.2025
+###  Публикация: 1802118   (66096) от 15.06.2025
 
-Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
+Ирина Галкина | Великобритания изнутри (2024) [MP3, Джулия Киви]
 
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное дополнение для популярной космической стратегии Warhammer 40,000: Dawn of War. Вместе с дополнением вам откроются две новые расы: Сестры Битвы и Темные Эльдары, а общее количество доступных армий увеличиться до девяти. Теперь вы сможете полностью окунуться в увлекательные сражения межпланетного масштаба (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Стратегии в реальном времениЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+Великобритания – страна туманов, богатой истории, а также великих писателей, драматургов и поэтов. Гамлет, Шерлок Холмс, Гарри Поттер, Алиса в Стране чудес, Эркюль Пуаро, Джеймс Бонд – все эти и многие другие герои вышли из-под пера британских авторов. Несмотря на небольшую территорию, она является одной из самых влиятельных стран в мире. Какие же на самом деле «эти (   Читать дальше...   )Жанр: ПублицистикаИздательство: БОМБОРАПродолжительность: 05:34:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
+magnet:?xt=urn:btih:E83A772DEA9B32E65438611ABB6129AE9C6676E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,25 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803277   (65799) от 25.06.2025
+###  Публикация: 1802275   (66095) от 15.06.2025
 
-Карем: Повар королей / Careme (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) HDrezka, WStudio, WinMedia, LE-Production
+V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Pop Jazz>
 
->>Зарубежные сериалы
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65799.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит в Европе времен Наполеона. Парижский сирота Мари-Антуан Карем обладает исключительными кулинарными талантами. Он мечтает изменить мир гастрономии и стать великим шеф-поваром. Но на пути к этой цели ему приходится сталкиваться не только с кулинарными вызовами. Его талант привлекает внимание влиятельных политиков, включая министра иностранных дел (   Читать дальше...   )Производство: США, Франция / Shine Fiction, VVZ ProductionsЖанр: триллер, драма, мелодрама, комедия, приключения, биография, историяРежиссер: Лайла Марракчи, Мартен Бурбулон, Матиас БукарАктеры: Лина Кудри, Бенжамен Вуазен, Жереми Ренье, Эрик Гейнес, Паулина Сагета, Йонас Башан, Аксель Бай, Джеффри Карлассар, Лолита Шамма, Жюльет АрманеПеревод: Многоголосый (HDrezka, WStudio, WinMedia, LE-Production)Язык озвучки: Русский, Французский, АнглийскийСубтитры: Русские, английские (Forced, Full, SDH)Продолжительность: ~00:45:00 серия
+01. 48th St. Collective - Beautiful Things
+02. Amazonics - Heart of Glass
+03. Sarah Menescal - Vogue
+04. Nenei - L'AMOUR DE MA VIE(   Читать дальше...   )Жанр: Bossa Nova, Pop JazzПродолжительность: 01:20:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6B789C9B296E7C41CF9F243C6D3049AE7D5B834
+magnet:?xt=urn:btih:2CE81F5A7F85D0F73126D1FB2C078CF3CE44877F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,263 +694,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803768   (65798) от 25.06.2025
+###  Публикация: 1802111   (66094) от 15.06.2025
 
-Tesla Effect: A Tex Murphy Adventure (2014) [Multi] (1.0) License GOG
+КВН-2025. Высшая лига. Третья 1/4 финала (2025) WEBRip [H.264/720p]
 
->>Win Игры
->>Adventure/Quest
+>>Юмор (ТВ)
+>>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65798.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tesla Effect: A Tex Murphy Adventure рассказывает о приключениях известного детектива Текса Мёрфи в антиутопическом будущем Сан-Франциско. Игра создана совмещением двух технологий – реальных съёмок актёров на «зелёном фоне» и 3D графики для построения окружающего мира. Это последняя часть серии приключенческих игр про детектива Текса Мёрфи, деньги на которую собирали (   Читать дальше...   )Тип издания: LicenseРазработчик: Big Finish GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+Третья 1/4 финала, сезона 2025 года Высшей лиги КВН.
+Играют команды: «Оборович» (Москва), «Негоден», СПбГЭТУ «ЛЭТИ» (Санкт-Петербург), «Не Кипишуй область Абай» (Семей, Казахстан), «Атомная сборная» (Сосновый бор)
+Конкурсы:  «Приветствие», «Разминка», «СТЭМ», «Музыкальный номер».Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:366EE537612133B8B1BAE1488817DF79F669E555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803860   (65797) от 25.06.2025
-
-Лови момент / Carpe Diem (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65797.jpg" />
-</div>
-
-
-###  Подробнее
-
-В свои 48 Том Вильнев, наконец-то, свободен. Обвиненный по ошибке в убийстве жены, он провел 17 лет в тюрьме. Не теряя времени даром, он учится на юриста и после освобождения становится адвокатом. Вернувшись в родную Ниццу, он полон решимости найти настоящего убийцу. Том открывает собственную практику в качестве "молодого" адвоката и защищает тех, кого, (   Читать дальше...   )Производство: Франция / BE-FILMS, TF1Жанр: боевикРежиссер: Пьер Изоар, Жюльен ГерифАктеры: Самюэль Ле Бьян, Барбара Шульц, Жиска Калванда, Оливия Готанегри, John Guedj, Сесиль Риттвегер, Лор Риво-Пирс, Maya Rose Binard, Марк Андреони, Анри Гий и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8985AAAD3E01B54E27B0B3D039A275CE324D8E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803857   (65796) от 25.06.2025
-
-Questron II (1988) [En] (1.2) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение классической игры Questron от SSI для Apple II и духовный родственник Legacy of the Ancients от EA, Questron II продолжает историю спустя годы после окончания предыдущей игры. На этот раз Mesron the Great Wizard отправляет вас в путешествие в прошлое, чтобы помешать Безумным Колдунам создать Книгу Злой Магии. Отличный сюжет, головоломки и множество приятных (   Читать дальше...   )Тип издания: LicenseРазработчик: SSIЖанр: Ролевые игры, ФентезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803747   (65795) от 25.06.2025
-
-Star Trek: Judgment Rites (1993) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Trek: Judgment Rites, продолжение игры Star Trek: 25th Anniversary, состоит из восьми новых захватывающих эпизодов, действие которых происходит после окончания пятилетней миссии. Вы - капитан Джеймс Т. Кирк, и вместе со своей командой вы посетите загадочные миры и встретите странных противников в обстоятельствах, неподвластных логике. Неужели это древний триплан (   Читать дальше...   )Тип издания: LicenseРазработчик: Interplay Entertainment Corp.Жанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCB36DFC2A225E59EF0F440CA767C41184C9241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803706   (65794) от 25.06.2025
-
-Без вести пропавшие / Missing in Action (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много времени прошло с момента войны во Вьетнаме, но одна из самых болезненных проблем американского общества сохраняется: две с половиной тысячи американских солдат числятся пропавшими без вести, семьи и близкие ничего не знают о судьбе этих солдат и офицеров.
-Ползут слухи, что некоторые военнопленные до сих пор находятся в лагерях на территории Вьетнама и содержатся (   Читать дальше...   )Производство: США / Cannon Group, Golan / Globus ProductionЖанр: боевик, триллер, драма, приключения, военныйРежиссер: Джозеф ЗитоАктеры: Чак Норрис, Дэвид Тресс, Ленор Касдорф, Джеймс Хонг, Эрни Ортега, Пьеррино Маскарино, Эрик Андерсон, Джо Карберри, Ави Клайнбергер и др.Перевод: Многоголосый, авторский (Горчаков, Живов, дама)Язык озвучки: Русский, английскийСубтитры: Английские (PGS), испанские (PGS), французские (PGS), немецкие (PGS)Продолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6766BDBF92F73317C9C0C44563B2D3B4F820EB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800685   (65793) от 25.06.2025
-
-Гибель сенсации / Робот Джима Рипля (1935) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам повести Владимира Владко «Идут роботы» («Ідуть роботарі»)... Учёный-идеалист Джим Рипль создаёт роботов для облегчения труда рабочих. Роботы оказываются очень эффективны, и капиталисты хотят полностью заменить ими рабочих на фабриках. Начинаются забастовки. Для усмирения рабочих капиталисты делают из роботов бесстрастных карателей. Изобретатель пытается (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: фантастика, драмаРежиссер: Александр АндриевскийАктеры: Николай Рыбников (II), Сергей Мартинсон, Владимир Гардин, Сергей Минин, Сергей Вечеслов, Анна Чекулаева, Владимир Орлов, Александра ХохловаЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 01:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85152872CBCDD1F97248B779BBD50BFECD000849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803861   (65792) от 25.06.2025
-
-Лови момент / Carpe Diem (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65792.jpg" />
-</div>
-
-
-###  Подробнее
-
-В свои 48 Том Вильнев, наконец-то, свободен. Обвиненный по ошибке в убийстве жены, он провел 17 лет в тюрьме. Не теряя времени даром, он учится на юриста и после освобождения становится адвокатом. Вернувшись в родную Ниццу, он полон решимости найти настоящего убийцу. Том открывает собственную практику в качестве "молодого" адвоката и защищает тех, кого, (   Читать дальше...   )Производство: Франция / BE-FILMS, TF1Жанр: боевикРежиссер: Пьер Изоар, Жюльен ГерифАктеры: Самюэль Ле Бьян, Барбара Шульц, Жиска Калванда, Оливия Готанегри, John Guedj, Сесиль Риттвегер, Лор Риво-Пирс, Maya Rose Binard, Марк Андреони, Анри Гий и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13990957FF1B288B56303CE7E988E88286BE388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803756   (65791) от 25.06.2025
-
-Google Chrome 138.0.7204.50 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6F48902EA7507C4059EC3A5B935CE63A581280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803714   (65790) от 25.06.2025
-
-Золушка (1979) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65790.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном королевстве жила красивая и очень добрая девушка, которую называли Золушкой. Её мачеха относилась к ней как к служанке и заставляла выполнять самую грязную и тяжёлую работу. Однажды мачеха с двумя своими дочерьми отправилась на бал во дворец, а падчерице приказала остаться дома. И всё же Золушка попала во дворец и встретилась с принцем, который влюбился в (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Иван АксенчукАктеры: Игорь Иванов, Людмила Шапошникова, Эльвира Бруновская, Всеволод Ларионов, Татьяна ШабельниковаСубтитры: отсутствуютПродолжительность: 00:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6FC9CE1E7176BE38FEA772AE6230F2D525B525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803818   (65789) от 25.06.2025
-
-Шаблон администратора - UI8 - MainStream - Live Streaming Game Premium UI KIts App [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65789.jpg" />
-</div>
-
-
-###  Подробнее
-
-MainStream - наборы пользовательского интерфейса с минималистичным дизайном для мобильной потоковой игры с более чем 50 экранами.
-
-Оснащен группировкой и наименованием для каждой группы, чтобы вам было легче ее редактировать и иметь легкую тему.
-(   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BCF5FE46743C0E5D812D79D9B7FC0A41CEDC4
+magnet:?xt=urn:btih:820BE5FB1E1D051970BC7EA31DEDECB38124BA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

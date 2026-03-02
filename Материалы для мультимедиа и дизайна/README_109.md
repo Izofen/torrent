@@ -1,3 +1,29 @@
+###  Публикация: 1212071   (775653) от 12.03.2018
+
+Пресеты - VideoHive - CINEPUNCH Video Creator Bundle v6.0 - 20601772 [FFX, CUBE, 3DL, LOOK, AEP, WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромная библиотека дизайна движения инструментов для всех ваших потребностей в редактировании видео. UPDATE v6.0 добавляет BRAND NEW SUITE-CINEDUST PACK - CINECLOUD - ANAMORPHIC CREAMS R3D. CinePunch был создан, чтобы дать цифровым художникам множество инструментов и средств управления, чтобы улучшить окончательный вид проекта. Упрощенные панели управления и обширная (   Читать дальше...   )Формат: FFX, CUBE, 3DL, LOOK, AEP, WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC390FE7BF258902C20DE14D5D25936509E2FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277598   (775645) от 21.01.2019
 
 Шрифты - Creative Market - Ze Typeface + Extras - 329890 [TTF, OTF, AI, PSD]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A4ED88EBC6F3756A298415E7AC9A1AC710A7AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015511   (774038) от 11.05.2016
-
-Экшены - GraphicRiver - Dusted  Photoshop Action [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8441EFB6694A944342A1FC557AA88E1AF1EAFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

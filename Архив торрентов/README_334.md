@@ -1,177 +1,55 @@
-###  Публикация: 606198   (995382) от 20.01.2013
+###  Публикация: 971052   (988621) от 01.01.2016
 
-Saints Row 2 [Ru/En/Multi13] (L) 2009 | *PROPHET*
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уличные банды, тонны огнестрельного оружия, сверкающие хромом автомобили, раскатистый хип-хоповый бас, литры тестостерона и адреналина - все это заботливо смешано в единственно правильных пропорциях в гангста-боевике "Saints Row 2". Улицы городка Stillwaters мало чем отличаются от настоящих: вопросы здесь решаются перестрелками, а единственное, что имеет ценность - это что говорят о тебе люди. Безжалостная война, в которой решится, кто же будет полноправным хозяином каменных джунглей, начнется уже этой зимой!.(   Читать дальше...   )Тип издания: ЛицензииЖанр: Action (Shooter) / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: Русский, Английский / MULTi13Язык субтитров: Русский, Английский / MULTi13Язык интерфейса: Русский, Английский / MULTi13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB8DABF171BBB725D7E62383B73CDDFA7A23977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605687   (995381) от 20.01.2013
-
-Auslogics BoostSpeed 5.5.1.0 Portable by BurSoft [Eng/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed – это мощная программа, предназначенная для централизованного обслуживания и оптимизации компьютера, с помощью которой Ваш компьютер будет всегда оставаться быстрым и надёжным. Утилита увеличивает скорость работы оперативной памяти, ускоряет загрузку Windows, повышает быстродействие Microsoft Office, The Bat, FireFox, Opera, Skype, чистит реестр и диск компьютера. BoostSpeed содержит известный Auslogics Disk Defrag и набор новых утилит для современных компьютеров. В последствии дефрагментации реестра BoostSpeed, производительность компьютера увеличится за счет фрагментации файлов реестра, уменьшения их размера, а также благодаря устранению ошибок в реестре. Кроме этого эта программа предлагает мощные возможности для очистки реестра и диска, что в свою очередь позволит вашему компьютеру работать более быстро и эффективно. Имеет дружественный интерфейс и поддержку русского языка.
-Программа позволит вам быстро и качественно произвести настройку вашей системы на максимальную производительность. (   Читать дальше...   )Название программы: Auslogics BoostSpeed PortableЯзык интерфейса: Eng/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605691   (995380) от 20.01.2013
-
-Auslogics Duplicate File Finder 2.5.1.0 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Duplicate File Finder - эффективная и легкая в использовании бесплатная программа, предназначенная для поиска и удаления ненужных дубликатов файлов. Используя эту программу можно очистить до 50% дополнительного пространства на жестком диске. Duplicate File Finder также позволяет искать одинаковые файлы на USB-носителях, картах флеш-памяти и прочих переносных накопителях информации. Кроме того, удаление ненужных файлов может улучшить быстродействие компьютера, сокращает время необходимое для дефрагментации жесткого диска, а также время сканирования компьютера антивирусной программой.Название программы: Auslogics Duplicate File FinderЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605914   (995377) от 20.01.2013
-
-Phase One Capture One PRO 7.0.2 build 65074 (x64) [MULTi + Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro - один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" и "недосвеченные" снимки, тонко настроить резкость снимка и устранять цветные шумы.
-
-(   Читать дальше...   )Название программы: Phase One Capture One PROЯзык интерфейса: MULTi + Русификатор by nktch
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605885   (995369) от 20.01.2013
-
-FastPictureViewer Codec Pack 3.4.0.75 RePack [Eng]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-FastPictureViewer Codec Pack добавляет предварительный просмотр эскизов и поддержки Photoshop PSD, OpenEXR, TGA, DDS, HDR, Maya IFF, SGI RGB, JPEG 2000 и более, а также RAW форматов от 430 + цифровые камеры для рабочего стола Windows 8, Windows 7, Windows Vista и Windows, XP SP3. Обеспечивает показ эскизов для Google SketchUp, Adobe InDesign, Illustrator, EPS и PDF-XMP. Пакет FastPictureViewer Codec содержит 64-разрядные и 32-разрядные кодеки RAW, который позволяет надежную поддержку для 45 + форматов изображений, включая RAW форматы с более чем 400 цифровых камер в Windows Explorer, Windows Photo Gallery, Windows Photo Viewer, Windows Live ™ Photo Gallery и на Windows 7, а также в Windows Media Center и Windows Media Player 12, с полной 64-битной совместимостью. Codec Pack поддерживает raw форматы цифровых камер от Canon, Nikon, Olympus, Sony, Hasselblad, Fuji, Panasonic, Leica и более, а также Adobe DNG, Photoshop PSD, Google SketchUp (эскизы), и компьютерные графические форматы изображений, включая OpenEXR (   Читать дальше...   )Название программы: FastPictureViewer ProЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605680   (995364) от 20.01.2013
-
-Batman: Arkham City [PS3] [Ru/En] [Repack] 2011 | R.G. Inferno
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем.(   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D655C2E0261C3E9FB83CCC2AAF900B317A5C59F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345369   (995360) от 20.01.2013
-
-Эрин Хантер | Коты-воители. Странники (28 книг)  [2007-2011] [FB2]
+Роберт С. Джоунз | Сила притяжения (2004) [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995360.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На самом делеЖанр: ФэнтезиФормат: FB2
+«Этот мир по крайней мере знаком. Но что остается? Жить, пока жизнь не станет нестерпимой. И что тогда? А затем? А потом?» Гуляешь с собакой, стоишь в очереди, просыпаешься среди ночи — и вдруг понимаешь, что можешь совершенно съехать с катушек, лишиться разума, перейти грань, свернуть за угол и оттуда уже не найти дороги назад.
+
+Первый роман Роберта С. Джоунза (1954–2001) (   Читать дальше...   )Жанр: ПрозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273FC803D5F47ABE53468B7D47E99B3A0A9A9FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162844   (988582) от 05.01.2010
+
+VA - Dark Alliance Vol.4 (2009) [MP3|~207 kbps]<EBM, Industrial, Darkwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988582.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sub Division - Love Assassin (4:24)
+2. Cylix - So Much Love (4:15)
+3. Non Music - Gender Changer (3:11)
+4. F.E.V.E.R - Ressurection (4:01)
+5. Roman Rain - Dementiaґs Hailing (3:56)
+6. Faith And The Muse - Nine Dragons (4:35)
+7. Feuerschwanz - Wir singen Met (3:40)
+8. Dunkelschoen - Lacrima (5:45)
+9. Die Art - Alles was dein Herz begehrt (4:39)
+10. Grimm - Schoen (Webmix) (4:48)(   Читать дальше...   )Жанр: EBM, Industrial, DarkwaveПродолжительность: 01:13:33
 
 ## Скачать торент
 ```bash
@@ -183,21 +61,185 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605796   (995356) от 20.01.2013
+###  Публикация: 611292   (988533) от 31.01.2013
 
-AusLogics BoostSpeed 5.5.1.0 RePack by elchupacabra [RUS | ENG]
+Arwen - Memories Of A Dream (2002) [WavPack|Lossless]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trascendental Overture [02:13]
+02. Dreamland [04:13]
+03. Between Love And Pain [05:48]
+04. Time's Gate [06:31]
+05. Alone [05:34]
+06. So High [04:33]
+07. Woodheart [01:23]
+08. Once Upon A Time [05:50]
+09. Eternaly [03:37]
+10. At The End [06:29](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611291   (988531) от 31.01.2013
+
+Artas - The Healing (2008) [WavPack|Lossless]<Thrash / Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbossa [05:26]
+02. Bastardo [03:07]
+03. Fick Das Fett [03:34]
+04. The Healing [04:15]
+05. Kontrol [03:26]
+06. Rhagenfels [03:48]
+07. Through Dark Gates [04:31]
+08. Blut [02:20]
+09. Gangsta's Paradise [04:06]
+10. The Butcher's Guilt [03:03](   Читать дальше...   )Жанр: Thrash / Death MetalПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611288   (988527) от 31.01.2013
+
+Arrival - An Abstract Of Inertia (2002) [WavPack|Lossless]<Melodic Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [01:35]
+02. Spacepenetrator [05:36]
+03. From Behind The Black Rainbow [05:13]
+04. Under The Cloack Of Darkness [04:52]
+05. Ardor For Euphoria [04:31]
+06. 6Th Day [04:48]
+07. Intermezzo: Channel 352 [03:03]
+08. An Abstract Of Inertia [05:23]Жанр: Melodic Black MetalПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611433   (988525) от 31.01.2013
+
+Necrowretch - Putrid Death Sorcery (2013) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ripping Souls of Sinners (2:37)
+02. Purifying Torment (3:21)
+03. Goat-Headed (3:04)
+04. Putrid Death Sorcery (3:52)
+05. Impious Plague in Catacombs (3:35)
+06. Spewed from Hell (3:29)
+07. Defiler of Sacrality (3:16)
+08. The Anthropomancer (4:26)
+09. Soiled Into a Crypt (2:26)
+10. Necrollections (3:03)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46E3AB4450B1D1A8F596E2AFF431B8FFCF33CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611574   (988518) от 31.01.2013
+
+Е. Пушков | Не смущайся! [2002] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988518.jpg" />
+</div>
+
+
+###  Подробнее
+
+После многих раздумий и молитв к Господу начал я писать эту книгу, побуждаемый некоторыми исповедниками Иисуса Христа братства Международного союза церквей евангельских христиан-баптистов (МСЦ ЕХБ), к которому я принадлежу. Книга Сергея Кобзаря «Почему я не могу оставаться баптистом и вообще протестантом», напечатанная в типографии «Печатный двор» г. Славянска в 2002 году, смутила некоторых искателей истины, погрузив их в топь уныния и сомнений. По прочтении титульного листа мне сразу захотелось поставить большой знак вопроса на длинном названии и отложить ее в сторону, так как люди моего возраста очень разборчивы в выборе литературы для чтения, но в предисловии С. Кобзарь выражает убедительную просьбу: «Прошу лишь моего дорогого читателя дочитать данную книгу до конца и только затем уж составить свое отношение к ней, ее автору и возможно, вообще к православию».Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4B665FB3D1B5464DE7B5A69140D83CC2657303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611682   (988517) от 31.01.2013
+
+SynWrite Editor 4.7.685 [Мульти / Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AusLogics BoostSpeed - единственная программа, которая позволит Вам быстро и качественно произвести настройку Вашей системы на максимальную производительность. Встроенный System Adviser проверит настройки Вашей системы с помощью 50 различных тестов и предложит Вам рекомендации по каждому тесту. Программа в реальном времени проверяет Вашу систему и если находит, что какой-то из параметров можно оптимизировать, то обязательно проинформирует Вас.Название программы: AusLogics BoostSpeedЯзык интерфейса: RUS | ENG
+Удобный и легкий в использовании редактор текста для обычных пользователей , а также программистов. Имеет подсветку синтаксиса большинства языков программирования, проверит правописание текстов на русском и английском языках, поддерживает , а также автоматически распознает большинство кодировок текстовых файлов.Название программы: SynWrite EditorЯзык интерфейса: Мульти / Русский
 
 ## Скачать торент
 ```bash
@@ -209,21 +251,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 562954   (995355) от 20.01.2013
+###  Публикация: 163576   (988501) от 05.01.2010
 
-Анатомия страсти / Grey's Anatomy [Сезон 9, серия 1-9] (2012) [720p] WEB-DLRip [Кубик в Кубе] (Обновляемая)
+Total Uninstall 5.4.2 Portable Multi [русский + английский]
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В центре событий — молодая женщина-хирург Мередит Грей, дочь известного врача Эллис Грей. Она работает в городской больнице Сиэтла, и её коллеги, такие же начинающие врачи, как она. Хирурги оперируют и влюбляются, заводят истории болезни и служебные романы, хранят свои врачебные тайны, борются с осложнениями у пациентов и в собственной личной жизни. И зачастую отношения с противоположным полом волнуют их не меньше, чем вопрос приобретения ими профессионального опыта.Жанр: Мелодрама, Драма, КомедияРежиссер: Роб Корн, Тони Фелан, Чандра УилсонАктеры: Эллен Помпео, Сандра О, Патрик Демпси, Джастин Чэмберс, Чандра Уилсон, Джеймс Пикенс мл., Сара Рамирез, Эрик Дэйн и др.Перевод: Профессиональный двухголосый закадровый(Кубик в Кубе)Продолжительность: 00:42:35
+Total Uninstal  это более корректный, мощьный и удобный инструмент для качественного, полного или чистичного уделения, отслеживания установки программного обеспечения на копьютер, среди всевозможных подобных инструментов. Словом, очень качественная альтернатива деинсталлятора Windows (Установка/Удаление Программ). Мониторинг собирает информацию до и после установки нового приложения, делая при этом снимки файловой системы и реестра.
+Чистота и качество работы этой программы обуславливается тем, что без ошибочно собирается информация до и после установки и определяются все изменения в системе, связанные с инсталляцией того или иного приложения. Работает действительно чисто, следов не оставляет.
 
 ## Скачать торент
 ```bash
@@ -235,34 +278,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605053   (995339) от 21.01.2013
+###  Публикация: 971080   (988490) от 01.01.2016
 
-VA - Electro House Pro V.4 (2012) [MP3|320 кб/с]<Electro House>
+Slimjet 6.0.10.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heren - Never Let Me Go (Rawrberry Remix)
-02. Jibberdee - Pipano (EllarSound Remix)
-03. Jack&Jordan - Rocka' (Original Mix)
-04. Kyau & Albert - Another Time (3rd Prototype Remix)
-05. Darryl Green - Brrr Stick Em (Original Mix)
-06. Paul Anthony and Atom Pushers - Meat and Potatoes (Original Mix)
-07. Buck Lesson, Tricky Play, RockSaw - Revolt (Original Mix)
-08. Avicii - Silhouettes (Lazy Rich Remix)
-09. Marco V & Doctors In Florence - Lotus (Christopher Ank Remix)
-10. Delirium vs. Zedd - Shot Silence (Kitsch 2.0 Bootleg)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 04:36:48
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB9D86B2BFE0CE5AF174784CE795DE97FF96402E
+magnet:?xt=urn:btih:86834ADBB14349846DCBE5A1E6E142F95E81129F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,158 +304,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605052   (995338) от 21.01.2013
+###  Публикация: 611307   (988449) от 31.01.2013
 
-VA - Electro House Pro V.3 (2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. HeavyWeight - Neverland Anthem (Original mix)
-02. Keva - Jackin Chan (Original Mix)
-03. Pyero - Bura (Original Mix)
-04. Zedd feat. Matthew Koma - Spectrum (Saints Of Sound Remix)
-05. Osprey Heights - Take Me Higher (Dave Winnel Remix)
-06. Skrillex, Deadmau5 Feat Wolfgang Gartner - Animal Of The Year (Cheb'Five Mashup)
-07. MC Flipside - vs. ZERO (Original Mix)
-08. David Costa & Nick Fisher - Dynamite (Original Mix)
-09. Panic City - Mark Wahlberg (Original Mix)
-10. Peaches - Burst! (Bart B More Remix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 04:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF204E4A2D7BC3E2BEED1C25FFD3A4A6353563A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605051   (995337) от 21.01.2013
-
-VA - Electro House Pro V.2 (2012) [MP3|320 кб/с]<Electro House>
+As I Lay Dying - An Ocean Between Us (2007) [WavPack|Lossless]<Metalcore>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ZXX - Aegis (Original Mix)
-02. W&W - Moscow (Matei Craciun Remix)
-03. SL Curtiz & Domovnik - Impact (Vicente Roca Remix)
-04. DJ Fist & Rio Dela Duna - Ciudad Cali (Remode Version)
-05. Luke Blanc - Good Times (Extended Mix)
-06. Paul Anthony, ZXX, Vash - Electro-Sexual (Original Mix)
-07. Avicii, Lazy Rich & Global Deejays - High Silhouettes (3RD Prototype Mashup)
-08. Chris Lake - Sundown (Fyor Remix)
-09. Christina Aguilera - Your Body (Audien Remix)
-10. Asalto - Nimbus (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 04:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD60A2EDEF6F8970C7B694C4140F9A4737B75E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606501   (995336) от 21.01.2013
-
-Strehm - Zeit EP (2011) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Urzeit (05:27)
-02. Zeitsprung (06:45)
-03. Zeitpunkt (06:44)Жанр: TechnoПродолжительность: 00:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109374CD5C8F377DDA68967353751E4D8A88775B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606496   (995335) от 21.01.2013
-
-Koolkilla and Strehm - Monotoys EP (2011) [MP3|320 кб/с]<Techno, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Milestone Grinding Machine (06:20)
-02. Earwigs (06:36)
-03. Madness Mechanics Chor (06:13)
-04. The Brainkilla Syndrom (08:27)
-05. Madness Mechanics Chor (Nadejda Goes To Stardom Remix) (06:10)Жанр: Techno, MinimalПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0460DE53C709778CF6F946A2FA15C11BB30BC443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605625   (995334) от 21.01.2013
-
-Alchemist - Jar Of Kingdom (1993) [WavPack|Lossless]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstraction [04:45]
-02. Shell [04:12]
-03. Purple [04:47]
-04. Jar Of Kingdom [05:59]
-05. Wandering And Wondering [03:44]
-06. Found [01:28]
-07. Enhancing Enigma [05:15]
-08. Whale [01:11]
-09. Brumal A View From Pluto [05:40]
-10. Worlds Within Worlds [07:45]Жанр: Death MetalПродолжительность: 00:44:47
+01. Separation [01:15]
+02. Nothing Left [03:43]
+03. An Ocean Between Us [04:13]
+04. Within Destruction [03:54]
+05. Forsaken [05:18]
+06. Comfort Betrays [02:50]
+07. I Never Wanted [04:44]
+08. Bury Us All [02:23]
+09. The Sound Of Truth [04:20]
+10. Departed [01:40](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:20
 
 ## Скачать торент
 ```bash
@@ -433,315 +339,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 606487   (995333) от 21.01.2013
+###  Публикация: 611174   (988447) от 31.01.2013
 
-Deep Paranoya - Difinicion EP (2012) [MP3|320 кб/с]<Dub Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Difinicion (Original Mix) (07:28)
-02. Difinicion (Atabey Remix) (07:19)
-03. Difinicion (Pluge Remix) (08:48)
-04. Difinicion (Vytis Remix) (09:13)Жанр: Dub TechnoПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F39C44D910B210CC7D5EABABEE9B113EC7F20BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605088   (995332) от 21.01.2013
-
-VA - Клубные Новинки Vol.219 (2013) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Receptor - Strike For Oil (Original Mix)
-02. Omar - It s So (Bob Sinclar Instrumental Remix)
-03. Sou Kanai - Child (Original Mix)
-04. Origin - Moment of Sunrise (Original Mix)
-05. Sonic Element - Away Without You (Thomas Datt Remix)
-06. Sidney Samson feat. Will.I.Am - Better Than Yesterday (Leroy Styles Remix)
-07. Prism - Nothing To Do For The Next Three Hours (Original Mix)
-08. Synesthetic - Addicted To Music (Original Mix)
-09. Tim Royko feat. Mike Leon - We Are One (Goose Bumps Remix)
-10. PHM - Marionette (Original mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF953FF615193CFB1E15A2C5961EAF6922900C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606491   (995331) от 21.01.2013
-
-Dominic Infurna - Leap Year EP (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Second Moment Spring (10:34)
-02. Leap Year (Original Mix) (08:17)
-03. Leap Year (Infurna Edit) (08:17)
-04. Leap Year (Strehm Remix) (09:02)Жанр: TechnoПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7276769214B067CE5CE57FA3B427C7C7556ECAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605717   (995330) от 21.01.2013
-
-Mark Hunton - Annapurna: The Towering Sky (1999) [MP3|320 кб/с]<New age, World Fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995330.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:12) 01. In the Shadow of Everest
-(5:01) 02. Annapurna: The Towering Sky
-(4:45) 03. Trekking
-(6:42) 04. Out on the Edge
-(5:32) 05. Waterfalling Before the Storm
-(6:37) 06. Mysteries Of The Mountains
-(5:22) 07. 15k To Lhasa
-(1:23) 08. Rendezvous At Sherpa's Teahouse
-(5:44) 09. Doorways Beyond
-(5:11) 10. Sunrise(   Читать дальше...   )Жанр: New age, World FusionПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15A2CED3574EBAB948AAC7DD00C74AF75D7BB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606460   (995327) от 21.01.2013
-
-VA - Elpa Eighth Compilation - Leaving Summer (2011) [MP3|320 кб/с]<Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rekalix - Under the Night Sky (04:54)
-02. Counterphase - Lonely Path (09:26)
-03. Delayscape - Analog August (03:21)
-05. Texense - 180 Days (03:56)
-06. Planetarium - Melody of a Live Planet (06:10)
-07. EugeneKha - Butterfly Flight (06:11)
-08. Invector - Tu un Es (04:11)
-09. Massimo Ruberti - Wandering (05:58)
-10. Thompost - Away (05:07)
-11. Vadatajs - Wonderfool Needles (05:08)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3421DC1021DEF5071E0BE5DC31E81EA959495CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605719   (995324) от 21.01.2013
-
-Basic Perspective - Small Step On The Other Side (2006) [FLAC|Lossless]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Small Step On The Other Side (Original Mix) (8:04)
-02. - Small Step On The Other Side (Elevation Remix) (8:58)Жанр: Progressive TranceПродолжительность: 00:17:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603649   (995323) от 21.01.2013
-
-VA - Trance Remixes: Volume Two (2012-17-12) [MP3|320 kbps] <Uplifting/progressive trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Lukosz - Watch Your Step (Cressida remix) (08:13)
-02. Gabriel Batz - Inner Touch (Mike Shiver Catching Sun remix) (07:49)
-03. Sunny Lax - Always (Colonial One remix) (07:18)
-04. Mark Eteson - Universal Language (Tritonal club mix) (07:42)
-05. Sneijder - We Are Living (feat Elsa Hill - Sneijder remix) (07:56)
-06. Cold Blue - Paradise (Anhken remix) (08:00)
-07. ReOrder & Stine Grove - Seize The Day (Timur Shafiev remix) (07:52)
-08. Hydro Aquatic & Vir2l Vision - Vigor (Cold Blue remix) (08:12)
-09. Digitalis - Memento (Suncatcher remix) (08:45)
-10. Brisky - Celestial (John O'Callaghan Presents Mannix remix) (08:17)(   Читать дальше...   )Жанр: Uplifting/progressive tranceПродолжительность: 02:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A4FD16FE000BB6FD93C93241BA7BFF36B20ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606464   (995320) от 21.01.2013
-
-VA - Elpa Ninth Compilation - Transparency of Density (2012) [MP3|320 кб/с]<Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Thompost - Trickle (07:16)
-02. Northcape - Morning Bell (07:55)
-03. Massimo Ruberti - Sensation (07:52)
-04. mint - Clouded (05:39)
-05. Data Unit -Жанр: Downtempo, AmbientПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AFD8F4FE3019F5A8E5E95FB515E116E4529EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606495   (995319) от 21.01.2013
-
-Mirko Edelmann - Dirty Things (2012) [MP3|320 кб/с]<Techno, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prima Ballerina on Ketamina (05:48)
-02. Stampfquietschen (06:05)
-03. Doch Doch Genauso (06:16)
-04. Enforce (06:24)
-05. Quantensimulator (05:08)
-06. Synapsen Echo (05:26)
-07. Dirty Gate (06:37)
-08. Olbert (05:31)
-09. Wrong Way Ticket (04:57)
-10. Madfuck (04:32)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45E4F6BC76B81EFB0D36C2097C615EA1AB0D291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606272   (995317) от 21.01.2013
-
-Rabbit Wallpapers (21.01.13) [Wallpapers]
+Фотография - Фотограф Matthew K Mayes (MOJOKISS) [JPEG]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995317.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Фотограф Matthew K Mayes (MOJOKISS)Разрешение файлов: 400x600 ~ 2000x1714Формат: JPEG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA230DE6882BD91BCBEE2F0C6D5DE0AA7AFA67F2
+magnet:?xt=urn:btih:35473F650BEF73210F41D9803E806D0878B3CAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -749,34 +365,405 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 606310   (995316) от 21.01.2013
+###  Публикация: 611314   (988446) от 31.01.2013
 
-VA - NOW Every Side Dance (2013) [MP3|320 кб/с]<Dance, Handsup, Vocal>
+Ashes To Ashes - Cardinal VII (2002) [WavPack|Lossless]<Symphonic Gothic / Prog Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. DJ Ralmm & Alexandrina - First Night (Radio Edit)
-2. DJ Fait & Adrima - Can't Stop Raving (Adrima Mix)
-3. DJ Sinatra feat. Adam Clay - Bit By Bit (Cool Angel Remix)
-4. DJ Cap - We Only Ask (Deep Inside Remix Edit)
-5. DJ Sanny J & Daniele - Bomb Of Love (feat. Xavi One) (Discoostex Remix)
-6. Marco Branky & Juan Serrano - Vivaldi and Sex (Instrumental)
-7. Eric Prydz - Every Day (Andy C Remix)
-8. Miami Inc. feat. Van Snyder - Bob! Bop! 2012 (Sean Finn Remix)
-9. Deepside Deejays - Look Into My Eyes (Club Edit)
-10. Miguel & Chris - By Your Side (Re Digitalized Remix)(   Читать дальше...   )Жанр: Dance, Handsup, VocalПродолжительность: 03:09:14
+01. New World Obscure [03:54]
+02. Embraced In Black [05:38]
+03. Among Mortals [03:48]
+04. Truth On Scaffold [06:56]
+05. Iben [01:00]
+06. Dualism [06:16]
+07. Sic Transit Gloria Mundi [13:32]
+08. Ravenous Unleashed [02:20]
+09. Behind Closed Eyes [04:52]
+10. Cardinal Vii [08:27](   Читать дальше...   )Жанр: Symphonic Gothic / Prog MetalПродолжительность: 00:58:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A48CF00D4527B9B1D0836FE143D73B691D8CAE7B
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611680   (988444) от 31.01.2013
+
+Eclipse Prophecy - Days Of Judgement (2013) [MP3|320 кб/с]<Power Metal / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Animus Ara [00:01:20]
+ 02 - Under Shadow's Veil [00:05:50]
+ 03 - Through The Storm [00:04:59]
+ 04 - Circle Of Torments [00:04:55]
+ 05 - A Dying World [00:04:06]
+ 06 - Labyrinth Of Sanity [00:05:07]
+ 07 - Days Of Judgement [00:05:32]
+ 08 - Legions Of The Cross [00:05:47]
+ 09 - Inferno [00:05:50]
+ 10 - The Shattered Mirror [00:07:51]Жанр: Power Metal / ProgressiveПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694AA45C96F07A3549C6367A2CF77A8F370E7D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611324   (988439) от 31.01.2013
+
+Сок джунглей / Jeonggeul jyuseu (2002) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один парень занимается всякими нехорошими делами, например выбиванием денег, его друг играет с малышней в футбол и корчит из себя крутого футболиста. Вместе они решают вступить в гангстерскую банду…Жанр: Боевик, КомедияРежиссер: Мин-хо ЧоАктеры: И Пом Со, Чан Хёк, Сон Чхан Мин, Ким Ён СонПеревод: Одноголосый закадровыйПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE195DDEFBCA5AFFC4276F3C693C1F732C67CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611661   (988436) от 31.01.2013
+
+Аланы. Дорога на Запад (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен аланскому феномену в европейской истории, теме единства исторических судеб и неразрывности культурных связей народов Европы и России.
+Древний индоевропейский народ с кавказской родиной, аланы одни из немногих участников Великого переселения народов сохранили до наших дней свою идентичность, родной язык и культуру, в тоже время бесспорен их вклад в раннесредневековую европейскую историю, в формирование военно-технических, идеологических, ономастических особенностей европейской культуры.Жанр: ДокументальныйРежиссер: Т. ТуаеваПродолжительность: 01:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA8D6044BE7DF1EC5AC2CA1A466E35FDA6AB0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162509   (988422) от 05.01.2010
+
+Alter Bridge - 2 Альбома (2004, 2007) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ties That Bind (3:19)
+02. Come To Life (3:52)
+03. Brand New Start (4:55)
+04. Buried Alive (4:35)
+05. Coming Home (4:20)
+06. Before Tomorrow Comes (4:07)
+07. Rise Today (4:21)
+08. Blackbird (7:58)
+09. One By One (4:20)
+10. Watch Over You (4:19)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970909   (988409) от 01.01.2016
+
+Dragon Ball Super / Драгонболл Супер [2015, TV, 12 из > 100] BDRip 1080p, hi10p raw
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988409.jpg" />
+</div>
+
+
+###  Подробнее
+
+События происходят спустя несколько лет после победы над Маджин Буу, когда на Земле вновь царит мир.Производство: Toei AnimationЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Kimitoshi ChiokaЯзык субтитров: Русский (отключаемый)Продолжительность: более 100 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA22AC83B8F09F732156A413A4C8F7F2AAE9B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971063   (988408) от 01.01.2016
+
+Visual Assist X 10.9.2086 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Assist позволяет увеличить возможности редактирования Microsoft Visual Studio .NET и Microsoft Visual C++. Visual Assist X - Самый удобный и полезный addon к среде MS Visual C++ среди всех когда-либо используемых. Используя все возможности данного пакета (среди которых подсветка синтаксиса текста различными цветами, автозаполнение имени т.п.) мы больше не (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18640A4F9CF478CCDA409AFE9FB324E4831CF694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971103   (988404) от 01.01.2016
+
+Журнал | Дачные советы Галины Старосельцевой №1 (январь 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Народная мудрость гласит: успех будущего урожая на 50% зависит от качества семян, на 30% - от качества рассады и на 20%	- от погоды, от того, как вы будете ухаживать за растениями летом и т.д.
+В номере: готовим почво грунты для рассады и покупаем необходимый инвентарь.Жанр: Домоводство, садоводство, огородничествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285118AA46D19FB01FA0DFD33E075E4D307629D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289689   (988386) от 08.01.2012
+
+Подшивка журналов | Авторевю (2011) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал рассказывает о новинках автомобильного рынка, а также в нем можно найти самые свежие авто новости, самые новые автомобили, и многое другое. "Авторевю" по праву считается одним из ведущих российских автомобильных изданий. "Авторевю" ведет ряд уникальных проектов: сравнительные тесты автомобилей на базе полигона НИЦИАМТ и собственные краш-тесты (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6300EFA395CDC7A9D816DF85A2FF41C7EF49E0E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611830   (988369) от 31.01.2013
+
+Wallpapers - Various nice Wallpapers-3 [1920x1200] [JPEG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Various nice Wallpapers-3 [1920x1200].Разрешение файлов: 1920x1200Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68E832400D130A7BEE170BD1B3BD94370716F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611608   (988368) от 31.01.2013
+
+Фотография - Сидней [JPEG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не большая подборка фотографий Сиднея и его окрестностей.Разрешение файлов: 1920x1200 , 1680x1050 , 1440x900 , 1280x800Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220E88117BA12544C761D4252FF73203E066A64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611329   (988365) от 31.01.2013
+
+VA - Hollywood Chill Lounge: Movie & Tv Best Themes Chilled Out Remixes (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill Loungers - The Ecstasy of Gold
+02. Merrick Lowell - The Seduction - Love Theme From "American Gigolo"
+03. The Cameo - Miami Vice - Crockett's Theme
+04. Mikaela Lexington - Rachel's Song - Theme From "Blade Runner"
+05. Ultraviolet - Teardrop - Theme from "House M. D."
+06. Tod Lancaster - Twisted Nerve - Kill Bill Whistle Song Chill Mix
+07. Ken Miura - Merry Christmas Mr. Lawrence - Furyo
+08. Guru Dawn - Twin Peaks - Sunset Boulevard Mix
+09. Mansion - Bella's Lullaby - Theme From "Twilight"
+10. Xenon - Das Boot - The Boat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3378B9349733D87D919EC4E495FF9081FE2CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611825   (988359) от 31.01.2013
+
+Wallpapers - Various nice Wallpapers-2 [1920x1200] [JPEG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Various nice Wallpapers-2 [1920x1200].Разрешение файлов: 1920x1200Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B194D01EA9EEDE6CA798D5CE335D163635F4C8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611532   (988356) от 31.01.2013
+
+Журнал | Аномалия № 03 (29) [1995] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988356.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Аномалия" — ежеквартальный иллюстрированный научно-информационный вестник ИТАР-ТАСС и Ассоциации "Экология Непознанного". Издаётся с 1990 г.
+
+«АНОМАЛИЯ» (1991-1998) была первым и по-своему единственным научно-популярным изданием в России, посвященным аномальным явлениям, необычным научным подходам, перспективным технологиям и разного рода загадкам. В 2006 г. силами Ассоциации «Экология Непознанного» выпуск «Аномалия» возобновлён.
+
+В номере 80 страниц, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BF272EEC00715ACB8EEC6C392D6EB9597F03A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,66 @@
+###  Публикация: 1411996   (423166) от 27.09.2020
+
+Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Ain't Necessarily So (2020 Remaster) (03:22)
+ 02. From The Bottom Of My Heart (I Love You) (2020 Remaster) (03:27)
+ 03. How Can We Hang On To A Dream (Remake 2020 Remaster) (02:22)
+ 04. I Wish We Could Fly (2020 Remaster) (05:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9E2675161B65E1AD74774D1DDF9DCA0ABD6519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146153   (422855) от 15.10.2009
+
+Kasabian - West Ryder Pauper Lunatic Asylum (2009) [MP3|320 kb/s]<Indie Rock / Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_422855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Underdog (4:37)
+02.  Where Did All The Love Go (4:17)
+03.  Swarfiga (2:18)
+04.  Fast Fuse (4:10)
+05.  Take Aim (5:24)
+06.  Thick As Thieves (3:06)
+07.  West Ryder Silver Bullet (5:15)
+08.  Vlad The Impaler (4:44)
+09.  Ladies And GentlemenЖанр: Indie Rock / BritpopПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250903   (422544) от 29.09.2018
 
 The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
@@ -689,64 +752,6 @@ Queen + Adam Lambert - Live Around The World (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3EE8C1B9E776A045654AA203C880D7E320FD644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252147   (411163) от 04.10.2018
-
-Дядя Ваня - #Люди (2018) [MP3|320 Kbps] <Rock, Hard Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Комнатный рок
-02. Восток
-03. Вой-На
-04. Человек-сигарета(   Читать дальше...   )Жанр: Rock, Hard Rock, SkaПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1251D5E33D5E069460A352B17244C2D76DA87FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252154   (411154) от 04.10.2018
-
-Дядя Ваня - Воля (2015) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воля
-02. Короткая ночь
-03. Битва титанов
-04. Зачистка(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Blues Rock, Blues, Country RockПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E85D5BD8683E2B79662966398AFFEB11600FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

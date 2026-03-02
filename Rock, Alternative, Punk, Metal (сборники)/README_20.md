@@ -1,3 +1,32 @@
+###  Публикация: 1403991   (684277) от 23.08.2020
+
+VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684277.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Video Nasties - Viva Death
+002. Naat - The Moth
+003. Crafter - Rupture
+004. Disembodied - Bloodshed Rain(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 09:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18208A55D9D55A3059AFA732C68E0DCBD46C3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404162   (684265) от 23.08.2020
 
 VA - Rock Songs: Essentials Collection (2020) [MP3|320 Kbps] <Rock, Alternative>
@@ -715,35 +744,6 @@ VA - Остаться Молодым: Сборник Русского Рока (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11BF7F9DB7F867EABBB7C12714B8561CD153948E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224647   (664786) от 11.05.2018
-
-Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Boxed
-02. Something Magic
-03. Skip Softly (My Moonbeams)
-04. As Strong As Samson(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C07C737749A4E331804A3880D5DF1AB602B319
 ```
 
 https://mybot314.ru/tekegram_catalog/

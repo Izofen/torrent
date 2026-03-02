@@ -1,3 +1,210 @@
+###  Публикация: 1029563   (678601) от 28.06.2016
+
+VA - Hot Party Summer (2016) [MP3|320 Kbps] <Latin, Electronic, Dancehall>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678601.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Пpодолжительность: 01:15:53
+
+01. Alvaro Soler - Sofia 03:31(   Читать дальше...   )Жанр: Latin, Electronic, DancehallПродолжительность: 02:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E412B6E938F1087DFDE63848F5C2A792F322D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029858   (678597) от 28.06.2016
+
+VA - 150 In Style Trance Melodic Showing (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678597.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren presents Rising Star feat. Betsie Larkin -  Safe Inside You 7:03
+002. Aly & Fila with Ferry Tayle -  Nubia (Extended Mix) 7:41
+003. Bobina -  Invisible Touch (Aly & Fila Remix) 8:23
+004. A.R.D.I. & Dennis Pedersen -  Forgotten (Original Mix) 7:03(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 17:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6521861586BE424BA928498A2508F9C2FAB79DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029149   (678596) от 28.06.2016
+
+Dj DAN62 - Унц Унц Микс Июнь Часть 1 (2016) [MP3|320 кб/с] <Dance Pop, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мот - 92 (Eugene Star Remix)
+2. Pink – Just Like Fire (Denis First Remix)
+3. David Guetta ft. Zara Larsson - This One's For You (Kolya Funk & Eddie G Remix)
+5. Willy William - Ego (Alexx Slam & Kolya Dark Remix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C071D77A89EDC7249A88C89C37F4D687110CB0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029780   (678595) от 28.06.2016
+
+VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678595.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Degree - Hunny Bunny
+2. Bad Booty Brothers - Worth It (Radio Edit)
+3. Barby G - What’s Up (Radio Edit)
+4. Aura - Love Somebody(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64B280668E9D03BB26E777E7DD2456E32CA94DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135662   (678591) от 20.05.2017
+
+VA - Зайцев.Нет: Топ Новинки За Май (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Khaled Feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm the One 4:49
+02.  ЛСП - Конец света 5:48
+03.  Katy Perry - Bon Appetit (feat. Migos) 3:47
+04.  Afrojack & David Guetta ft. Ester Dean - Another Life 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AABBBC9A4804C57D2B11E498874DBE40D73110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506623   (678517) от 10.06.2012
+
+VA - Club Music for DJ's Summer 9CD (2012) [MP3|320 кб/с] [Обновляемый] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Tasty - Music For A Fashion Generation (Original Mix) (7:37)
+2. Alfonso Padilla - Happy Friday (Superskank Remix)Жанр: Dance, ClubПродолжительность: 04:53:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508538   (678509) от 10.06.2012
+
+VA - MAXI. 80 Величайших Хитов Всех Времён (2012) [MP3|320 кб/с]<Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gene Vincent - Be-Bop-A-Lula
+02. Carl Perkins - Blue Suede Shoes
+03. Bill Withers - Ain't No Sunshine
+04. Queen - Bohemian Rhapsody
+05. Little Richard - Tutti Frutti
+06. Roy Orbison - Only The Lonely
+07. The Beatles - Norwegian Wood (This Bird Has Flown)
+08. Gloria Gaynor - I Will Survive
+09. The Beatles - Help!
+10. Metallica - Enter Sandman(   Читать дальше...   )2012Жанр: Pop, RockПродолжительность: 04:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDA515FA1C4BE4FE8087EE9E5CE633FE654CAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290287   (678480) от 20.03.2019
 
 VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -545,221 +752,6 @@ VA - Danced Our May Day (2018) [MP3|320 Kbps] <Tropical, House, Future Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223147   (677385) от 03.05.2018
-
-VA - Coastlines 100 Workout Hits (2018) [MP3|320 Kbps] <Electro, Indie, Reggae>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677385.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rockie Fresh - You A Lie (Crnkn & Branchez Remix) (Clean) (Radio Edit)
-002. Montell2099 & 21 Savage - Hunnid On The Drop (Mr. Carmack Remix) (Dirty) (Radio Edit)
-003. Rockie Fresh - You A Lie (Crnkn & Branchez Remix) (Clean) (Short Edit)
-004. Jocelyn Alice - I Know (Clean)(   Читать дальше...   )Жанр: Electro, Indie, ReggaeПродолжительность: 04:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE50C8D8F1BEA72EBF2080C0224CDEB1C6FBA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507844   (677339) от 11.06.2012
-
-VA - Музыкальные новинки  (01.06.12 по 07.06.12) (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677339.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adam Lambert - Never Close Our Eyes (Almighty Radio Edit) (3:57)
-2. ADN - Ему Ты Больше Не Нужна (3:43)
-3. Aiden Grimshaw - Is This Love (Radio Edit) (3:25)
-4. Akon - America’s Most Wanted (Full + CDQ) (3:40)
-5. Alexandra Burke - Beating Still (3:35)
-6. Alexandra Burke - Between the Sheets (3:09)
-7. Alexandra Burke - Daylight Robbery
-8. Alexandra Burke - Fire
-9. Alexandra Burke - Love You That Much
-10. Alexandra Burke - Oh La La(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 12:46:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136025   (677280) от 21.05.2017
-
-VA - The First Protocol: Global Clubbing Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677280.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - The Train (Extended Mix)
-002. Adam Szydlik - Vectrum
-003. Ferry Tayle & Dan Stone - Vona (Extended Mix)
-004. Alexander de Roy feat. Macy - Never Be Alone (Nueva Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FF1B4C3C4CB9B5785D0FB16177D2961CAFFB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136199   (677146) от 21.05.2017
-
-VA - Italo & Space Vol.37 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bobby O - Destiny Calls 3:33
-02.  Yakuro - Star Dance 4:59
-03.  Marco Rochowski - Game Of Love 6:31
-04.  Giuseppe Alicata - Parla Con Me 5:54(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 03:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C8BF305C3820B4C36551FD54069102B5AB9886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223188   (677136) от 03.05.2018
-
-VA - Billboard Hot 100 Singles Chart (05.05.2018) (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - God's Plan
-003. Ariana Grande - No Tears Left to Cry
-004. Bebe Rexha - Meant to Be(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A37EA34E6CCA3AD6DDC76270409AFB4155A40AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223091   (677010) от 03.05.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 7 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677010.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга.  У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 7я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK361 Ozzy Osbourne - Mr. Tinkertrain
-362 Whitesnake - All Out Of Luck
-363 Skid Row - Psycho Love
-364 Thunder - All I Ever Wanted(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BAE384A10AEC626046418AC21CBCC7F4967967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508023   (676902) от 11.06.2012
-
-VA-Classik Album - Gold Classic Instrumental (2012) [MP3|320 кб/с]<Instrumental, Classic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Acoustic Alchemy-Jamaica Heart Beat
-02 - Anthony Ventura-La paloma
-03 - Elton John-CHELDORADO
-04 - C. Dulfer-Lilly Was Here
-05 - Cantoma-Maja
-06 - Damian Luca-Unchained Melody
-07 - David London-Horizons
-08 - Miami Sound Machine-ALL BECAUSE OF YOU
-09 - Ed Calle-Spanish Rose
-10 - En Voice-Rainy Days(   Читать дальше...   )2012Жанр: Instrumental, ClassicПродолжительность: 02:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386DC5E22FBBB5E05DE975D3A7E3D76A155B80A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1417326   (358263) от 20.10.2020
+
+Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Зольдер 2, Гонка 1-2 / DTM. Zolder 2, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:29:57 + 1:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFF0723ECC50E5F358A1CEBBC80E57CE143591B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417330   (358262) от 20.10.2020
+
+Национальное первенство Великобритании по супербайку 2020. Брэндс-Хэтч, Гонка 1-3 / British Superbike Championship. Brands Hatch GP, Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bennetts British Superbike Championship — ведущий чемпионат по шоссейным кольцевым мотогонкам в Великобритании, он также широко известен в мире, как ведущая серия гонок среди отечественных, английских супербайков.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 57:39 + 01:04:22 + 1:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457858FFD3533801D0950723625C564364315B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417335   (358075) от 20.10.2020
 
 Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Арагона / MotoGP 2020. Aragon GP (2020) WEB-DL [H.264/720p-LQ]
@@ -639,58 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A1E169EC0BDD3DED6A4408DA4FFC692C056A12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423005   (302385) от 12.11.2020
-
-Серия Кубков NASCAR-2020. Финал Сезона 500 / NASCAR Cup Series 2020. Season Finale 500, Phoenix Raceway (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302385.jpg" />
-</div>
-
-
-###  Подробнее
-
-36 этап Nascar Cup Series Playoffs, Season Finale 500, Phoenix Raceway (312 Laps, 318,8 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BA14E77066BF63127C5D0671A38EF7E47090FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423006   (302209) от 12.11.2020
-
-Бразильская автоспортивная серия гоночных грузовиков. Сезон 2020. Этап 2. Гояния. Гонка 1-4 / Copa Truck-2020 (ex- Formula Truck). Goiania/GO (15-16.08.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFFD3089E417D2A1AC744DAB3FEFE3930D27B490
 ```
 
 https://mybot314.ru/tekegram_catalog/

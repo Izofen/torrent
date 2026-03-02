@@ -1,22 +1,25 @@
-###  Публикация: 1337576   (273270) от 11.11.2019
+###  Публикация: 1188653   (273686) от 03.12.2017
 
-Маленькие чудовища / Little Monsters (2019 ) WEBRip [H.264/720p-LQ]
+Mr. Cloudy - Memoria / Sprayer (2017) Local Traffic [FLAC|Lossless|tracks] <Dub Techno, Ambient>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воспитательница везёт группу дошколят за город на экскурсию, когда на местности происходит вспышка зомби-вируса. Чтобы спастись и не травмировать хрупкую детскую психику, женщина убеждает малышей, что все эти зомби, кровь, кишки — ненастоящие, а всё происходящее — просто игра. Странная, но весёлая. И вот тот дядя корчится не от боли, а от радости. И не корчится, (   Читать дальше...   )Производство: Великобритания, Австралия, США | Made Up Stories, Protagonist PicturesЖанр: Ужасы, комедияРежиссер: Абе ФорсайтАктеры: Лупита Нионго, Джош Гад, Александр Инглэнд, Надя Таунсенд, Стивен Пикок, Кэт Стюарт, М.Дж. Коколис, Саския Бурмайстер, Талайна Моана Никора, Дизель Ла ТорракаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:00
+01. Memoria l (20:00)
+02. Memoria ll (18:06)
+03. Sprayer l (08:09)
+04. Sprayer ll (13:52)Тип издания: VinylЖанр: Dub Techno, AmbientПродолжительность: 01:00:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BDFF1DCFBBD125574ACFD9288593AE6346F4641
+magnet:?xt=urn:btih:EEABE3EF7805F733317DB9F908AB082A419684D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 267662   (273269) от 11.11.2019
+###  Публикация: 1188646   (273685) от 03.12.2017
 
-Лучший Стрелок / Top Gun (1986) BDRemux [H.264/1080p]
+PHI - Sound Is Sound (1994) Nova Zembla [FLAC|Lossless|tracks+.cue] <Ambient, Techno, Leftfield>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273269.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Искусный пилот истребителя F-14 (Том Круз), летающий как бог и руководимый как в жизни, так и в небе инстинктами, а не правилами, влюбляется в ... астрофизика (МакГиллис), преподающую в престижном летном училище. Она уступает его белозубой улыбке, и к своим победам в воздухе пилот добавляет и викторию в постели. Фильм пользовался огромным кассовым успехом в США.Производство: США / Paramount Pictures, Don Simpson/Jerry Bruckheimer FilmsЖанр: Боевик, МелодрамаРежиссер: Тони СкоттВ ролях: Том Круз, Келли МакГиллис, Вэл Килмер, Энтони Эдвардс, Том Скерритт, Майкл Айронсайд, Джон Стокуэлл, Бэрри Табб, Рик Россович, Тим РоббинсПеревод: Профессиональный (многоголосый, закадровый), авторскийСубтитры: Русские, АнглийскиеПродолжительность: 01:49:35
+01. Dans Mon Lit (09:01)
+02. Ghost (02:55)
+03. Stealth (07:33)
+04. Bermuda Sirens (05:03)(   Читать дальше...   )Жанр: Ambient, Techno, LeftfieldПродолжительность: 00:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:886A3B062CC78F9F4C5B6C00421ED6082B997256
+magnet:?xt=urn:btih:6AA3CA4983D7D2E8A7160D2AEF9BCD756B91088B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337534   (273268) от 11.11.2019
+###  Публикация: 1188825   (273684) от 03.12.2017
 
-VA - Temptation: Popular Dance Music (2019) [MP3|320 Kbps] <Dance, Pop>
+Epoq - Scintilla (2002) Surgery Records [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Broken Beat, Abstract>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simpel (04:21)
+02. Atnep (05:22)
+03. Early Mountain Pain (04:52)
+04. For The Ears Of The Stars (08:05)(   Читать дальше...   )Жанр: IDM, Ambient, Broken Beat, AbstractПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEFC680C22B933B216C58CA19E0C2680365E5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188717   (273683) от 03.12.2017
+
+Iiro Rantala & Ulf Wakenius - Good Stuff (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vienna [03:33]
+02. Carmen - Micaela and Don Jose [04:08]
+03. Helsinki [04:14]
+04. Palma [03:45](   Читать дальше...   )Жанр: Contemporary Jazz, Modern CreativeПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2967255101B6EF4A34B003EEA731C792D075F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188718   (273682) от 03.12.2017
+
+Herbie Hancock Trio - Live in New York (1994) Jazz Door [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [13:14]
+02. One Finger Snap [16:24]
+03. Cantaloupe Island [09:33]
+04. Maiden Voyage [15:17](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3412226915F6327D93794EA5C4FA6DF68958D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188657   (273681) от 03.12.2017
+
+VA - Colonization: Empty Channels Of Mars (2013) Lagunamuch Community [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stableform - Deserted City (06:02)
+02. I/DEX - Remove (04:57)
+03. Mlada Fronta - Landing (04:34)
+04. LPF12 - Sepia Days (06:41)(   Читать дальше...   )Жанр: IDM, Leftfield, ExperimentalПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E014DDCFD1C7FF76099600BA7906D584076682D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188844   (273680) от 03.12.2017
+
+VA - Anjunabeats The Yearbook (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Lions & Jason Ross, Paul Meany - Higher Love (Original Mix)
+02. Above & Beyond - Balearic Balls (Original Mix)
+03. Fatum vs. Judah - Love On A Real Train (Tangerine Dream Cover Extended Mix)
+04. Andrew Bayer & ilan Bluestone - Destiny (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7242FA8EDD7D41BA2F94E0032BA09D2B273DA95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188655   (273679) от 03.12.2017
+
+Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Tide 1 (17:50)
+02. Magnetic Tide 1 (Toki Fuko ReDub) (17:50)
+03. Magnetic Tide 2 (19:00)
+04. Magnetic Tide 2 (Toki Fuko Reshape) (18:44)Жанр: Ambient, Drone, Dub TechnoПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00A5232B38E9F51502E691690B1EEFEA61E3045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188779   (273678) от 03.12.2017
+
+VA - Flows Techno Minimal (2017) [MP3|320 Kbps] <Minimal, Techno, Club>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273268.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Newclaes - Wherever We Are (Keno Remix)
-002. Lawrence - No Drama
-003. Bailando Beat - Du Tragst Keine Liebe In Dir
-004. Jenny Rom - Hanky Panky (Cutty Short Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 10:16:51
+01. Insect Elektrika - Oh My Oh My
+02. Convextion - New Horizon
+03. Harry Romero - Revolt
+04. Darksome Notes - Short(   Читать дальше...   )Жанр: Minimal, Techno, ClubПродолжительность: 09:52:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18FCFF0BC510C750A5D775EE9BA8D4662CE4CB21
+magnet:?xt=urn:btih:E82C09A133517A9830EC142358133312D80AA01E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,27 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337498   (273267) от 11.11.2019
+###  Публикация: 1188651   (273677) от 03.12.2017
 
-FPS Monitor 5102 [Multi/Ru]
+Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 
->>След.
->>Архив Программ
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273267.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FPS Monitor отслеживает состояние компонентов вашего компьютера и показывает эту информацию прямо поверх экрана игры.
-Вам больше не потребуется переключаться из игры на десктоп или подключать второй монитор для контроля состояния железа. Все необходимые цифры вам покажет FPS Monitor в игровом оверлее.
-В активированной версии отсутствуют нижний баннер и периодическая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Iliachtides (05:17)
+02. Dispersion (07:08)
+03. Luciferin (07:29)
+04. Candela (07:00)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:54:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:343F9AB049BAF113DEED4B6E014CD5188E8699CF
+magnet:?xt=urn:btih:95611C0CEC645A033C701AD977DBFC7D94063439
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,22 +288,410 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336893   (273266) от 11.11.2019
+###  Публикация: 1188649   (273676) от 03.12.2017
 
-⚡ У DuckDuckGo 50 миллионов поисковых запросов в сутки
+Automatic Tasty - A World Of Moving And Connected Parts (2017) SLEEPERS [FLAC|Lossless|24Bit|tracks] <Electro, Acid>
 
->>3
->>4
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_273266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создатели поисковика, ставящего во главу принцип анонимности и конфиденциальности данных пользователей, поделились своим достижением в Твиттере, а мы посмотрели ещё и другую их статистику.Приватный поисковик DuckDuckGo достиг 50 миллионов запросов в день, говорится в сообщении самого поисковика.
-Thank you 🦆🦆🚀 users, whoever you are! We've (   Читать дальше...   )
+01. A World Of Moving And Connected Parts (03:58)
+02. Notes From Underground (04:00)
+03. I Tried To Take A Selfie (But There Was Nobody There) (03:05)
+04. R U Local ? (05:19)(   Читать дальше...   )Тип издания: VinylЖанр: Electro, AcidПродолжительность: 00:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75742CF111D41126B72C8325C94C5AC0579FE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188810   (273675) от 03.12.2017
+
+VA - Lounge Theatre: Bar Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Man Of Leisure And Boring Sax  -  Under Cover  6:24
+02.  Don Gorda Project  -  Disambiguation  5:50
+03.  Enrico Donner  -  Xonado Por VocA  5:54
+04.  Cane Garden Quartet  -  Flying With No Wings  5:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F03B17F3D6213FAF17A66D5676CBF9FB578E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188892   (273674) от 03.12.2017
+
+VA - Kitties Wanna Dance! Vol. 3 (2012) Suara [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pig & Dan - No Rules Limitation (07:14)
+ 02. Sharam Jey & Night Talk - Lies (05:36)
+ 03. Tapesh & Dayne S - All Day Long (07:33)
+ 04. Hot Since 82 - Planes & Trains (06:43)(   Читать дальше...   )Жанр: House, Deep House, Minimal, Tech HouseПродолжительность: 02:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B373A8C9FC19FADDBE7C2429F99001470065160F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188878   (273673) от 03.12.2017
+
+И. В. Бестужев-Лада | Кризис буржуазных концепций будущего человечества (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273673.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре дана развернутая критика взглядов буржуазных футурологов относительно будущего человечества, показывается кризис методологических установок различных школ и направлений западной футурологии в подходе к перспективным социальным проблемам современности.
+
+Автор убедительно доказывает, что только с позиций диалектико-материалистической концепции можно правильно (   Читать дальше...   )Жанр: История, политология, экономика, футурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355FE53D42C9AFC6896C5233B1BB74E704C1822A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188785   (273672) от 03.12.2017
+
+VA - Lights Of Eden Master Tech Trance (2017) [MP3|320 Kbps] <Uplifting, Tech Trance, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273672.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tim Verkruissen & Bryan de Lacosta - Coastline
+002. Chris Sundive - Alone (ReOrder Remix)
+003. Nicola Maddaloni - Wind Talker
+004. Etasonic - Farewell Forever (Intro Edit)(   Читать дальше...   )Жанр: Uplifting, Tech Trance, ElectronicПродолжительность: 10:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050E071D057F3219AD0806D4B3D5927F5EA114A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188882   (273671) от 03.12.2017
+
+VA - Ibiza House Fillers (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slam Duck - Cortege (Original Mix) 06:46
+02. Ticon - Nefertiti (Original Mix) 07:53
+03. Futurefunk - The Choir (Original Mix) 06:40
+04. Hansgod - Vida (Original Mix) 07:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A580BF97ED5EF147FFA7BF291FE6734522724F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188606   (273670) от 03.12.2017
+
+Энн Бэрбор | Шаг во времени (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь в путешествие, чтобы залечить душевные раны, нанесенные неразделенной любовью, очаровательная американка Аманда Маговерн не подозревала о том, что ей предстоит не только побывать в Англии начала прошлого века, но и пережить новое чувство.Жанр: Любовный романПродолжительность: 10.49.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AC23C931F16E06CF9C644D2948263E45C69381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188469   (273669) от 03.12.2017
+
+Lucio Dalla - Storie di casa mia (1971) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Itaca
+02 - Un uomo come me
+03 - Il bambino di fumo
+04 - Il colonnello(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796AE908BFAC29431FE04E82229336B344280244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188715   (273668) от 03.12.2017
+
+Ella Fitzgerald - The Verve Recordings 1956 - 1959 (2014) 3CD, Not Now Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273668.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I get a Kick Out of You [04:03]
+02. Let's Do It (Let's Fall in Love) [03:35]
+03. Just One of Those Things [03:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93E6FFC2E9012907DA7FEF10DCC3BCF988BFBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273690   (273666) от 23.12.2010
+
+Александр Дюма (отец) | Красный сфинкс (2007) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига по роману Александра Дюма (отца) «Красный сфинкс» - это роман, написанный спустя два десятилетия после «Трех мушкетеров».
+В нем писатель рассказывает более исторически достоверно о выдающемся политике и государственном деятеле того времени – кардинале Армане Жане дю Плесси, герцоге де Ришелье.
+Роман этот, имеющий и другое название – «Граф де Море», - долгие (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, исторический романПродолжительность: 23:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8A0E80B36123D6C93C327704760E9380E028B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273956   (273660) от 23.12.2010
+
+Андрей Ливадный | Мир на ладони [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что будет когда наша Галактика остынет. Сможет ли разум возродиться в иных уголках вселенной, и каким способом можно достичь подобного?Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B63107600B5DEC0972E1B26F06B932DEB8B20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273493   (273658) от 23.12.2010
+
+Под прицелом / Silent Trigger (1996) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273658.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Снайпер», суперкомандос, работающий на «Агентство» - законспирированную правительственную организацию, управляемую «Координатором». «Снайпер» начинает сомневаться, всматриваться в глаза и лица своих мишеней. А его «Контролер», второй член снайперской команды, несмотря на молодость, обладает жесткой хваткой и решительностью наемного убийцы. После того, как первая миссия их снайперской команды закончилась провалом и едва их не погубила, они вновь сталкиваются при выполнении задания для «Агентства», давшего им шанс вернуться в систему. Их мишень: автомобиль, который должен проехать по скоростному шоссе на рассвете. Им противостоят не только сомнения, призраки и беззащитная мишень. «Координатор» отдал приказ «Контролеру» уничтожить «Снайпера», если тот вновь провалит операцию.Жанр: Боевик, Драма, ТриллерРежиссер: Рассел Малкэй.Актеры: Конрад Данн, Кристофер Хейердал, Дэйл Хэйес, Эмма Стивенс, Александрия Абер, Рейнольд Робинсон, Джина Беллман, Эрин Симс, Джонатан Роберт Рондо, Дольф Лундгрен и др.Перевод: Одноголосый закадровыйПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35557DD0B377A782017F27E010F96AE1B588B7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274401   (273654) от 23.12.2010
+
+Александр Дюма (отец) | Учитель фехтования (2003) [MP3, Федор Чеханков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Учитель фехтования»  впервые напечатан в 1840 году одновременно во Франции и Бельгии. Александр Дюма пользовался «Записками» Гризье (Гризье Огюстен Франсуа (1791–1865) – известный мастер фехтовального искусства; преподавал уроки фехтования в ряде городов Франции, затем уехал в Россию, где провел около десяти лет. В конце 20-х годов возвратился во Францию и (   Читать дальше...   )Жанр: Исторический, классика, приключенияПродолжительность: 04:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6D8A94194912E97562E15E3495D08B012A527E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273667   (273651) от 23.12.2010
+
+Журнал | Красивые дома [март 2010] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Красивые дома" специализированное издание, по коттеджному строительству европейских стран (Германии, Венгрии, Финляндии), Канады и России. В журнале "Красивые дома" публикуются материалы, знакомящие с современным и классическим дизайном, современными технологиями и отделочными материалами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B447A3D07995F1FF93564174839AA5C345028E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083260   (273647) от 16.12.2016
+
+Начата разработка технологий крупномасштабного производства метана из атмосферного углекислого газа
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_273647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководители Института индустриальных наук (Institute of Industrial Science) Токийского университета, Национального института науки и передовых технологий (National Institute of Advanced Industrial Science and Technology, AIST), компаний Hitachi Zosen Corp, JGC Corp и EX Research Institute Ltd 18 ноября 2016 года приняли решение об организации новой объединенной (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -134,561 +703,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337613   (273265) от 11.11.2019
+###  Публикация: 1083739   (273646) от 16.12.2016
 
-VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ksky - Paradizio (5:06)
-02. Various/Ivan Starzev - Magic (6:07)
-03. Anton Romezz - Nonpop (Ivan Starzev Remix) (7:44)
-04. DPKY - Hold On (4:28)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB91AFF0BD07B571E7933273257707F563548A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337617   (273264) от 11.11.2019
-
-VA - Get To Know: Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Face & Mark Brown - Needin' U (Dimitri From Paris) (6:25)
-02. Nile Rodgers - Do What You Wanna Do (The Reflex Greatest Dancer Mix) (5:07)
-03. Kindred Soul, Get To Know & Kayleigh Gibson - Hold On (Dr Packer Remix) (6:09)
-04. Sneaky Sound System - Can't Help The Way That I Feel (Casual Connection Remix) (5:19)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 05:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60450F6F466C9BBD5AB8B95B4B8C5D2C9622AC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337570   (273262) от 11.11.2019
-
-VA - Cafe Sputnik: Electronic Exotica From Russia (2005) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Future Jazz, Neofolk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messer Chups - Tchaikovsky Beat (3:36)
-02. O.M.F.O. feat. Sputnik - Sea Cruise (6:35)
-03. Messer Fur Frau Muller - The Best Girl in the USSR (3:06)
-04. Dima Vikhornov - Folk Song (3:17)(   Читать дальше...   )Жанр: Easy Listening, Future Jazz, NeofolkПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061901B86CCA3916914C82AA84A2905DE164907D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337582   (273261) от 11.11.2019
-
-Битва за Землю / Captive State (2019) HDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы всегда знали, что не одни в этом мире. Мы отправляли сигналы в надежде получить ответ. И нас услышали. За считанные часы пришельцы захватили Землю и установили свое правительство. Сотовая связь и интернет отключены, электронные библиотеки уничтожены. Большой инопланетный брат следит за каждым, его дроны-охотники днем и ночью патрулируют улицы новой Земли. Мы — (   Читать дальше...   )Производство: США / Amblin Partners, DreamWorks SKG, Lightfuse & GettawayЖанр: Фантастика, триллерРежиссер: Руперт УайаттАктеры: Джон Гудман, Вера Фармига, Эштон Сандерс, Джонатан Мэйджерс, Кевин Данн, Джеймс Рэнсон, Алан Рак, Мадлен Брюэр, Машин Ган Келли, Кевин Дж. О’КоннорПеревод: Дублированный (iTunes)Субтитры: Русские (Focs), Английские (Full, SDH)Продолжительность: 01:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2647EF29C3816D78B43B40CE4541DE6019B3A035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337494   (273260) от 11.11.2019
-
-Блуждающая Земля / Liu lang di qiu / The Wandering Earth (2019) HDRip [H.265] [10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273260.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ближайшем будущем становится известно, что Солнце скоро погаснет, и Солнечная система будет разрушена. Тогда человечество запускает масштабный проект под названием «Блуждающая Земля», цель которого — с помощью огромных двигателей по всему миру сдвинуть Землю и полететь искать новое пристанище. Через 17 лет путешествия земляне приближаются к Юпитеру. Гравитация (   Читать дальше...   )Производство: Китай / Beijing Culture, China Film Company Limited., United Entertainment PartnersЖанр: Фантастика, боевикРежиссер: Франт ГвоАктеры: Джеки Ву, Чусяо Цюй, Гуанцзе Ли, Нг Ман-Тат, Цзиньмай Чжао, Цзинцзин Цюй, Чжан Ичи, Ян Хаоюй, Аркадий Шароградский, Ли Хунчэнь, Цзян Чжиган, Чжан Хуань, Цзяинь Лэй, Нин Хао, Ван ЧжиПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (форсированные, полные), английские (полные)Продолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC5B9A7EC48FEE195BB6A3B7FDE3CA778C2ECF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337457   (273259) от 11.11.2019
-
-The Foundry Nuke Studio 12.0v2 [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nuke Studio — мощнейший пакет для композитинга, обеспечивающий пользователей высочайшей скоростью и набором первоклассных функций, не имеющий себе равных на рынке настольных систем. Решение является проверенным в производстве инструментом для создания визуальных эффектов, которое придаст скорости, функциональности и гибкости вашему VFX-конвейеру. Hiero, позволяет (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6342FE0B60BAD9E4AD394888DB79649E2CC3A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188682   (273258) от 03.12.2017
-
-Обои - Desktop Wallpapers Full HD. Part (105) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C168EBEFC227708A882CC6A166570A09FE86693E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336401   (273257) от 11.11.2019
-
-Жизнь с самим собой / Living with Yourself (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисный работник Майлз Эллиот постепенно теряет интерес к работе и браку. Пытаясь улучшить свою жизнь, он соглашается на участие в странном эксперименте. Майлзу обещают сделать из него «лучшую версию самого себя». На удивление, так оно и происходит - на свет появляется Майлз №2. Теперь оригиналу и клону придется не только налаживать жизнь, но и отношения с самим (   Читать дальше...   )Производство: США | Jax Media, Likely StoryЖанр: комедия, фантастикаРежиссер: Джонатан Дэйтон, Валери ФэрисАктеры: Пол Радд, Эйслинг Беа, Десмин Боргес, Карен Питтман, Зои Чао, Зак Черри, Джеймс Соль, Джин Джонс, Роб Янг, Эмили Янг и др.Перевод: ДублированныйСубтитры: русские (Forced, Full), английские (SDH)Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05686628E2A5238635D62FE31EB370FFC56143C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337479   (273256) от 11.11.2019
-
-Nik Collection 2 By DxO 2.0.8 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nik Collection 2 by DxO - это наиболее полная коллекция плагинов от компании Nik Software (ныне принадлежащей Google) с применением фирменной технологии U Point, которая позволяет тонко регулировать яркость, контрастность, насыщенность цвета и другие параметры отдельных объектов или участков фотоснимка. С помощью этих плагинов вы сможете настроить четкость изображения (   Читать дальше...   )Язык интерфейса: Multi/Ru
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80915467C3BB2A49A4E45C6A73AD39EA2E4C4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337581   (273255) от 11.11.2019
-
-Corona Renderer 4 (Hotfix 1) for 3ds Max 2013-2020 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87B27A16635172BA9F98C7475BB6778D78A95FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188739   (273254) от 03.12.2017
-
-Emsisoft Emergency Kit 2017.11.0.8219 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emsisoft Emergency Kit - бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45A05236A33C40B246F8979C2C3E3A3AD05077A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085490   (273253) от 11.11.2019
-
-American Truck Simulator (2016) [Ru/Multi] (1.36.1.0s/dlc) Repack R.G. Механики
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273253.jpg" />
-</div>
-
-
-###  Подробнее
-
-American Truck Simulator это симулятор вождения американских грузовиков по территории США. Игра является параллелью к другой игре студии SCS Software - Euro Truck Simulator 2. Игра позволит вам почувствовать себя "дальнобойщиком" и отправится в путешествие по знаменитым просторам Соединенных Штатов. Игровая механика основана на Euro Truck Simulator 2, но (   Читать дальше...   )Тип издания: RepackРазработчик: SCS SoftwareЖанр: Racing, Simulator, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E7339ED0FB659F9AEDDF8C9AE69DF5E713114C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188748   (273252) от 03.12.2017
-
-Фараон / Faraon (1966) DVDRip [H.264] [Hand Made Uncut]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация эпического романа Болеслава Пруса, один из лучших фильмов о древнем Египте в истории мирового кино.
-На заре цивилизации, когда Древний Египет еще правил миром, люди любили и боролись за власть также, как и в наши дни. Фараоны уже не так всесильны, как раньше, их казна пуста, а сокровищницы жрецов ломятся от золота.
-Любовь и ненависть сжигают сердца юного (   Читать дальше...   )Производство: Польша, кинокомпания “Kadr”Жанр: Драма, История, ЭкранизацияРежиссер: Ежи КавалеровичАктеры: Ежи Зельник, Веслава Мазуркевич, Барбара Брыльска, Кристина Миколаевска, Эва Кшижевска, Петр Павловски, Лешек Хердеген, Станислав Мильский, Казимеж Опалиньский, Мечислав ВойтПеревод: Дублированный (к/ст. "Мосфильм")Субтитры: ОтсутствуютПродолжительность: 01:35:06 + 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7080BE782794A25C852A593F07CC12EB30E6199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337336   (273251) от 11.11.2019
-
-Гарри Поттер / Harry Potter (2001-2011) BDRip [H.264] [Коллекция]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь десятилетнего Гарри Поттера нельзя назвать сладкой: его родители умерли, едва ему исполнился год, а от дяди и тётки, взявших сироту на воспитание, достаются лишь тычки да подзатыльники. Но в одиннадцатый день рождения Гарри всё меняется. Странный гость, неожиданно появившийся на пороге, приносит письмо, из которого мальчик узнаёт, что на самом деле он волшебник (   Читать дальше...   )Производство: Великобритания, США /  Warner Bros.Жанр: фэнтези, приключения, семейныйРежиссер: Крис Коламбус, Альфонсо Куарон, Майк Ньюэлл, Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Том Фелтон, Мэттью Льюис, Иэн ХартПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:32:21 / 02:54:23 / 02:21:41 / 02:37:03 / 02:18:14 / 02:33:31 / 02:26:05 / 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E0E39B7B718671799CAE48A0E1CC4BD90C8F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188659   (273250) от 03.12.2017
-
-Андрей Сарматов | Записки очевидца необъявленной войны [2 тома] (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записки очевидца необъявленной войны» — это взгляд на войну в Донбассе глазами местного жителя. В первом томе речь идет о событиях с ноября 2013 по сентябрь 2014 г. Среди них — киевский майдан, антимайдановские протесты, события в Крыму, трагедия 2 мая в Одессе, оборона Славянска, падение малазийского Боинга, бои за Шахтерск, Саур-Могилу, Иловайск и многие другие (   Читать дальше...   )Жанр: Биографии и Мемуары, История, Политика, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC99AE46ECDF7C0DDA5B7C36F60ACC83A8DB728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337242   (273249) от 11.11.2019
-
-Udemy | Python разработка - с нуля до профессионала. Python 3 (2019) PCRec [H.264/720p-LQ]
-
->>След.
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните с основ и пройдите весь путь до создания собственных приложений!
-
-Станьте программистом Python и изучите один из самых востребованных навыков современной разработки!
-(   Читать дальше...   )Производство: UdemyЖанр: Программирование, PythonПродолжительность: 20:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DD29846E5D89AAA911A027CC931E0E5ADF1D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188685   (273248) от 03.12.2017
-
-Pixelmator Pro 1.0.3 [Multi/Ru]
+Vipor Plus CRM - All in One Calendar and Contacts 2.0.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pixelmator Pro - невероятно мощный, красивый и простой в использовании редактор изображений, предназначенный исключительно для Mac.
-
-Pixelmator Pro предлагает широкий спектр профессиональных инструментов для редактирования изображений без искажений, позволяет создавать лучшие на ваших фотографиях, создавать великолепные композиции и рисунки, рисовать, рисовать, применять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 декабря 2017Разработчик: Pixelmator Team LtdПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+Организуйте свою личную и профессиональную жизнь!
+Vipor Plus является лучшим приложением сочетающим в себе  календарь и список контактов, которое поможет вам оставаться на вершине графиков и обеспечивает мгновенный доступ к важным деталям. Vipor Plus предназначен для предпринимателей, владельцев бизнеса. Управляйте своими календарями, контактами, разговорам, и задачами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: VIPorbit Software International, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D612D0E30F33F5E64E10CE5AF78B1FC33D247806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335814   (273247) от 11.11.2019
-
-Тайна печати дракона (2019) WEBRip [H.264/720p-LQ] [Локализованная версия]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский путешественник Джонатан Грин получает от Петра I заказ на изготовление карт Дальнего Востока России. Ему вновь предстоит долгий путь, полный невероятных приключений, который приведет его в Китай. Картограф столкнется с массой головокружительных открытий, неожиданных встреч с диковинными существами, китайскими принцессами, мастерами смертоносных боевых (   Читать дальше...   )Производство: Россия, Китай / Buffalo 8 Productions, CTB Film Company, China Film Group CorporationЖанр: ПриключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Арнольд Шварценеггер, Чарльз Дэнс, Джеки Чан, Синтун Яо, Кристофер Фэйрбэнк, Рутгер Хауэр, Мартин Клебба, Юрий Колокольников, Павел ВоляПеревод: ДублированныйСубтитры: Русские (forced) хардсабПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D6AF09A2A212F4F9B812A89BF1BE62633503BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188713   (273246) от 03.12.2017
-
-Радио FM России Mod 5.1 (ARMv7/x86) [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн радио с отображением названия проигрываемого трека. Добавление в избранное, таймер.Релиз состоялся: 02.12.2017Разработчик: masterfulПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EB523326CFFAC7FFD0AB2944984980B47D2CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188667   (273245) от 03.12.2017
-
-Битва экстрасенсов (2017.12.02) WEB-DL [H.264/720p-LQ] (сезон 18, выпуск 11)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273245.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4056383AD1639200F8BA6E8D081BAB9EDE8E0869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940609   (273244) от 11.11.2019
-
-Cities: Skylines (2015) [Ru/Multi] (1.12.2-f3/dlc) Repack R.G. Механики [Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cities: Skylines предлагает по-новому взглянуть на классический жанр градостроительного симулятора. Эта игра как нельзя лучше передает возникающие перед градоначальником трудности и позволяет создать настоящий мегаполис, одновременно привнося в игру приятные новшества. Создатели игры принимали участие в разработке серии Cities in Motion, поэтому игра отличается высокореалистичной (   Читать дальше...   )Тип издания: RepackРазработчик: Colossal Order Ltd.Жанр: Strategy (Manage, Busin., Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505448E813ED77560AD1CDF296B5BFFE6ECF7DC6
+magnet:?xt=urn:btih:9B9968D6B63D7798C4BE746C071212741B882FC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

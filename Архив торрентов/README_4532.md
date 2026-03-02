@@ -1,22 +1,22 @@
-###  Публикация: 1572963   (239481) от 29.08.2022
+###  Публикация: 465681   (96260) от 10.03.2012
 
-HitPaw Watermark Remover 1.3.5 [Multi/Ru]
+Антология | 999. Число зверя [2000] [TXT, PDF, RTF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда вам нужно быстро удалить водяной знак с одного из ваших изображений или видео, лучше всего прибегнуть к специализированным программным решениям, чтобы гарантировать получение высококачественных результатов. HitPaw Watermark Remover - одна из таких утилит. В общем, HitPaw Watermark Remover может пригодиться, когда вам нужно «стереть» водяной знак с ваших изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2022 HitPaw. Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+На дворе 1999 год. Тот год, который должен был стать годом Апокалипсиса — однако не стал. Или может все-таки стал, но мы пока не увидели этого — и не увидим, пока не станет слишком поздно? 1999 год с такой стороны, с какой его увидели величайшие мастера "литературы ужасов" современности. Писатели, которые хорошо знают: Апокалипсис начинается не с вселенского гласа, поднимающего мертвых, а со страха, который живет в душе каждого из нас. 999 жестоким взглядом феерического Эда Гормана. И даже Любовь превращается в Смерть... 999 по расчету Стивена Спрюлла. И льется кровь еще живых в вены еще Неумерших... 999 через призму Майка Маршалла Смита. Человек задыхается в пучине убийств и безумия... 999 год в представлении Кима Ньюмана, Джина Вулфа и Томаса Лиготти. И еще некоторых из тех, кто неподражаем в умении повергать читателя в иррациональный Ужас...Формат: TXT, PDF, RTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC27DF0BD23DCA5C6454818229C6AE2E96E430BC
+magnet:?xt=urn:btih:098E9027382CC0A86D055CCFD9A559044DC7710E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472750   (239480) от 26.05.2021
+###  Публикация: 465615   (96251) от 10.03.2012
 
-ImageRanger Pro Edition 1.8.2.1754 [En]
+Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 25.05.2021Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+01 - I Would Rather Explode (5:04)
+02 - Post Six (5:10)
+03 - Violaceae (4:53)
+04 - Havana Nights (5:42)
+05 - Dusk Till Dawn (3:10)
+06 - Float (6:52)
+07 - Land Leviathan(1:53)
+08 - TMA (3:08)
+09 - here.now.here (5:25)
+10 - Home (6:19)Жанр: Dubstep, Electronic, IDM, Trip-HopПродолжительность: 00:47:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ACDFA0799ED682EA57350DB97B553A237D25A57
+magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573032   (239479) от 29.08.2022
+###  Публикация: 465766   (96250) от 10.03.2012
 
-Vellum 3.3.3 U2B [En]
+Колин Харрисон | Форсаж [2007] [FB2, RTF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239479.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.08.2022Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
+Чарли Равич – преуспевающий бизнесмен. Бывший боевой летчик, прошедший через ад вьетнамской войны, он чувствует себя как рыба в воде в жестоком мире современной коммерции. Но в личной жизни ему не везет: жена страдает болезнью Альцгеймера, сын умер от лейкемии, а дочь Джулия не способна родить. Чарли одержим мыслью о ребенке – продолжателе его рода и наследнике его миллионов. Однажды в баре он знакомится с симпатичной молодой женщиной, умело скрывающей свое темное прошлое, и оказывается в плену чужого кошмара.2007Формат: FB2, RTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E05463880DFEF5928C546939374D73D2C56DDE3
+magnet:?xt=urn:btih:41D6A20D2CEB72D8059747545B67C9583EB6B31E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,27 +85,259 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423404   (239477) от 13.11.2020
+###  Публикация: 465695   (96246) от 10.03.2012
 
-Acorn 6 v6.6.3 [En]
+Биатлон. Чемпионат мира 2012. Рупольдинг (Германия). Мужчины. Эстафета 4x7,5 км (2012) IPTVRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239477.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
+Мужская эстафета на ЧМ по биатлону в Рупольдинге (Германия)Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 01:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465806   (96236) от 10.03.2012
+
+VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CBR)]<Chillout, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eigenart – Gozada Para El Oido (6:03)
+02. Climatic – Circulation 	(6:41)
+03. Softwaver – How Soon Can You Be Here? 	(4:30)
+04. Euphonic Traveller – Pacific Grove 	(6:51)
+05. Gary B – Life Is Beautiful 	(6:07)
+06. Gold Lounge – In The Deep 	(5:54)
+07. Xelomen – Breathe 	(5:37)
+08. Houie D – Mission Galactica 	(4:54)
+09. Spinne – In My Place 	(6:33)
+10. Guardner – Majo 	(8:29)(   Читать дальше...   )2010-2012Жанр: Chillout, DowntempoПродолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A153E41F41FFF819F2C91B394FD093A2C57CBA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465571   (96232) от 10.03.2012
+
+VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Schweizer - Ultra (Original Mix)
+02. Timur Adagio - Broken (Rave CHannel Remix)
+03. Lence & Pluton - Virtual Mirror (Original Mix)
+04. Deep Haze - Ariana (Matt Skyer Remix)
+05. David Broaders - The Best Is Yet To Come (Solid Stone Remix)
+06. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
+07. Moonbeam feat. Leusin - Daydream (Original Mix)
+08. Matt Eray - Beside You (Original Mix)
+09. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
+10. Harry Lemon - Rise - Classic Bonus Track (Original Mix)(   Читать дальше...   )2012Жанр: Uplifting TranceПродолжительность: 02:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465414   (96225) от 10.03.2012
+
+Николай Гербель | Изюмскiй слободской казачiй полкъ. 1651-1765 [1852] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изюмский слободской (черкасский) казачий полк - слободской казачий полк, административно-территориальная и военная единица на Слобожанщине. Полковой центр - город Изюм. Полк появился в 1688 году, стараниями Григория Ерофеевича Донца (Донец-Захаржевского), полковника Харьковского слободского (черкасского) казачьего полка. Вашему вниманию предлагается книга Николая Васильевича Гербеля (1827-1883), русского поэта-переводчика, литературоведа, издателя-редактора, библиографа, которая содержит документальное описание боевых действий полка и знаменательных исторических событий, связанных с ним, за период 1651 – 1765 годов. Также в книге приведен список командиров и полковников.Жанр: Раритеты / Научно-популярная литература / Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465500   (96213) от 10.03.2012
+
+VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96213.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Armada Presents The Miami Soundtrack 2012 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 03:57:22Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Antillas ft Fiora - Damaged (Main Mix)
+02. W&W - Invasion (ASOT 550 Anthem) (Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465224   (96208) от 10.03.2012
+
+VA - Chanson d'amour (2011) [FLAC|Lossless]<Chanson>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jacques Brel - Ne me quitte pas (3:53)
+02.Serge Gainsbourg - L'eau a la bouche (2:31)
+03.Edith Piaf - Mon manege a moi  (3:01)
+04.Francois Deguelt - Je te tendrai les bras (3:10)
+05.Henry Savador - Amour de Saint-Tropez (2:37)
+06.Petula Clark - Je t'aiime (3:14)
+07.Sacha Distel - Parlez-moi d'amor (2:33)
+08.Dalida - Come prima (2:42)
+09.Richard Anthony - Tu m'etaisdestinee (2:09)
+10.Gloria Lasso - Toi, je t'aimerai (2:59)(   Читать дальше...   )2011Жанр: ChansonПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465663   (96204) от 10.03.2012
+
+Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<Electronic, Drum & Bass, Rapcore, Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Negocio (Alexander Head)  (03:38)
+02. Son ellos (Pheex & Impak)  (05:06)
+03. Estrellas en el pecho (Dub Elements)  (04:12)
+04. La hermandad de los Muertos (BSN pose)  (05:19)
+05. Mi Negocio (Maromo Diyeah)  (03:33)
+06. Dame Veneno (Have A Cow)  (04:07)
+07. La Ultima Cena (Psychobitches)  (04:35)
+08. Pa los restos y un dia (Prozac)  (06:48)
+09. Estrellas en el pecho (eRRe)  (06:13)
+10. Gusano Tabernero (St0rmtr00perz)  (04:57)(   Читать дальше...   )2012Жанр: Electronic, Drum & Bass, Rapcore, DubstepПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6DB280A2752DF3EA675F18EFB751F282F8121B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465672   (96202) от 10.03.2012
+
+VA - A State Of Trance 2012 (Mixed by Armin van Buuren) (01.03.2012) [FLAC|Lossless]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96202.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: On The Beach (01:13:46)
 
-Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+ 01. Omnia & IRA – The Fusion (Armin van Buuren’s Intro Edit)
+ 02. VillaNaranjos – Granadella
+ 03. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
+ 04. The Blizzard – Piercing The Fog
+ 05. Audien – Keep This Memory
+ 06. Alexander Popov – When The Sun (Eximinds Remix)
+ 07. Nash & Pepper – Ushuaia Memories
+ 08. Mike Foyle & ReFeel – Universal Language(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:31:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD84D39E8E099CF9AE59F3320B70025BBDB752F3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +345,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627785   (239476) от 20.04.2023
+###  Публикация: 465119   (96201) от 10.03.2012
 
-GOM Player Plus 2.3.86.5355 Portable by 7997 [Multi/Ru]
+Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239476.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GOM Player Plus - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Ashley Wallbridge - The Inner Me (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:09:06Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+1.Ashley Wallbridge - Emotions
+ 2.Ashley Wallbridge feat Elleah - These Walls(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC79B477DC80AC9B6CF8725FB0C2983138DCC29
+magnet:?xt=urn:btih:0FFD516CEC172CC1FAFDF5EABF4E7C96CF282DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +378,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622014   (239475) от 27.03.2023
+###  Публикация: 465572   (96200) от 10.03.2012
 
-RegCool 1.331 + Portable [Multi/Ru]
+Вестникъ Моды. Журналъ моды, хозяйства и литературы [1906] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239475.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Ред.-изд. Николай Павлович Аловерт (1847—1927) — русский журналист, литератор писал: Выпуская въ свѣтъ первый номеръ «Вѣстника моды», я нахожу необходимымъ сказать нѣсколько словъ по поводу причинъ, вызвавшихъ появленіе этого новаго моднаго журнала. Вслѣдствіе историческихъ причинъ, о которыхъ здѣсь не мѣсто говорить, Франція во главѣ съ Парижемъ сделалась законодательницей моды не только для Европы, но и для всего міра. куда проникала европейская цивилизація. Мы, русскіе, конечно, не избѣгли общей участи, и было бы естественнымъ, чтобы мы знакомились съ французской модой непосредственно, т. е. получали бы ее, такъ сказать, прямо изъ Парижа. Случилось, однако, это не такъ. Всѣ существовавшіе и существующiе русскiе модные журналы, эти «вѣстники моды», есть не больше, какъ нѣмецкіе модные журналы (Modenwelt, Bazar) съ русскимъ, текстомъ, а такъ какъ нѣмцы заимствуютъ моду изъ того же Парижа, видоизмѣняя ее по своему національному вкусу (   Читать дальше...   )1906Жанр: Раритеты, журнал, модаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17C2FF843D5D01BC8DD98EF3CAEE31BD5AC5F6AE
+magnet:?xt=urn:btih:3EA33C794A7D2C999D04F8A112D169EF4C16DDA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627569   (239467) от 19.04.2023
+###  Публикация: 465480   (96198) от 10.03.2012
 
-GPU-Z 2.53.0 + ASUS_ROG Portable [En]
+Журнал | Школа кулинара №5 [2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239467.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
+Рецепты, присланные в редакцию читателями, готовятся профессиональными шеф-поварами. Подробные фотоиллюстрации всех этапов приготовления. Рецепты сопровождают практические советы, экскурс в историю продуктов и другая полезная информация.2012Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11A3F0970C339BDAB35FF6FE6BA968A3CF384C74
+magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +430,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635907   (239461) от 27.05.2023
+###  Публикация: 465647   (96196) от 10.03.2012
 
-WinToUSB Technician 7.9 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
+Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239461.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
+1. Lord Of Sp33d – Fock Off You Twat (2012 Refix)  (2:38)
+2. DJ Kaos – Chainsaw	  (5:41)
+3. Lord Of Sp33d – Youtube Poop (2011 Refix)  (3:09)
+4. DJ Kaos – The Only Stars I Know Are In The Sky VIP  (3:10)
+5. Lord Of Sp33d – Attackieren (2012 Refix)  (2:20)
+6. DJ Kaos – Pissing In Your Seething Stigmata Wounds VIP (3:13)
+7. Lord Of Sp33d – Dit Liedje Is Nee (2012 Refix)  (2:52)
+8. DJ Kaos – Jugular  (5:17)
+9. Lord Of Sp33d – Gentle Noise (2012 Refix)  (3:16)
+10. DJ Kaos – Heroin Activist VIP 5  (3:17)(   Читать дальше...   )2012Жанр: Speedcore, NoiseПродолжительность: 00:40:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A5A9D9C90472854A6EA57602CA3D0D1A2FB8417
+magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,27 +465,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423559   (239460) от 13.11.2020
+###  Публикация: 465670   (96194) от 10.03.2012
 
-Serial 2 v2.0.4 [En]
+Подборка журналов | Готовим дома [2010-2011] [DJVU, PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239460.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Serial современный эмулятор терминала, который будет полезен инженерам и системным администраторам для эффективной работы с серверами, сетевым оборудованием и аппаратным обеспечением.
-
-Для системных администраторов, Serial поддерживает все важные последовательности и прерывания, необходимые для подключении и управления маршрутизаторами и коммутаторами. Также включает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Decisive Tactics, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Журнал кулинарных рецептов, составленный из писем читателей. Особенность журнала в том, что каждый рецепт комментирует повар. Он советует, как улучшить блюдо и ускорить процесс его приготовления. Кроме того, вы здесь найдете рекомендации врача-диетолога, который подскажет, каким образом сделать то или иное блюдо более здоровым и менее калорийным.2010-2011Формат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B0FC1EE5A602A21693C20FC7570B73D09C09B57
+magnet:?xt=urn:btih:14ED9FB8EC9B57A84FE2AB7366C18F14F2A69FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +491,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472687   (239457) от 26.05.2021
+###  Публикация: 465649   (96189) от 10.03.2012
 
-Data Guardian 6 v.6.0.9 [En]
+Лев Яшин (1971) SATRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239457.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Рассказ о жизни лучшего вратаря мира - Льва Яшина. Журналисты задают ему и его жене вопросы о том как он живёт на футбольном поле и вне его, а комментатор рассказывает как складывалась его футбольная карьера и через что ему пришлось пройти чтобы добиться мировой славы и сколько трудностей, падений было на его пути до того как он получил признание всего мира!Жанр: ДокументальныйРежиссер: С. ТолкачевПродолжительность: 00:26:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60DA7AE0F98D7D13EE1C7B91FB9EE25706B55F1E
+magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,26 +517,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627629   (239455) от 19.04.2023
+###  Публикация: 465270   (96183) от 10.03.2012
 
-SoundSwitch 6.6.1.0 [Multi/Ru]
+Space Cat - The Remixes (2010) [FLAC|Lossless]<Psychedelic / Full On>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239455.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SoundSwitch — легко переключаемся между звуковыми устройствами
-Если к вашему компьютеру подключено сразу несколько аудиоустройств: домашняя аудиосистема и студийные мониторы, наушники с гарнитурой и микрофон для записи подкастов, например, вы знаете какую боль может доставлять переключение между ними системными средствами. Сделает жизнь легче бесплатная утилита SoundSwitch. (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+01. Transformer (Space Cat vs. Black & White rmx) 7:26
+02. Virtual Reality (Dynamic Volt and Switch rmx) 6:28
+03. Power Up (Perplex rmx) 6:48
+04. Fire Ball (Talamasca rmx) 7:46
+05. Sun Burn (Dynamic rmx) 8:35
+06. Life Guard (Vibe Tribe rmx) 7:48
+07. Shut Up And Dance (Space Cat vs. Perplex feat. Michele Adamson) (The Cat Mix) 7:07
+08. Mechanical Dreams (Shanti rmx) 7:12
+09. Joy Ride (Space Cat vs Fresh) 7:50Жанр: Psychedelic / Full OnПродолжительность: 01:07:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0589E6545CA0ED895220C874DA59F03FE629D4F6
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +551,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622070   (239451) от 27.03.2023
+###  Публикация: 465814   (96181) от 10.03.2012
 
-FireAlpaca 2.10.1 + Standalone [Multi/Ru]
+VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239451.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
+01. Trolley Snatcha - The Future (06:55)
+02. Goldie Lookin Chain - Tokyo Set Menu Mix (44:34)
+03. Suko - Makignum (06:03)
+04. Schema - Chutney Grip (05:11)
+05. Goldie Lookin Chain - PropaTingz - Babylons Scared (16 Bit Remix) (04:32)
+06. NTRLD - Big Man (05:14)
+07. La Roux - In For The Kill (Skream's Let's Get Ravey Mix) (05:03)
+08. Jahdan Blakkamoore - The General (Marcus Visionary Remix) (05:08)
+09. High Rankin - No Money For Guns (05:15)
+10. Goldie Lookin Chain - Kissy Sell Out Mix (11:04)(   Читать дальше...   )2012Жанр: Dubstep, ProgressiveПродолжительность: 02:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2067AEB954BE4812FE59E6BC94E4F46D0AFA2B43
+magnet:?xt=urn:btih:3D038053C8C5E8530B50CE0431DBAE9690A242AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +586,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627493   (239450) от 19.04.2023
+###  Публикация: 465299   (96178) от 10.03.2012
 
-XnViewMP 1.4.4 (x64) + Portable [Multi/Ru]
+VA - Звезды Танцевальных Хитов. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239450.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+001. Digital Punk & Chris One - The virus spreads
+ 002. David May & Kelvin Scott - I ll Be Watching You
+ 003. Katy Perry - The One That Got Away (Saul Ruiz Club Mix)
+ 004. Robbie Neji Feat. Benita - Yesterday (Radio Edit)
+ 005. Lmfao - Sexy and i know it
+ 006. Jack of Sound - Kaylees Nightmare (original mix)
+ 007. K.Melody - За Тобой
+ 008. Romano & Sapienza feat. Rodriguez - Tacata
+ 009. Chuckie feat. Gregor Salto - What happens in vegas
+ 010. Crystal Rock - How You Love Me Now (Phillerz remix edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51B86CD0DDB179DF94CF2688CF7AB5E5DBEE450D
+magnet:?xt=urn:btih:C8D3509881E4A32FD773085F67C30BC9F8AE20F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,26 +621,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573600   (239448) от 01.09.2022
+###  Публикация: 465366   (96176) от 10.03.2012
 
-Scrutiny 12 v.12.4.2 [En]
+VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<Uplifting Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239448.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+001. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix)
+002. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
+003. E.P.I.C. feat. Julie Thompson - Breathe (K.Blank & Moelamonde Remix)
+004. Avion - Brilliant (Original Mix)
+005. Emma Hewitt - Colours (Armin Van Buuren Remix)
+006. Billy Gillies - Digital Sundown (Paul Todd remix)
+007. Dayzanst - Double Bind (Chasing Dreams Memory Mix)
+008. Cymatics - Empire Of The Sun (Original Mix)
+009. Dart Rayne - Everlasting (Original Mix)
+010. Alpha Force feat. Claire Willis - Fade Away (Original Mix)(   Читать дальше...   )09.03.2012Жанр: Uplifting TranceПродолжительность: 02:33:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:991A79EA71CF4AA7D04B1CB90D9CD66BFC9AD07F
+magnet:?xt=urn:btih:A26EC58227567707DE17952FFDAA0E6826A28104
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,27 +656,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423663   (239447) от 13.11.2020
+###  Публикация: 465618   (96174) от 10.03.2012
 
-Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1887 [En]
+MoShang - Further East (2010) [FLAC|Lossless]<Chillout, Lounge>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239447.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+MoShang - Further East (2010)
+Год: 2010
+Жанр: Chillout, Lounge
+Продолжительность: 00:47:11Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: tracks+.cueТрек лист:
+01. Ego & I (04:09)
+02. Pagoda (03:29)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C07FF1D0E88FDEF0FF1E5C23D5B4CC814A75CF24
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,25 +689,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627513   (239446) от 19.04.2023
+###  Публикация: 465092   (96147) от 09.03.2012
 
-Bandicam 6.2.0.2057 RePack (& portable) by Dodakaedr [Multi/Ru]
+The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Electroacoustic>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239446.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
+1 - The Pelican And The Girl [04:54]
+2 - Monkey [02:18]
+3 - How The Ostrich Became A Girl And Her Bicycle [04:12]
+4 - Pickering's Hyla [05:58]
+5 - Widow, Daddy, And The Wolf [02:30]
+6 - Peacock And The Kitty [04:22]
+7 - Dolphin [05:00]Жанр: Ambient,Female vocal, ElectroacousticПродолжительность: 00:29:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9335CDAE4F536944E35F4E2392D9C9C44603C5C4
+magnet:?xt=urn:btih:AC9C5B5A95C6BFDC609114DCF23EA07CC580CABC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,27 +721,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423909   (239441) от 14.11.2020
+###  Публикация: 465199   (96131) от 09.03.2012
 
-Receipts 1.9.10b5 [En]
+[Картинки] Фото знаменитости/Теледивы
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239441.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
-
-Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Dirk HoltwickПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Немецкий
+Подборка фоток наших телеведущих, красивых и обаятельных.
+Мария Ситтель, Анна Кастерова, Ирина Шадрина, ведущие МетеоТВ и другие.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FE198F86D87998CA303C75DB50FB8CACE0A5880
+magnet:?xt=urn:btih:9985C5D1B1B441A2EAEC5028A63F77116327DF09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,25 +748,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622069   (239433) от 27.03.2023
+###  Публикация: 464510   (96116) от 09.03.2012
 
-Aiseesoft Video Converter Ultimate 10.6.26 RePack (& Portable) by elchupacabra [Multi/Ru]
+Autopoiesis - Cytherean Dreams (2002) [MP3|192 Kbps] <Electronic, Berlin School, New Age>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239433.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_96116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01.Cytherean Dreams (14:40)
+ 02.Erebus Twilight (4:29)
+ 03.Juni (2002) (5:55)
+ 04.Morning Sequence (6:44)
+ 05.Purple Exit (Extended Version) (6:21)
+ 06.Autopoiesis Part 3 (6:06)
+ 07.Praeludium in C (Bach) (3:59)Жанр: Electronic, Berlin School, New AgeПродолжительность: 00:48:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:435604515E674574B77678F0D6B754289E1D1FE8
+magnet:?xt=urn:btih:AD7028CD4C067E17FA43C1C78EE19F19997648E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,214 +780,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627583   (239426) от 19.04.2023
+###  Публикация: 464446   (96103) от 09.03.2012
 
-Kate 22.12.3 Build 2005 + Portable [Multi/Ru]
+Sunstryk - Pure Essence (2010) [FLAC|Lossless]<Psy-Progressive>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239426.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_96103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kate - это кроссплатформенный текстовый редактор, который поддерживает различные языки программирования, включая C, C++, Haskell, Latex, LISP, Lua, Pascal, Python и Ruby. Одна из главных особенностей Kate - это возможность одновременного открытия нескольких файлов и их отображение в древовидном порядке на боковой панели, что значительно облегчает работу с проектами, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01 Sunstryk - Ascending Soul 07:41
+ 02 Sunstryk - Leaving Eden (Album Version) 09:43
+ 03 Sunstryk - Killer-Born 10:53
+ 04 Sunstryk - No Surface (Extended Version) 10:46
+ 05 Sunstryk - Love Again 11:04
+ 06 Sunstryk - Sacred Place 09:12
+ 07 Sunstryk - Pure Essence 09:11
+ 08 Ace Ventura - Baby Boom (Sunstryk Remix) 09:462010Жанр: Psy-ProgressiveПродолжительность: 01:18:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78E5AB9A28E181660D7CC8288236093F51666F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638324   (239425) от 07.06.2023
-
-Unclutter 2.2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unclutter - это новое удобное место на рабочем столе для хранения заметок, файлов и клипов. Чтобы открыть карман, просто наведите мышь на самую верхнюю часть экрана и прокрутите вниз. Перетащите элементы из других приложений в верхнюю часть экрана, чтобы сохранить их в Unclutter.
-Будучи всего лишь одним легким жестом, Unclutter становится удивительно полезным и удобным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2021 Eugene Krupnov, UJ.LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302D5C2A1EA6891075468D4195DAF69DCF2FC5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423926   (239424) от 14.11.2020
-
-BusyCal 3 v3.11.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239424.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
-BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0F29913554C57EA43C7C884150E4A0827C2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423903   (239422) от 14.11.2020
-
-Hookshot 1.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hookshot - позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1593CE5326799F71288C7789B8602BE3F524E6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573723   (239417) от 01.09.2022
-
-Yate 6.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62BA42158C490CCF1AF4726F332AD1943EB164B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423907   (239413) от 14.11.2020
-
-PatterNodes 2 v2.3.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239413.jpg" />
-</div>
-
-
-###  Подробнее
-
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79601165163A2BBAE0647D88657860B4FEF8A76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423937   (239407) от 14.11.2020
-
-Timemator 2 v2.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматизируйте отслеживание времени на основе ваших действий на Mac. Timemator позволяет полностью автоматизировать отслеживание времени на основе ваших действий на Mac. Просто укажите Timemator, какие файлы, приложения или веб-сайты вы используете для своей работы, и он автоматически запустит таймер для вас.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Catforce StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D3C51D8FA9BCCADA0BA47852B66AD650B5F33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423928   (239400) от 14.11.2020
-
-BusyContacts 1.4.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239400.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8812C158B80C2DD022FCFC76CAD0204B75D868
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

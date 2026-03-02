@@ -1,3 +1,206 @@
+###  Публикация: 1201281   (792666) от 24.01.2018
+
+VA - Empire Records. Enigma Alive vol.2 (2018) [MP3|320 Kbps] <New age, Enigmatic, Folk>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aithra - Shadow Play
+02. Narcotic Chill - On The Last
+03. Ryan Farish - Walk With You
+04. Alexey Medvedev - Sentir el Color(   Читать дальше...   )Жанр: New age, Enigmatic, FolkПродолжительность: 03:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3823DE2B4C743FA5BC86908872D553A6105E509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201328   (792656) от 24.01.2018
+
+VA - Deep House Collection Vol.154 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Monkeyzz feat. Louise Mambell - Ghost (Original Mix) 3:50
+02. Abriviatura IV - Bringing Me Down (Original Mix) 5:17
+03. Adisyn - Digital Heart (Original Mix) 7:02
+04. Alan Junior - Train Of Love (Original Mix) 5:41(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27239ACB8CD0D63E544F577D992D4BF4C2EA266E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387004   (792581) от 31.05.2020
+
+VA - Record Super Chart 638 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+02. El Capon - Shut Up Chicken 2:31
+03. Topic & A7S - Breaking Me 2:47
+04. Little Big - Hypnodancer 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF5FCA38F088F81A559CE62EDAB95A5E14FC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123277   (792531) от 07.04.2017
+
+VA - Beatport Trance  Pack (07.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Photographer - Infinity (Roman Messer Radio Edit)  3:29
+02.  Ahmed Romel - Dust & Echoes (Extended Mix)  6:14
+03.  Miroslav Vrlik - Save Me (Extended Mix)  7:32
+04.  Ferry Corsten pres. Gouryella - Venera (Vee's Theme)  3:09(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AC76FA654F9FF2A8994A95027DAE3354FDBDF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387063   (792517) от 31.05.2020
+
+VA - Music News vol.12 (2020) [MP3|320 Kbps] <Pop, Hard Rock, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga - Alice (02:58)
+ 02. Lady Gaga - Stupid Love (03:14)
+ 03. Lady Gaga - Rain On Me (feat. Ariana Grande) (03:02)
+ 04. Lady Gaga - Free Woman (03:12)(   Читать дальше...   )Жанр: Pop, Hard Rock, DanceПродолжительность: 03:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCF2EFC57134876216DB9BFF2907F0D1116CC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386838   (792504) от 31.05.2020
+
+VA - Music for You vol.2 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Tension Experiment - Acid Rain (06:36)
+ 02. Haken - Nil by Mouth (06:52)
+ 03. Soen - Lascivious (05:37)
+ 04. Arch Echo - Immediate Results! (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4BA591B03AA1B50CB688E9C8CDD98B92576D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123222   (792369) от 07.04.2017
+
+VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 The Cat Empire-The Lost Song 3:20
+002 Emeli Sande-Every Single Little Piece 4:03
+003 The Rideouts-Put The Blame On Me 4:08
+004 Lorde-Tennis Court 3:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BE2C6EBF4B9ECDDC024B9D8C075B70E33C89CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123429   (792338) от 07.04.2017
 
 VA - Hits of My Soul Vol. 25 (2017) [MP3|320 кб/с]<Trailer Music>
@@ -542,209 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27AAC9247F6B033315417736092568CBBE5C0BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201680   (791989) от 25.01.2018
-
-VA - German Top 100 Single Charts 26.01.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791989.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Camila Cabello - Havana (feat. Young Thug)
-004. Eminem - River (feat. Ed Sheeran)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CB71F8CF77A1429D14310B8B004FA2F0DB9C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201687   (791986) от 25.01.2018
-
-VA - Музыка, с которой мы выросли (зарубежная). Выпуск 2 (1969-1993) [MP3|320 Kbps] <Rock, pop, disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - It Came Out Of The Sky (1969) 02:57
-02. Creedence Clearwater Revival - Travelin' Band (1970) 02:11
-03. Led Zeppelin - Bron-Y-Aur Stomp (1970) 04:18
-04. The Sweet - Santa Monica Sunshine (1971) 03:28(   Читать дальше...   )Жанр: Rock, pop, discoПродолжительность: 06:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634F21A7B6C0BF3910842B2F3465BA656030A69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201601   (791982) от 25.01.2018
-
-Boris Brejcha - Best of (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Minimal, Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Gum [8:56]
-02. Welcome Stranger [9:07]
-03. Monster In The Box [7:15]
-04. Die Lustgrotte [7:07](   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 05:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3D503535E1A898E96E57770EB87CBEDF7B21F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200131   (791978) от 25.01.2018
-
-Владимир Высоцкий - Высоцкий & Co. Песни и стихи-посвящения (2CD) к 80-летию поэта (1962-1980) (Бутлег) [MP3|192-320 Kbps] <Авторская песня, стихи>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник приурочен к 80-летию со дня рождения В.С.Высоцкого (25 января 1938 г.) и содержит его песни (42) и стихи (4), которые он посвятил свои друзьям, близким людям и известным личностям того времени.CD1
-01-Лежит камень в степи (Артуру Макарову) (1962) (01:08)
-02-Большой Каретный (Левону Кочаряну) (1962) (01:15)
-03-В этом доме большом раньше пьянка была (Георгию Епифанцеву) (1964) (01:04)(   Читать дальше...   )Жанр: Авторская песня, стихиПродолжительность: 02:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802E6E2D119067245E76A79B8230D7459531E56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090058   (791906) от 25.01.2018
-
-Владимир Высоцкий - Народно любимые песни (2017) [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791906.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.- Аисты 4:09
-002.- Бал-маскарад 1:30
-003.- Баллада о борьбе 4:01
-004.- Баллада о брошенном корабле 4:17(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 09:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E40C5B3681A6FA16EA3857308F207869879C6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387326   (791825) от 01.06.2020
-
-VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echopraxia - 3s Without 4 (03:51)
- 02. Jason Becker - Air (05:40)
- 03. Arch Echo - Tempest (05:18)
- 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387426   (791817) от 01.06.2020
-
-VA - не Громкие новинки недели 69 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alina - Больно, Но Весело (3:02)
-2. Anivar - Новый Рассвет (Dmitry Air Remix) (4:03)
-3. BELTY - Море (4:26)
-4. Dante - Пряными Травами (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4013C231B67C04A6D1C4D319B4871AF434E290DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

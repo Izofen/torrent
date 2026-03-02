@@ -1,3 +1,119 @@
+###  Публикация: 1835068   (250587) от 05.11.2025
+
+VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Cross - Arthur's Theme (Best That You Can Do) (3:53)
+02. Tina Turner - The Best (4:10)
+03. Alphaville - Forever Young (3:46)
+04. Yes - Owner of a Lonely Heart (4:28)(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835130   (250572) от 05.11.2025
+
+VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cher - Believe (3:58)
+02. THE GOO GOO DOLLS - Iris (4:49)
+03. Big Mountain - Baby, I Love Your Way (4:29)
+04. Diddy - I’ll Be Missing You (feat. Faith Evans & 112) (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F20E005ABFFD0B6D9A5C0E0DBD1DE541B40B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833270   (250471) от 04.11.2025
+
+Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West End Girl (4:06)
+02. Ruminating (3:27)
+03. Sleepwalking (2:57)
+04. Tennis (2:31)(   Читать дальше...   )Жанр: Pop-Rock, ElectropopПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F55FF2074A3026E439175669B4DA5B32FC7D430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564911   (249563) от 21.07.2022
+
+Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break Records [WavPack|Lossless|image + .cue] <Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_249563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Action [4:44]
+02. Go Go Yellow Screen [6:01]
+03. The Beauty & The Beast [5:06]
+04. Don't Stop [4:38](   Читать дальше...   )Жанр: Euro-Disco, Synth-PopПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8EA8797AF8E997020CB922B1BC6D025BC66878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492747   (248473) от 07.05.2012
 
 Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
@@ -632,122 +748,6 @@ The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352560   (243110) от 15.01.2020
-
-The Vision Mastermixers - Immaculate Mixes II (2001) [FLAC|Lossless|image + .cue] <Disco, House, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sawmix 1 (7:32)
-
-1.1.	I Heard A Rumour
-1.2.	Never Gonna Give You Up(   Читать дальше...   )Жанр: Disco, House, Synth-popПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCC3A7B259AC6442BA12A52FC1A3701EDCF0DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624225   (242804) от 05.04.2023
-
-VA - Deutscher Schlager Hit Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie hat es wieder getan (feat. Florian Silbereisen) (3:33)
-02. Zimmermann - Himmelblaue Augen (Single Mix) (3:25)
-03. Nino de Angelo - Jenseits von Eden (3:54)
-04. Tanja Lasch - Marie (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526E7691579B05D732D471B83123DF81D728C9C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541518   (242642) от 03.04.2022
-
-VA - Sweet Summertime 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes - Summer Of Love (3:04)
-02. Eric Church - Springsteen (4:23)
-03. John Travolta - Summer Nights (From “Grease”) (3:34)
-04. Bryan Adams - Summer Of '69 (3:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07893146260B1CEA8A19B374D441867900DEE23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628327   (242202) от 22.04.2023
-
-Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Left To Lose (3:45)
- 02. Run A Red Light (3:39)
- 03. Caution To The Wind (4:07)
- 04. When You Mess Up (3:48)(   Читать дальше...   )Жанр: Pop, House, DowntempoПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
 ```
 
 https://mybot314.ru/tekegram_catalog/

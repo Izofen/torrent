@@ -1,3 +1,177 @@
+###  Публикация: 1447581   (1031657) от 14.02.2021
+
+VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Von Gert - Magic Of Trance Vol 12 (Continuous DJ Mix)
+02. Ithur - Mentor (Extended Mix)
+03. Roman Sand - Waterfalls (Original Mix)
+04. Catchfire - Falling Down (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DD5D7B3780A8A7D9112C1BFB8A257DD7E2F2FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620882   (1031227) от 24.03.2023
+
+VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tillmann Uhrmacher - On The Run (Talla 2XLC Extended Remix) [6:21]
+02. Vimana - Dreamtime (Johan Gielen Extended Remix) [7:24]
+03. Talla 2XLC - Ragnaroek (Extended Mix) [6:46]
+04. Allen Watts - Mainframe (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C7A247713E8EBA1777BEC5AEC1C25EAE6B7B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621691   (1030993) от 25.03.2023
+
+VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katrin's World & Trance Reserve - RUSH (Extended Mix) [5:55]
+02. Trance Reserve - Black Shark (Extended Mix) [5:54]
+03. U-Mount & SpaceLine - Libra Terra (Extended Mix) [7:34]
+04. Sergiy Akinshin - RUN (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D05AE6E685C2F73177445AFCE66B12B2BB4E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621431   (1030988) от 25.03.2023
+
+VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flambo - By Your Side (Expand) [3:23]
+02. Flambo - Trancetastic (Original Mix) [4:55]
+03. Tonliebe - Unbreakable (Instrumental Version) [3:21]
+04. Mike Rules - Sunflower (Original Mix) [5:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868E9DD477DB6C571ADD6A4B3D44ED988C20C386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621141   (1030986) от 25.03.2023
+
+VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Larssen - Time Machine (Original Mix) [6:46]
+02. Sybranax - Binary Star (Original Mix) [6:21]
+03. Nick Osta5h - Deja Vu (Original Mix) [7:01]
+04. Atti Master & PUNK JUNGLE - Enter The Future (Extended Mix) [5:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFBB8ECAD59BAD8DB48E7ADF04C6FA5B7FB73AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448543   (1030701) от 18.02.2021
+
+VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Plumb - Somebody Loves You (Extended Mix)
+02. Dan Stone - Vice Versa (Extended Mix)
+03. Paul Denton - Existence (Extended Mix)
+04. James Dymond - Jupiter & Beyond (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE81BEF205265F2D0D1D27B9158416280226AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448899   (1030481) от 19.02.2021
 
 VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
@@ -577,180 +751,6 @@ DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741E56E46C4E871D8DCEC517C638A3147A959992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980868   (954839) от 30.01.2016
-
-VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Eskova - Without You (Aurosonic Chillout Remix)
-02. Feel & Make One - The Power Of Nature (Original Mix)
-03. Nomosk feat. Cari - Don't Hold Back (Original Mix)
-04. Audiocells - Mass Effect (Original Mix)(   Читать дальше...   )Жанр: Trance, ChilloutПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9A61B6663969642625F98E5DDDE718748CC89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089209   (954016) от 02.01.2017
-
-VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristan Armes - Dreamfall (Original Mix) 06:14
-02. Josh Oshima - Voyage (Original Mix) 06:50
-03. Pvr - Solar Station (Original Mix) 08:21
-04. Nord Horizon - Innocent Angel (Original Mix) 07:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25453CB333FBF50F6CE2F1298A31A3A131990B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089164   (953904) от 02.01.2017
-
-VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M.P - November Leaves (Psymfonius Remix) 06:35
-02. Barzek - July (Stephane Badey Remix) 08:28
-03. Noize Compressor - Hurricane (Original Mix) 06:54
-04. Pax (UK) - Transatlantic (Mobil Remix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2715BD45BBA4822F640821617E893EA54701F27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089596   (950787) от 04.01.2017
-
-VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Decline - Lunge (Original Mix) [4:23]
-02. Sentencia - Above The Sky (Original Mix) [4:30]
-03. Dmitry Kostyuchenko - Heaven Love (Original Mix) [7:39]
-04. Yuri Pike - 21 (Original Mix) [6:19](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090358   (947684) от 06.01.2017
-
-VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dario Synth - Without You (Michael D remix) (06:43)
-02. Sancho - Domi9 (06:01)
-03. Ilya Goryachev - Gold Waters (06:23)
-04. Veselin Tasev - Don't Kill The Love (extended mix) (07:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090407   (947531) от 06.01.2017
-
-VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
-02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
-04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

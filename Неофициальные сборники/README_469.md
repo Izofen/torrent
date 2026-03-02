@@ -1,3 +1,206 @@
+###  Публикация: 1176222   (371795) от 21.10.2017
+
+VA - По волне моей памяти: Том 3 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Михаил Боярский - Вот и расстались  5:54
+02.  Алла Пугачёва - Песня на бис  7:13
+03.  Игорь Тальков - Бывший подъесаул  5:59
+04.  Александр Барыкин - Букет  3:40(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415609   (371750) от 14.10.2020
+
+VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - J Tian HD - Carrapicho (2:40)
+002 - Lele Pons, Guaynaa - Se Te Nota (with Guaynaa) (2:35)
+003 - Bad Bunny - Yo Perreo Sola (2:52)
+004 - Jeison el Brother - Baila Mi Cumbia (3:28)(   Читать дальше...   )Жанр: Latin, Bachata, RumbaПродолжительность: 22:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069868   (371699) от 05.11.2016
+
+VA - Любимая волна. Версия 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Наталья Подольская & Владимир Пресняков - Дыши 3:46
+002.Ya-Ya - Bad Girls 3:48
+003.Александр Антонов - Это Все Что Я Могу 3:52
+004.Bakermat - Ballade 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F95C45292CF75B3FF966DAD9C5CF6CFC2A4CF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069863   (371697) от 05.11.2016
+
+VA - Популярный драйвовый хитовичок. Версия 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Djennet - Ты Мой 3:51
+002.Stephen - Your Life 4:07
+003.Винтаж - Немного Рекламы 3:40
+004.Karlk Feat. Guitk - Jeff 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A453C9E1BBE9DB7707121080F2405D6779D0F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176208   (371628) от 21.10.2017
+
+VA - По волне моей памяти: Том 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Добрынин Вячеслав - Ах, какая женщина  4:35
+02.  Юрий Антонов - Берегите женщин  4:38
+03.  Владимир Кузьмин, Алла Пугачева - Две звезды  3:57
+04.  Игорь Скляр - Старый рояль  2:21(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176295   (371599) от 21.10.2017
+
+VA - По волне моей памяти: Том 4 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Олег Даль - Есть Только Миг  3:23
+02.  Игорь Иванов - Облака в реке  3:01
+03.  Михаил Муромов - Яблоки на снегу  4:28
+04.  Юрий Лоза - Зима  4:05(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583EB5E28BE800E5B1041F6A875DAB0B0F26E131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415573   (371594) от 14.10.2020
+
+VA - Love Lyrics Songs (2020) [MP3|320 Kbps] <Pop, Rock, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brook Benton - Rainy Night In Georgia
+002. Brandy - I Do It For You
+003. Sanne Salomonsen - It Must Have Been Love
+004. Ray Charles - Lonely Avenue(   Читать дальше...   )Жанр: Pop Rock Lyric, Romantic BalladsПродолжительность: 06:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC794D7A6D0597D337DB2D9F0D022789BA3DA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415540   (371584) от 14.10.2020
 
 VA - Music News vol.40 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -548,209 +751,6 @@ VA - Absolute Busloops Tech Construction (2015) [MP3|320 кб/с]<Club, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DCF17453DFB2AA58482581BCAE80FED830DD33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254783   (370386) от 15.10.2018
-
-VA - Music For Sports Games: Hard Dance Party (2018) [MP3|320 Kbps] <Hard Dance, Hardcore, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370386.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Mad Dog - Laughing Loud
-002. Al Twisted & Necrotic - Screwface
-003. Terribble Smile - Teuflischer Schmerz
-004. Synthax - Sick & Repulsive(   Читать дальше...   )Жанр: Hard Dance, Hardcore, ElectroПродолжительность: 09:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AEC3BC7F8A1D515537D6779CA4F3ECBCE06D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950368   (370371) от 26.10.2015
-
-VA - Vocal Trance Seduction Vol 6 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Rene, Somna - Back to Life (Original Mix) (07:00)
-02. Weirdness feat. Amy Hamblin - Rain Falls On Me (Radio Edit) (03:01)
-03. Andy Storm - Autumn Nocturne (Original mix) (04:53)
-04. Kaimo K & Cathy Burton - You Deserve Life (Radio Edit) (03:52)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EBAC321C441FB5F6693B4F1BB6CDDFF05F4D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254908   (370367) от 15.10.2018
-
-VA - Top50: Tracks Deep House Ver.4 (2018) [MP3|320 Kbps] <Deep House, Tech House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell feat. Steve Edwards - Watch The Sunrise (Everyonne Extended Remix) 5:59
-02. Zonatto & Di Morais - Ok! (Original Mix) 5:07
-03. DJ Dark & MD DJ & Martova - Crazy Extended Mix) 4:43
-04. MARUV - Black Water (Original Mix) 3:50(   Читать дальше...   )Жанр: Deep House, Tech House, Club HouseПродолжительность: 04:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E655774C6887CDA70559E62E69E21A620A47543F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069985   (370326) от 05.11.2016
-
-VA - Лучшие кавер-версии (часть 1) (2016) [MP3|320 Kbps] <Covers>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Грин - Возьми меня в лодку ((Styx - Boat on the river) (03:07)
-02. Евгений Омегин - Девушка с жемчужными волосами (Omega - White Dove) (05:51)
-03. Demis Roussos & Диана Гурцкая - From Souvenirs To Souvenirs (02:39)
-04. Ариана - Адажио (Ariana Dao - Adagio) (04:06)(   Читать дальше...   )Жанр: CoversПродолжительность: 03:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B133D19856056FF5859A49AADCD91444A9B2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070042   (370324) от 05.11.2016
-
-VA - Лучшие кавер-версии (часть 2) (2016) [MP3|320 Kbps] <Covers>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анне Вески - Если вам грустно (Raffaella Carra - Tanti auguri) (02:56)
-02. Дискомафия - Только ты одна (Soultans - Can't Take My Hands Off You) (03:43)
-03. Весёлые ребята - В последний раз (Jeanette - Porque te vas) (03:11)
-04. Александр Постоленко - Елисейские поля ( Joe Dassin - Les Champs-Elysees) (03:22)(   Читать дальше...   )Жанр: CoversПродолжительность: 03:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F71C022CA51572E6A9276458E9F61A16AF1EE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069886   (370313) от 05.11.2016
-
-VA - Дискотека 80-90 х По-Новому Зарубежный выпуск 41 (2016) [MP3|256 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370313.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Silence Circle - Touch in The Night (Night Killer  Extreme Remix) 7:07
-002.Mirifico feat. Soraya Vivian - Self Control (Fierce Collective Radio Edit) 4:19
-003.Boney M - Gloria Can You Waddle (DJ Oleg Perets & DJ Alexey Galin Remix)  4:52
-004.Depeche Mode - enjoy the silence (Liya Fran & WilymDeLove remix) 5:38(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-DiscoПродолжительность: 06:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115ED663C38E1C3BFD665DFACA016DD7EB9786F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950525   (370233) от 26.10.2015
-
-VA - 100 Dance Halloween Episode (2015) [MP3|320 кб/с]<Club, Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Groove Guys - Saving My Love (Havanna Inc & General Tosh Sunset Mix)
-002. Jack Holiday - Check This (Original Mix)
-003. Lil Jon & Denis First - Bend Ova (Dj S-Nike & Jen Mo Mash Up)
-004. Scott Forshaw & Greg Stainer Ft. Brit Chick - Never Too Much (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 07:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8E500EDF6EF51341B93E57C897E1755A8D8E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

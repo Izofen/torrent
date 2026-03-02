@@ -1,3 +1,212 @@
+###  Публикация: 1235500   (558678) от 12.07.2018
+
+VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - YEAH (Extended Mix)
+02. Kevin Vergauwen & Chatry Van Hove - Glimmer Of Hope (Denis Sender Radio Edit)
+03. Glacial Storm - Tundra (Original Mix)
+04. Elite Electronic - Digital Age (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF61D96B94E231ECD79EE190C8198547F3C889E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530739   (558566) от 04.08.2012
+
+VA-Сборник нашего радио 2012 (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маврин - Мое небо
+02. Найк Борзов - Радоваться
+03. Пилот - 156-ой
+04. СерьГа - Валера, ты где
+05. Муха - Завтра начинается сейчас
+06. Смысловые галлюцинации - Демоны
+07. Plastика - Мир великолепен
+08. Е2 Знакомы - Пусть
+09. Глеб СамойлоFF & The MatriXX - Я сам
+10. Тайм Аут - Раз, 2, 3Жанр: RockПродолжительность: 06:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F9BEDBCBE534FB2700BAF5CFE49BAE84CA7C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153567   (558279) от 27.07.2017
+
+VA - Top Selection Trance Today (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mind-X - Fantasy (Extended Mix)  6:11
+02.  Paul Denton - Zombie (Original Mix)  6:59
+03.  Mehdi Belkadi - Beautiful Goodbye (Original Mix)  6:02
+04.  Steve Allen & UDM pres. Nightflyers - Nightflyers  3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE88E5D08A052BA22FA203E634D09ABCA74BC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305128   (558173) от 29.05.2019
+
+VA - Фитнес 50 треков Vol.2 (2019) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558173.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Nadia Ali - Rapture (Avicii New Generation Remix) (7:00)
+2.David Guetta - Play Hard (feat. Ne-Yo & Akon) (6:52)
+3.Disco Funk & Soul (No Hopes Remix) - Everything is out of Place (6:48)
+4.Limp Bizkit - My Way (Pistols Dancehall Dub) (6:24)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 03:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A87DEA6CC7BEB0FC1D5AC181C14086081B1259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045729   (558161) от 24.08.2016
+
+VA - Beatport Trance Pack (23.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aimoon & Offshore Wind  -  DarkPhoria (Original Mix)  6:23
+02. Markus Schulz & Vassy  -  Tomorrow Never Dies (Jordan Suckley Remix)  6:38
+03. Will Atkinson  -  Dusk  7:58
+04. Stimulator  -  Scream (Heavens Cry Remix)  5:36(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 03:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54B9E460008D7CAC393BF080F14BE7E95A3861E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045752   (558160) от 24.08.2016
+
+VA - United People Following (2016) [MP3|320 Kbps] <Tech House, Club, Funky>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leoesco - A Good Love (Juan Mejia Remix) 06:39
+02. Givenchhy Edits - Did It Again Girl 04:39
+03. Farina Miss - Stranger (69 Mix) 03:41
+04. Lee Walker Vs Dj Deeon - Freak Like Me (Sonny Fodera Remix) 06:54(   Читать дальше...   )Жанр: Tech House, Club, FunkyПродолжительность: 03:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C54B57FE7671D9E698C9C2BFB4799CA84484BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045802   (558159) от 24.08.2016
+
+VA - Sound DJ  Mainstream Season (2016) [MP3|320 Kbps] <House, Electro House, Future House, Progressive, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swanky Tunes & Christian Burns  -  Skin & Bones (Original Mix)  5:51
+02. KSHMR & Bassjackers ft Sirah  -  Memories (Original Mix)  5:05
+03. Hardwell & Armin van Buuren  -  Off the Hook (Original Mix)  5:46
+04. Ummet Ozcan ft Katt Niall  -  Stars (Original Mix)  4:13(   Читать дальше...   )Жанр: House, Electro House, Future House, Progressive, Club, DanceПродолжительность: 07:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106CDE57B5827DA13F8034E28D88D09A5FAA79EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045656   (558039) от 24.08.2016
 
 VA - Ultra Seduction EDM Festival (2016) [MP3|320 Kbps] <House, Electro House, Future House, Progressive, Club, Dance>
@@ -544,209 +753,6 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924779   (557373) от 04.08.2015
-
-VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Дорин - Для Тебя
-002. Faith Evans - Extraordinary
-003. Профилактика - Навсегда Ухожу
-004. Charli Xcx & Roma Pafos Vs Lilly Wood & Nejtrino & Baur - Player Break The Rules(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113D4AAAD6F391755C5112B9BA1CE68E5AF73DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924716   (557307) от 04.08.2015
-
-VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.25-17 - Просыпайтесь! (02:48)
-02.7000$ - Хозяин леса feat. Noize MC, Staisha (03:45)
-03.7Б - Холодно (vs. Влад Демьян) (04:26)
-04.Brainstorm - Эпоха (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924709   (557275) от 04.08.2015
-
-VA - 100 золотых зарубежных хитов 80 - 90-х (2015) [MP3|320 кб/с]<Dance, Disco, Eurodance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557275.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Ross - Valentino Mon Amour
-002. Annie Anner - Night In The City
-003. Antares - Ride On A Meteorite
-004. Apotheosis - O Fortuna(   Читать дальше...   )Жанр: Dance, Disco, Eurodance, PopПродолжительность: 08:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2257DB57DFEF950A950E7528192FD8A96CE89FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235607   (557156) от 13.07.2018
-
-VA - Top 100 Зайцев.Нет Июнь 2018  [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MATRANG - Медуза
-02. Макс Барских - Сделай громче
-03. Ka-Re - Polovina
-04. Элджей - Suzuki(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3FF29B0D922D09F580612D845938AB16C59EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305304   (557150) от 30.05.2019
-
-VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Komflux - Logarithm
-002. Komflux - Hard Seek
-003. Nitrous Oxide - Avalon
-004. Caboosh - Persona Non Grata(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2988DFA0CF13DD0F4DB05118036026EE635A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305302   (557108) от 30.05.2019
-
-VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lounge Pilots - Any Lounge Color
-002. Molda Sensa - Trawler
-003. Moby - The Waste Of Suns
-004. Too Ugly - Gold Coast(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB328C4C4F93D967CD93AFB78F05EF96172F00A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305303   (557105) от 30.05.2019
-
-VA - Cyberspace: Techno Electronic Mix (2019) [MP3|320 Kbps] <Electronic, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unifire - Bang The Underground
-02. Wasted Penguinz - Not That Easy
-03. Diginsect - Shadowblast (Original Mix)
-04. Gal Tsadok-Hai - The Green Eden(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 08:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BF7B15AF6ACFDB243872138C1A4B6FB76B18E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

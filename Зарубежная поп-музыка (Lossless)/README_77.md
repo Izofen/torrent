@@ -1,3 +1,119 @@
+###  Публикация: 1587803   (192022) от 02.11.2022
+
+VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John, Britney Spears - Hold Me Closer
+02. Calvin Harris, Justin Timberlake, Halsey, Pharrell Williams - Stay With Me
+03. Joel Corry, Becky Hill - HISTORY
+04. Luude, Mattafix - Big City Life(   Читать дальше...   )Жанр: Pop, Rock, Dance |Продолжительность: 01:17:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093F345EA1F6729C6345218EB4FA17F01C78052E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658285   (191492) от 07.09.2023
+
+Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So I
+02. Honkey Curt
+03. Smoke Is Up
+04. Reggaesizer(   Читать дальше...   )Жанр: Electronic, Pop, Soul, FunkПродолжительность: 05:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A92956086154F37A158B596B0D06BE7DDC380A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588688   (190996) от 06.11.2022
+
+Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_190996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siffler sur la colline (2:36)
+02. Dans les yeux d'Emilie (3:43)
+03. Les Champs-Elysées (2:37)
+04. Et si tu n'existais pas (3:25)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658541   (190949) от 09.09.2023
+
+Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_190949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Not To Do [00:05:02]
+02. CooCool [00:04:31]
+03. The Universe [00:04:05]
+04. Hurtz So Bad [00:04:37](   Читать дальше...   )Жанр: Electronic, Art PopПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658716   (190884) от 09.09.2023
 
 VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -624,122 +740,6 @@ Ed Sheeran - Autumn Variations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D497BAD6A50017149481879B3F358571C8DDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664945   (183760) от 28.09.2023
-
-George Michael - Rock In Rio 2 (2021) Remaster, 2023, Gossip[FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer/Papa Was A Rolling Stone [00:10:26]
-02. Father Figure [00:05:44]
-03. Fame [00:03:56]
-04. Ain’t No Stopping Us Now [00:05:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A2408CF8A40CB9FC2FF676E1500CDC05FBE689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427414   (183398) от 28.11.2020
-
-VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Cutler - Sad Tonight (2:58)
-02. blackbear - hot girl bummer (3:08)
-03. BENEE, Gus Dapperton - Supalonely (3:43)
-04. Conan Gray - Maniac (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1696D132054A353A22BCCE9D1CB0D342CAC3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427384   (183320) от 28.11.2020
-
-Supermax - The Lovemachine-Collection (1994) [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183320.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lovemachine ( Original ) 8:37
-2. Lovemachine ( New Recording 1993 ) 7:23
-3. Lovemachine ( The Philly Mega Mix ) 6:52
-4. Lovemachine ( The Sweethaeart Mix ) 5:23(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7536FF1BAB89E8EDE0C2B18C790AB09B222C358F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665029   (183241) от 29.09.2023
-
-VA - Electrónica Para Fiestas 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Me [00:02:46]
-02. Diva [00:02:45]
-03. Games [00:03:10]
-04. Jamba Jamba [00:03:29](   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65466A989789BCAD3F223620D1E5D2465573344B
 ```
 
 https://mybot314.ru/tekegram_catalog/

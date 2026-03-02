@@ -1,3 +1,29 @@
+###  Публикация: 1467127   (1018069) от 02.05.2021
+
+Растровый клипарт - PixelSquid - Fitness Collection [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт fitness для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5541FFF6EF23BCDBA5640FB9FF19181FA48C980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467142   (1018054) от 02.05.2021
 
 Растровый клипарт - PixelSquid - Hand Tools Collection [PSD]
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E833DF3CC9354540F732F31FEA207380BF24EE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468941   (1016711) от 10.05.2021
-
-NNM Club Sound Cleaner's - Arabic (Ramadan) Clean Music Tracks by andgelo12 [MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных треков очищенных от "голосовых вставок" ("watermarks").
-Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE42C2D96A5B1A8AE329650CF31EF6AE67FEF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

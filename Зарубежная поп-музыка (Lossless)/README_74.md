@@ -1,3 +1,119 @@
+###  Публикация: 1651411   (222273) от 06.08.2023
+
+Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash the Time Machine [00:03:09]
+02. Unlikely Saviour [00:03:24]
+03. Fall Guy [00:06:27]
+04. The Traveling Light [00:02:23](   Читать дальше...   )Жанр: Power Pop, Pop RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C95ADEB794A54CFD5FCBED48FF1D297275AE9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651338   (222218) от 06.08.2023
+
+Mister Wonderful - New Religion (2023) [FLAC|Lossless|image + .cue] <Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Come Running (3:08)
+02. Before We're Gone (4:07)
+03. Broken Angel (4:10)
+04. Never Again (4:12)(   Читать дальше...   )Жанр: Pop Rock, Rock & RollПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81ECDF1A74664BF8F7E0BF0DE86CF70DB3B7BBFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585154   (222046) от 21.10.2022
+
+A-Ha - True North (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In (5:06)
+02. Hunter In The Hills (4:11)
+03. As If (4:56)
+04. Between The Halo And The Horn (4:11)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44633621C660E46D0783D307386F342ECD1A53C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425395   (222006) от 20.11.2020
+
+Bee Gees - How Can You Mend A Broken Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stayin Alive (4:45)
+02. How Can You Mend A Broken Heart (3:56)
+03. Spicks And Specks (2:51)
+04. New York Mining Disaster 1941 (2:09)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19FD94C1AF3580187E303D2581D13B973066B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342552   (221678) от 03.12.2019
 
 VA - NRJ Music Awards 2019 (2019) 3CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
@@ -629,122 +745,6 @@ VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586350   (216555) от 26.10.2022
-
-Taylor Swift - Midnights (2022) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lavender Haze (03:22)
-02.Maroon (03:38)
-03.Anti-Hero (03:20)
-04.Snow On The Beach (feat. Lana Del Rey) (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB04906E117F6577554DE6FF8CE44D9AE1A344F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426083   (216520) от 23.11.2020
-
-VA - Tiktock Best Of 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surf Mesa, Emilee - ily (i love you baby) (2:56)
-02. BENEE, Gus Dapperton - Supalonely (3:43)
-03. DaBaby, Roddy Ricch - ROCKSTAR (3:01)
-04. Bea Miller - feel something (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C3B8A66E23784D77E7053CEDDCDD4787C03625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425902   (216307) от 23.11.2020
-
-VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - The Best (5:33)
-02. Duran Duran - Hungry Like the Wolf (3:40)
-03. Michael McDonald - I Keep Forgettin (Every Time You're Near) (3:42)
-04. Spandau Ballet - Communication (3:40)(   Читать дальше...   )Жанр: Pop, Soul, OtherПродолжительность: 02:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019C2B8684985180A66CD006A3B081EF067EBF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425742   (216170) от 23.11.2020
-
-Vanessa Daou - Songs for Solace (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chilled Jazz, Soul, Downtempo, Delta Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Near the Black Forest 2.0 (Animal Feelings Rework) (5:10)
- 02. Little Black Dress (3:15)
- 03. How Do You Feel (3:51)
- 04. I Cry For You (3:24)(   Читать дальше...   )Жанр: Electronic, Chilled Jazz, Soul, Downtempo, Delta BluesПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABA8E9824907C405389595F7552AFD7BF99EC57
 ```
 
 https://mybot314.ru/tekegram_catalog/

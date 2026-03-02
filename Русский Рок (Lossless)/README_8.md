@@ -1,3 +1,61 @@
+###  Публикация: 976853   (967707) от 19.01.2016
+
+Мураками - Без суеты (2015) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суета – все тщетное, ничтожное, бесполезное, не представляющее ценности. Без всего этого, «Без суеты» – новый альбом Мураками. Фирменное, легко узнавание звучание группы в совершенно новом нехарактерном материале, отличается от всего, что они делали раньше. Целостный роман состоящий из отдельных историй, от первой песни до последней, о том, что творится внутри и (   Читать дальше...   )01. Невозможно
+02. 364
+03. Минуты
+04. Глаза(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF7C8C0CC3124C42421FD8451807DB44714E0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358870   (967502) от 09.02.2020
+
+Hatecraft - Lost Consolation (2005) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose your mind (3:39)
+02. The punisher (5:47)
+03. Demon of mine (5:02)
+04. Generation of obscenities (4:50)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02E7AFAADA6CB46EA1C6E471D4233729A2D6F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359171   (966198) от 10.02.2020
 
 Sergey Golovin - Sculpture (2018) [FLAC|Lossless|Web-DL|tracks] <Progressive Metal, Instrumental Rock, Djent>
@@ -708,64 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAD8B129DC2396BC1F264C79FF9D8ABCDFBDE5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362052   (951022) от 22.02.2020
-
-VA - Молодая гвардия - New Generation (2005) [FLAC|Lossless|tracks + .cue]<Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моральный Кодекс, Олег Меньшиков и оркестр О. Лундстрема -
-- В Москве наступает полночь
-02. Александр Маршал - Снежный вальс
-03. Алёна Свиридова - Розовый фламинго(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7944A3BCF3834C8306A9C5D2ED7ADE2715FACB94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362503   (949688) от 23.02.2020
-
-HELENGARD - Firebird (2017) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (1:12)
-02. Fall Rue (6:27)
-03. Oktostitch I (0:41)
-04. Brumal Mud (8:23)(   Читать дальше...   )Производство: kauanmusicЖанр: Folk Metal, Black Metal, Post RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6045866E92AB2F8E34D565272401B2B1535D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

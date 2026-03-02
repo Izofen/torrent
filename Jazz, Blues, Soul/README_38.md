@@ -1,32 +1,3 @@
-###  Публикация: 1473593   (1013553) от 30.05.2021
-
-Marc Antoine - Something About Her (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013553.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Still In Love (4:11)
-2. Something About Her (feat. Brian Simpson) (3:26)
-3. Marco Polo (4:40)
-4. Groovy Sunday (3:47)(   Читать дальше...   )Жанр: Guitar Jazz, Smooth JazzПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6638F5BC235F05286E44C03DAF504ADDAA66C49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473594   (1013518) от 30.05.2021
 
 VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -743,6 +714,35 @@ Tony Joe White - Smoke From The Chimney (2021) [FLAC|Lossless|image + .cue] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B75B4081C1D2FFF0C8C7E077863B70BEB35414F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476741   (1011279) от 13.06.2021
+
+Joe Bonamassa - Now Serving: Royal Tea Live From The Ryman (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When One Door Opens
+02. Royal Tea
+03. High Class Girl
+04. Lookout Man!(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42B46D949F62972306B93EBCF853926B15900E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1463278   (1020444) от 18.04.2021
+
+Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020444.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
+[07:15] 02. Hanzo Hasashi
+[02:25] 03. Lord Raiden
+[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865EDDCAC71B4E34824CB4E4467D16D1517B24E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463534   (1020308) от 19.04.2021
+
+Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Latin, Folk>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johannes Linstead - What Child Is This? (3:26)
+02. Bryan Lubeck - The First Noel (4:15)
+03. Tomas Michaud - Christmas Journey (5:16)
+04. Johannes Linstead - God Rest Ye Merry, Gentlemen (2:41)(   Читать дальше...   )Жанр: Flamenco, Latin, FolkПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3726B62918410254B2322118AF9EE1BF5EB3F7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463530   (1020295) от 19.04.2021
+
+Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapture of Massy (5:20)
+02. Your Tranquillity Matilda (4:51)
+03. Simmering Souls (6:01)
+04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 04:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464295   (1019975) от 21.04.2021
 
 Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
@@ -20,35 +107,6 @@ Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464254   (1019974) от 21.04.2021
-
-VA - Tribal Dreaming (2005) [MP3|320 Kbps] <NewAgе, Tribal-trance, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prem Joshua - Dakini (Monsoon Remix)
-02. Leaving Footprints - Forefathers
-03. Daion - Pachakuteq
-04. Ariel Kalma/James Nicholas - Ano Tao Inan(   Читать дальше...   )Жанр: NewAgе, Tribal-trance, ChilloutПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D647B54A8D414895F099EC6663B537804473968B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,35 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472724   (1014169) от 26.05.2021
-
-Orinoco Haven - Acoustic Guitar Pearls Vol. 1-3 (2008) [FLAC|Lossless|WEB-DL|tracks] <Guitar, Acoustic, Covers>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (4:27)
-02. Hotel California (6:36)
-03. If You Leave Me Now (3:59)
-04. More Than Words (5:25)(   Читать дальше...   )Жанр: Guitar, Acoustic, CoversПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1712D4C5050E0C7E151BCAE8696A14351D65502F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472983   (1014026) от 27.05.2021
 
 Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
@@ -718,35 +747,6 @@ Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473523   (1013522) от 30.05.2021
-
-Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Mind (3:15)
- 02. f l o w e r (3:54)
- 03. Walking In The Forest (3:07)
- 04. f r a m e d (Piano Version) (3:53)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

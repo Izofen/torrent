@@ -1,3 +1,58 @@
+###  Публикация: 692049   (318846) от 28.11.2013
+
+Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]<Rock, Electric, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_318846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэр Джеймс Пол Маккартни — один из самых известных музыкантов и композиторов XX века, участник легендарной группы "The Beatles". На протяжении своей сольной карьеры записал десятки пластинок в самых разных направлениях музыки, от рока и поп-музыки до классики, эмбиента и авангарда. Дискография составлена согласно сайту paulmccartney.com (из всех альбомов (   Читать дальше...   )Жанр: Rock, Electric, ClassicalПродолжительность: 00:13:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582864   (318769) от 11.10.2022
+
+Roxette - Look Sharp! (1988) Reissue, 1994, EMI [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look
+02. Dressed For Success
+03. Sleeping Single
+04. Paint(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB23CB6BD480956BA5785D50D7BCB282176A792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332101   (318659) от 18.10.2019
 
 Keith Forsey - Dynamite (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
@@ -684,64 +739,6 @@ Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA1D6874A4C1DC2E21C4B518856E0232F01624EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183387   (310077) от 13.11.2017
-
-Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Piece of my Heart (Live TV Pop Show Sweden 7th April 1969) (3:44)
-02.  Summertime (Live TV Pop Show Sweden TV 7th April 1969) (4:56)
-03.  Me (Live TV Pop Show Sweden 7th April 1969) (4:13)
-04.  Work Me Lord to Love Somebody (Live TV Pop Show Sweden 7th April 1969) (7:23)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BCFF72C7670E2B04F6A7EC31FF937038B29321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260723   (309977) от 08.11.2018
-
-Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can The Can
-02. Daytona Demon
-03. All Shook Up
-04. Keep A Knockin'(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1221872   (691263) от 26.04.2018
+
+God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epitaph
+02. Mortal Coil
+03. Winter Dusk / Awakening
+04. Seance Room(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9342083BD217CE76C544B5F34A837CCEE977AD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028382   (690862) от 22.06.2016
+
+Erik Norlander - Surreal (2016) [MP3|320 кб/с] <Symphonic Prog Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Party's Overture (7:52)
+02. The Galaxy Collectors (Album Mix) (10:34)
+03. Suitcase And Umbrella (7:08)
+04. Unearthly (8:48)(   Читать дальше...   )Жанр: Symphonic Prog Rock, Electronic RockПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761857114E7F6ABCF2DCC3F5A9BD20AFE127C8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 795702   (690636) от 12.06.2014
 
 Four Star Combo - Wait A Minute, Baby! (2014) [MP3|320 кб/с]<Rockabilly>
@@ -699,64 +757,6 @@ VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136057   (677160) от 21.05.2017
-
-The Deep - Psychedelic Moods (1966) Reissue, 2004, Radioactive [MP3|320 Kbps] <Garage, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Color Dreams
-02. Pink Ether
-03. When Rain Is Black
-04. It's All A Part Of Me(   Читать дальше...   )Жанр: Garage, Psychedelic RockПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5A544804C78D557C3ED7D50289F00CE3995B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136133   (677158) от 21.05.2017
-
-Titanic - Eagle Rock (1973) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Night In Eagle Rock
-02. All Around You
-03. One Of Your Kind
-04. Heia Valenga(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B661231F124945FFB5AE1A0877BCEC0BCA7001A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

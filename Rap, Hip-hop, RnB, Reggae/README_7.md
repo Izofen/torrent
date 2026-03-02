@@ -1,177 +1,3 @@
-###  Публикация: 1370499   (896785) от 27.03.2020
-
-Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bottom (2:37)
- 02. I Need You (2:52)
- 03. Nothing Left At All (3:24)
- 04. Suicide (3:43)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Country Rap, Blues RockПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F98A72074D54BFD017029D909BDC311198D198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370540   (896704) от 27.03.2020
-
-Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0.00 (02:59)
-02. Algorhythm (03:32)
-03. Time (06:07)
-04. 12.38 (06:32)(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC643368690BB71BA491F46258560A133FF6C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370521   (896689) от 27.03.2020
-
-Jessie Reyez - BEFORE LOVE CAME TO KILL US (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Funk>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DO YOU LOVE HER (03:16)
-02. DEAF (who are you) (02:53)
-03. INTRUDERS (03:05)
-04. COFFIN (Feat. Eminem) (04:22)(   Читать дальше...   )Жанр: R&B, Soul, FunkПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4E7B3676F45ED6115F72211192207E65D0A471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370627   (895294) от 28.03.2020
-
-N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вдаль-высоко [02:48]
-02. Подорву! [02:19]
-03. На века [02:46]
-04. Не в обиду [02:04](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130F808C49C395B06DCB3DD0523F1BD155328F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370788   (895284) от 28.03.2020
-
-Эскимос Crew - Тяжёлая вода (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В руке драп зажат (feat. Nemoy Djo) [03:12]
-02. Комната [02:36]
-03. Запой [03:12]
-04. Пропал [02:48](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E24DEB9AD0E2585CC4DE4840BFEF2D8E577A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370779   (895268) от 28.03.2020
-
-Овраг подпольщиков - Овраглэнд (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [01:04]
-02. Руки в гору [04:30]
-03. Пропал человек [04:01]
-04. Полёт над городом [03:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA38B886C6EF34B1671FC487803CB4862AF90E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370625   (895233) от 28.03.2020
 
 Kyok - DECADANCE 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -317,75 +143,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 761382   (894405) от 01.03.2014
-
-OutKast - ATLiens (1996) [FLAC|Lossless]<Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. - You May Die  (Intro) (1:06)
-02. - Two Dope Boyz (In A Cadillac) (2:42)
-03. - ATLiens (3:51)
-04. - Wheelz Of Steel (4:03)
-05. - Jazzy Belle (4:12)
-06. - Elevators (Me & You) (4:25)
-07. - Ova Da Wudz (3:48)
-08. - Babylon (4:25)
-09. - Wailin' (1:59)
-10. - Mainstream (5:18)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD01B01A11F151454AD9D2811F007C86FAE00C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761377   (894372) от 01.03.2014
-
-OutKast - Southernplayalisticadillacmuzik (1994) [FLAC|Lossless]<Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. - Peaches (Intro) (0:51)
-02. - Myintrotoletuknow (2:40)
-03. - Ain't No Thang (5:39)
-04. - Welcome to Atlanta (Interlude) (0:57)
-05. - Southernplayalisticadillacmuzik (5:17)
-06. - Call Of Da Wild (feat. Goody Mob) (6:06)
-07. - Player's Ball (Original) (4:21)
-08. - Claimin' True (4:44)
-09. - Club Donkey AssЖанр: Hip-HopПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D198A5C1C5C5ABC5918E07A313444F01A65324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370829   (893681) от 29.03.2020
 
 Артем Татищевский - Живым 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -466,36 +223,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9842A43477F38AC29264B514B2636964DCED0737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869168   (892601) от 14.02.2015
-
-Саграда (Соль Земли) - Иордан (2015) [MP3|320 кб/с]<Rap, Alternative>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Перед атакой (скит)
-02. Лицо огня
-03. За наши флаги
-04. Древние песни печали
-05. Отец-лес(   Читать дальше...   )Жанр: Rap, AlternativeПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A6FEFFB4A4DF8A7DA6AFA43595D57619010C48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -735,34 +462,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 763244   (886413) от 05.03.2014
+###  Публикация: 1372334   (885431) от 03.04.2020
 
-Pharrell Williams - G I R L (2014) [FLAC|Lossless]<R&B, Funk>
+A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 
 >>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
+>>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marilyn Monroe
-02. Brand New (Duet With Justin Timberlake)
-03. Hunter
-04. Gush
-05. Happy (From Despicable Me 2)
-06. Come Get It Babe
-07. Guest Of Wind
-08. Lost Queen
-09. Know Who You Are (Duet With Alicia Keys)
-10. It GirlЖанр: R&B, FunkПродолжительность: 00:47:02
+01. Last Poet [00:51]
+02. Catch Up [02:16]
+03. Daytona [03:13]
+04. Kratez [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73220C6346F79D015CA67E8351BD34BCED1EDE92
+magnet:?xt=urn:btih:44D9361E1E54416D7D08878579362ECD27B3409A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372346   (885362) от 03.04.2020
+
+Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PitUp [03:30]
+02. GlitchGang [02:25]
+03. Virus [03:04]
+04. Devil'sPlayground [03:46](   Читать дальше...   )Жанр: Rap, Rapcore, Nu MetalПродолжительность: 00:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B379A4057B98A04256629ADF79A14F0BB6AA580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372341   (885357) от 03.04.2020
+
+Enemy Radio - Loud Is Not Enough (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 [02:46]
+02. STD (Slavery Transmitted Disease) [02:26]
+03. Born Woke [02:46]
+04. Food As A Machine Gun (feat. Public Enemy) [03:55](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F245AC270DC68B36729ECE4D30879E7024A2CC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372254   (885210) от 03.04.2020
+
+Красное дерево - 31FM, Vol. 1 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В эфире (feat. Вадим Курнулли) [02:26]
+02. Не спорт (feat. Baqar Allahverdi) [02:54]
+03. Фортуна (feat. Slimus) [02:56]
+04. Бой с тенью (feat. Гена Гром) [02:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF52E76393AE12F92F1CFBD58F630D37819C4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995402   (884509) от 11.03.2016
+
+Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (0:25)
+02. Neva Eva (feat. Barrel Brothers) (3:19)
+03. What You Were Looking For (feat. Oddisee) (3:38)
+04. Detonate (feat. M.O.P.) (3:16)(   Читать дальше...   )Производство: Mello Music Group – MMG-00077-2Жанр: Hip HopПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE0E07217ADD9BB00BE6FE15E45824C7572E3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372666   (883861) от 04.04.2020
+
+Гуляй Рванина - Дар речи (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё, что ненавидел [02:37]
+02. На место [03:05]
+03. Копия копий [02:43]
+04. Пластилин из гoвна (feat. Marikmarakesh) [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FFB2B9702709D3FA6D0EE2776FB8BE33C46A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372684   (883852) от 04.04.2020
+
+Мак Сима Мгла - Муниципальные Сказки на Ночь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Там, где не сны (feat. Алена Романова) [02:39]
+02. ЭНЭЛО [02:36]
+03. Тленокомбинат [03:03]
+04. Во дворе моём [02:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36C191A5AC949309436C1CA68A9EC5535C044FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372700   (883851) от 04.04.2020
+
+ЗАМАЙ - Lust Hero, Vol. 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Tuapse [04:14]
+02. Странные вещи [02:50]
+03. Instagram [02:53]
+04. Голуби [03:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AAF80D7DD5191CCAA0E7B99DC8F8D3B89109AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372656   (883783) от 04.04.2020
+
+тима ищет свет - бойня (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Alternative>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. слова (скит) [00:46]
+02. клоун [02:55]
+03. татуировка змеи [03:33]
+04. темный [03:44](   Читать дальше...   )Жанр: Rap, Hip-Hop, AlternativeПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA46F3B8454FFC287112BED6ACAF8C097925F394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372732   (883754) от 04.04.2020
+
+AKTHESAVIOR & Leon Fanourakis - FLATBU$H ¥EN (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Mumble>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO [01:19]
+02. KONNICHIWA [03:14]
+03. CHICHI [02:37]
+04. PICCOLO [02:29](   Читать дальше...   )Жанр: Rap, Hip-Hop, MumbleПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C296821FB54A31B19F090B5FA6AEA4EC761D008E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1008916   (812050) от 20.04.2016
+
+VA - KissFM top 40 Апрель (2016) [MP3|320 кб/с] <Electro House, Dance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont - Ocean Drive (3:26)
+ 02. Alan Walker - Faded (3:32)
+ 03. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers (3:52)
+ 04. Ben Delay - The Boy Is Mine Feat. Alexandra Prince (Alternative Mix) (6:32)(   Читать дальше...   )Жанр: Electro House, Dance, TranceПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DF6109FF897A20B64325103B9ED0A578FFCB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197938   (811880) от 09.01.2018
+
+VA - Billboard Year End Hot 100 Singles Chart (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ed Sheeran  -  Shape Of You  3:54
+002.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
+003.  Bruno Mars  -  That's What I Like  3:27
+004.  Kendrick Lamar  -  HUMBLE  2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AAB9CF449CD68F8F6473C1A72B523CC313714F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118565   (811811) от 26.03.2017
+
+VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Sarah Decourcy - Face Of Summer
+002. Paul van Dyk & Ronald van Gelderen - Everyone Needs Love
+003. Somna - Awakening (Assaf Remix)
+004. Xten - Love Is The Answer (Air Project Remix Radio Edit)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 07:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFAD34C027537A79286E76BC28391FDE27CC395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383315   (811726) от 15.05.2020
+
+VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Taylor Swift - Lover (Remix) (3:41)
+2.Ed Sheeran - Best Part of Me (feat. YEBBA) (4:03)
+3.Dermot Kennedy - All My Friends (4:07)
+4.Lilla Vargen - Why Wait (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C98481CAEE7EA998D68C243E700B7D7F81E0414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383294   (811725) от 15.05.2020
+
+VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Roach - Top Of The World 3:54
+02. Linkin Park - Numb 3:06
+03. Evanescence - Wasted On You 4:23
+04. Slipknot - Wait And Bleed 2:28(   Читать дальше...   )Жанр: Metal, Nu-MetalПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC4996967B01F0AAF89AF11AB5C367B43EF24EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118210   (811679) от 26.03.2017
+
+VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mojiito - Summer Love  7:51
+02.  Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria Radio Mix)  3:07
+03.  Ultramarin - The Sea (George Whyman Remix)  5:12
+04.  Boehm - Music  7:19(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 05:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA5F72A89FD886A3100A96B36641ECBBBCAC7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118709   (811676) от 26.03.2017
+
+VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miles Dyson - Beyond (Extended Mix) 04:55
+002. Dizart - Just In The Way (Original Mix) 03:53
+003. Atside - Kitelahw (Jean Bloc Remix) 05:00
+004. #Monkeystuff - World Connection Feat Dmitry F. (Original Mix) 05:25(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 09:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18412B3CE12B4CFA3411C88477D1A590079B2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118717   (811659) от 26.03.2017
 
 VA - The Fourth Dimension: Psy Trance (2017) [MP3|320 Kbps] <Psychedelic, Psy Trance, Goa Trance, Full On>
@@ -542,209 +745,6 @@ VA - Music News vol.142 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F399FF3EE00D34748789BCF732C1BBE3CDA05279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504681   (810417) от 24.10.2021
-
-VA - The Stars Align: EDM October Mixtape (2021) [MP3|320 Kbps] <Electro, Dance, Clubbing, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810417.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nana K. - Old's Cool
-002. Davide Squillace - Smart Dance Stupid Floor
-003. Andaro - Sick & Tired
-004. Beatfreak - Our Dying Outcry(   Читать дальше...   )Жанр: Electro, Dance, Clubbing, HouseПродолжительность: 07:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0513745C061BFC6182143B2DB7C7BBAABF4BEF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504826   (810351) от 24.10.2021
-
-VA - Record Super Chart 23.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
-03. Minelli - Rampampam (3:20)
-04. Tiesto & KAROL G - Don't Be Shy (2:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079254DCF7C7A088A4A71611AFEDEEED9DBC015D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504684   (810344) от 24.10.2021
-
-VA - Top 100 Hardstyle Dance Energy (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810344.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Devastate feat. MC Sharkey - Terrabeat
-002. Freeboy - Down To Reduce
-003. Simon Perry - Don't Let Me Down
-004. Basic Beatz - I Think We're Alone Now(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC513D684A9FFE1C8777D477C2BBE21B89EB598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504592   (810335) от 24.10.2021
-
-VA - Music News vol.143 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810335.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga - Bad Romance (Vadim Adamov & Hardphol Radio Edit) (03:19)
- 002. ABBA - Just A Notion (03:31)
- 003. Alesso & Marshmello feat. James Bay - Chasing Stars (Stripped) (02:45)
- 004. All1 - Мелодия (02:25)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF11FEC876B2B7587695B3863F086C7F13F814D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383578   (810236) от 16.05.2020
-
-VA - The Official UK Top 40 Singles Chart 15.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dababy - Rockstar (Feat. Roddy Ricch) 3:02
-02. Drake - Toosie Slide 4:07
-03. Doja Cat - Say So 3:56
-04. Ariana Grande & Justin Bieber - Stuck With U 3:49(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDF53DA2897ACE3127A7C1F7D36492033FF75F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504695   (810204) от 24.10.2021
-
-VA - 30(9) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jah Khalib - Летний Снег (Winstep Radio Remix) (2:40)
-02. JONY The Limba - Босс (DJ Ramirez DMC Mansur Radio Edit) (2:32)
-03. RASA - Косички-вертолет (Temoff Remix) (2:39)
-04. Tamerlan Alena - Детка (Malevich Radio Remix) (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904B560A3825D8DFE2BEF2B0083F9F8160469889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009547   (810173) от 21.04.2016
-
-VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810173.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2nd Phase - Short Circuit (Original Mix) 07:23
-002. Above & Beyond - A.I. (OM) 06:29
-003. Airbase - Lachrymose (Original Mix) 06:59
-004. Alan Morris - Elation (Extended Mix) 07:04(   Читать дальше...   )Жанр: TranceПродолжительность: 11:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
 ```
 
 https://mybot314.ru/tekegram_catalog/

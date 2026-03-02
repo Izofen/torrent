@@ -1,22 +1,49 @@
-###  Публикация: 745268   (968016) от 14.01.2014
+###  Публикация: 976738   (968529) от 18.01.2016
 
-VideoHive - Classy Logo Reveal V2 [AEP]
+Проекты - Pond5 - Fire Logo Reveal [AEP]
 
 >>Проекты
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Classy Logo Reveal V2 вы можете легко изменить цвета оттенков звёзд и стороны экструдеров. Также легко Вы можете изменить глубину эмблемы. Включены различные цвета логотипов. Проект подходит к After Effects CS4, CS5, CS5.5, CS6 и CC. Разрешение 1920 × 1080, Full HD, 25 кадров в секунду. Аудиофайл не включен.Формат: AEP
+Выкуй своё лого при помощи стихии огня.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EE36ACA0F9309745ECF1EA0CFA92FDEFF98F772
+magnet:?xt=urn:btih:8A9F08F2E12AD8EE31B810874B4B51A400AD5BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976544   (968473) от 18.01.2016
+
+Проекты - Pond5 - Magic Logo Animation [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания магического логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6116EC4DE0C83B0F71DC885C7C2D7EE7CD7ECDE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928854E9140DD11B48495083822C0143C3DC1E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985170   (935141) от 11.02.2016
-
-Проекты - Motion Array - 3D Metallic Stone Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A502E355FBEEF1A18939B5EA5C87E7DF019093A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

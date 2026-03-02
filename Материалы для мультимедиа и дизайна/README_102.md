@@ -1,3 +1,29 @@
+###  Публикация: 1207973   (780243) от 20.02.2018
+
+Растровый клипарт - Fotolia - Young beautiful woman lying in bathtub [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая красивая женщина с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4446x6005-7563x5042
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAC0B7D8FB8E5EB8A870944A83196744740D650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208113   (780235) от 20.02.2018
 
 Векторный клипарт - Happy Women's Day vector illustration #2 [EPS]
@@ -667,34 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344A9BE330CC9BBD6AAD7672C5B423A0941AEBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208627   (779764) от 23.02.2018
-
-Векторный клипарт - Shutterstock - March 8 gift card flyer poster vector image [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-8 марта подарочная карта листовки плакат векторное изображение
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02767D343985F520B6EDBEA69FD9CCAED68D9AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

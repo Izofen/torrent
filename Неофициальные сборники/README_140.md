@@ -1,3 +1,206 @@
+###  Публикация: 1005123   (834557) от 08.04.2016
+
+VA - Bass Killer 4 (2016) [MP3|320 кб/с] <Electro House, Dubstep, Drum and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. L 33 — Clublife (Original Mix) (4:11)
+ 2. Agressor Bunx — Total Destroy (Original Mix) (5:39)
+ 3. Chase & Status — NRG (feat. Novelist) (3:16)
+ 4. Datsik feat. Trinidad James — Tantrum (4:10)(   Читать дальше...   )Жанр: Electro House, Dubstep, Drum and BassПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BCF61104CFB13FB7708FB3408752A372C23BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380317   (834537) от 02.05.2020
+
+VA - Русский Шансон 96. от Виталия 72 (2020) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Павел Филатов - Не уходи
+02. Анатолий Корж - Две души
+03. Александр Новиков - Плутаю по Китаю
+04. Анатолий Кулагин - В твоем плену(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADEF3AA053B43FFDA232B4915B4C1A124546E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004614   (834453) от 08.04.2016
+
+VA - Extra Trance: Bonus [04] (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - Am2pm (Extended Mix) (06:23)
+02. Edelways - Sorrow (Alex Wright Remix) (07:19)
+03. Factoria - Flutters Within (George Hales Remix) (07:13)
+04. Ferry Corsten - Beautiful (Marlo Remix) (05:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3DADC5316EE561E172FB9C6BCBBB90B3EF9B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005048   (834438) от 08.04.2016
+
+VA - 45 Jahre ZDF Disco - Nr.1 Hits Der 70er (2016) [MP3|256 кб/с] <Pop, Rock, Soul, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sweet - Fox On The Run 03:21
+02. T. Rex - Metal Guru 02:25
+03. Smokie - Living Next Door To Alice 03:26
+04. The Rubettes - Sugar Baby Love 03:27(   Читать дальше...   )Жанр: Pop, Rock, Soul, DiscoПродолжительность: 03:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6FD64F3600BC7520CC63A394B27A129615892C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005076   (834365) от 08.04.2016
+
+VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agostino Maria Ticino – If I Had Said to You
+02. Acusmatic Group – Un grosso guaio - Dave Masoch Re-Jazzed
+03. 2 Men 4 Soul – So Fine - Instrumental Bonus Track
+04. Black & Brown – Cool Affair(   Читать дальше...   )Жанр: Nu Jazz, Lounge Jazz, Jazz HouseПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004919   (834270) от 08.04.2016
+
+VA - 100 Хитов в дорогу (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Бычков - Ясноглазая
+02. Михаил Дмитриев - Ярче только звёзды
+03. Сергей Клушин - Размышления Охранника
+04. Андрей Швидько - Пуля-Время(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AA4A6A241184221B76C987AA78D270A9BED4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005323   (834163) от 08.04.2016
+
+VA - Русский суперсборник поп музыки (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Чебанов - Все Хорошо
+02. Элемент - Музыка
+03. Анна Шульгина - Другая Я
+04. Кристина Орбакайте - Я Гадаю На Ромашке(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E84C665242650DF7C12846403CC8802E67D6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004970   (834158) от 08.04.2016
 
 VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
@@ -543,209 +746,6 @@ VA - Я слушаю шансон. Реальный блатняк. Выпуск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8CEC86DDE1A19BCD18C829FBBB4348227887752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114281   (833503) от 14.03.2017
-
-VA - Club Music Get On Up (2017) [MP3|320 Kbps] <Dance, Club, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Austin Mahone ft. Pitbull - Lady (Modjo Cover / Richard Vission Remix) 5:21
-002. The Weeknd vs. Don Diablo - Might Not Switch (Mighty Mi Hype Bootleg / Dirty / Acapella Out) 4:15
-003. Bruno Mars - That's What I Like (Dirty / Short Edit) 3:23
-004. Claptone - Party Girl (Format B Remix) 7:06(   Читать дальше...   )Жанр: Dance, Club, FunkyПродолжительность: 08:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B77E503A7F5445A3DE1874F1372E6593F1A541F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114254   (833499) от 14.03.2017
-
-VA - I Love Music! - Heavy Metal Edition Vol.32 (2017) [MP3|288-320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833499.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 13Tries - Signs Of Life (Breath) 4:59
-002. Al Atkins - Cradle to the Grave 4:28
-003. Almah - Innocence 4:36
-004. Amalgama - Ночь Нежна 4:15(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C954B8B38D7EC05C69FA43841A6028CD5F3946CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114245   (833497) от 14.03.2017
-
-VA - Deep House Collection Vol.112 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abriviatura IV - Never Gonna Say Goodbye (Hugobeat Remix) 5:22
-002. Alex Daniell - Birds (The Black 80s Remix) 10:29
-003. Alex Mica - Dalinda (Suprafive 2k17 Remix) 4:31
-004. Alex Panchenco - Chaos (Original Mix) 4:53(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5019A1B843719466B16406298DDBC0DC2B0F6211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114175   (833496) от 14.03.2017
-
-VA - Музыкальный подарок на радио Europa Plus (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сиран Агасаров - Для Тебя 3:33
-002. Helena Shadia - Люби Меня 3:32
-003. Владимир Винс - Хватит 3:51
-004. Tiana - Телеграммы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4718666B66F71021EA4EC3E575DC5FE21C58AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114255   (833493) от 14.03.2017
-
-VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Day To Remember - We Got This 3:49
-002. Aeges - Drying Out 5:12
-003. Aeges - Save Us 4:27
-004. Afterlife - Pain & Pleasure 3:26(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C46E5EC61309DA8617C394FAA3FDD00D848DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114238   (833490) от 14.03.2017
-
-VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abriviatura IV - Never Gonna Say Goodbye (Original Mix) 5:38
-002. Adana Twins - Etah (Original Mix) 6:57
-003. Andre Gazolla - Follow The Groove (Original Mix) 6:41
-004. Aida, Berkhan Baser - All (Original Mix) 5:28(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6825F908C4332F6CBD76CCC5604A33D7C6706276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114260   (833489) от 14.03.2017
-
-VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aeternitas - House Of Usher 4:26
-002. Aeternitas - Roderick 3:27
-003. Akoma - Enticing Desire 4:36
-004. Akoma - Mesopotamia 4:39(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 07:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54B6F0A4CDBD4294DC5068009DD2B57F4F767B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

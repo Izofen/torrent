@@ -1,3 +1,38 @@
+###  Публикация: 490520   (102529) от 01.05.2012
+
+Чиж & Co - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — Автобус
+ 02 — В старинном городе О.
+ 03 — Вечная молодость
+ 04 — Мышка (Колыбельная хиппи)
+ 05 — Русская (Хочу чаю)
+ 06 — Глазами и душой
+ 07 — Houchie Coochie Man
+ 08 — Она не вышла замуж...
+ 09 — Такие дела
+ 10 — Глупенькая песня (Ассоль)(   Читать дальше...   )2012Жанр: RockПродолжительность: 04:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768763   (100645) от 29.12.2024
 
 VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive Rock>
@@ -728,35 +763,6 @@ VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742527   (46327) от 19.08.2024
-
-VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46327.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Corvus Corax, Sami Yli-Sirnio - Sverker (Era Metallum - Single Edit) [03:46]
-002. Perly i Lotry - Song of the Vikings (My Mother Told Me) [02:08]
-003. Lorne Balfe, Assassin's Creed - Assassin's Creed III Main Theme [03:07]
-004. Enigma - Return To Innocence [04:16](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 08:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A937FA072782BE80835F70ADD36F05A79D9D8661
 ```
 
 https://mybot314.ru/tekegram_catalog/

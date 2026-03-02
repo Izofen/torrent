@@ -1,3 +1,203 @@
+###  Публикация: 1151337   (574179) от 18.07.2017
+
+VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ej - One More Night (Extended Mix)
+02. Radion6 & Katty Heath - Beautiful Nothing (Radio Edit)
+03. Mark Sherry & Dark Fusion Feat. Jan Johnston - Deja Vu (James Dymond Extended Remix)
+04. Mike Shiver & Shannon Hurley - A Little Rain (Allen & Envy Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010EFBCB0A5042E9BB048BA064D099F739BB9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997606   (574154) от 20.05.2019
+
+VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, Balearic, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Le Blanc - Debussy En Es Vedra (Salinas Mix)
+002. Wedding Piano - Love Story
+003. M. Vitoria - Chill In Out
+004. Skendo - Romantic Beach Dinner(   Читать дальше...   )Жанр: Downtempo, Balearic, ChilloutПродолжительность: 07:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0977E41BDD0AC872200CFF776419CF7E0654D403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908663   (574145) от 20.05.2019
+
+VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brian Eno - Under Stars [04:21]
+002. London Philharmonic Orchestra, Karl Jenkins, Adiemus - Adiemus [04:01]
+003. Michael Nyman - The Heart Asks Pleasure First The Promise (Edit) [03:13]
+004. Roxy Music - Avalon [04:15](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 07:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692A95422CD84573A700548F8820AB6CEA5B139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772452   (574005) от 20.05.2019
+
+VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Sweet Emotion
+002. Led Zeppelin - Kashmir
+003. The Rolling Stones - Gimme Shelter
+004. AC/DC - Back In Black(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 07:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0958138A8A57DDAEACDCF13C1E675CBFEF6E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870677   (574002) от 20.05.2019
+
+VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - selfie (A. R. Mix)
+02. P. C. R. , P. C. R - Happy
+03. DJ Kee - Hey Brother
+04. D'Mixmasters - Sms (Bangerz)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BF4B3897BA218AE77CB6B39C3F7A87FFB14380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753826   (573987) от 20.05.2019
+
+VA - 100 Best Rock Hits (2012) [MP3|320 кб/с]<Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Led Zeppelin - Black Dog (4:57)
+2.The Beatles - Girl (2:34)
+3.Rolling Stones - (I Can't Get No) Satisfaction (3:45)
+4.Deep Purple - Child in Time (10:20)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 08:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F365AACE6F6E6357232B695263A844A9CB07C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234058   (573960) от 03.07.2018
+
+Lokee feat Pearl Andersson - Losing My Religion (2018) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573960.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Losing My ReligionЖанр: Deep HouseПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4DCCDF9939CC04C424EB63B8D1C5D5E10F238F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043168   (573869) от 15.08.2016
 
 VA - Club Dance Ambience Vol.82 (2016) [MP3|320 Kbps] <House, Progressive, Dance, Club>
@@ -548,209 +748,6 @@ VA - Festival Ultra Hits & Anthems (2016) [MP3|320 Kbps] <House, Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:188CDC3DD31F625582868A7927737DD8BE398500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043460   (572986) от 16.08.2016
-
-VA - Beatport Trance Pack (15.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Tyas  -  Turbo (Original Mix)  7:19
-02. Feel And Two K  -  The End Is Near (Original Mix)  4:52
-03. Sebastian Montano  -  Mare Nostrum (Rework)  8:49
-04. Jean Clemence And Programmer  -  Till the End  7:10(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BBA8CF44BAADFB6CDC99D28058C8F8715B95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043477   (572985) от 16.08.2016
-
-VA - Vertex Nostalgia Daydreamer (2016) [MP3|320 Kbps] <Trance, Energy, Progressive, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel & KhoMha  -  All Systems Down  3:32
-02. Cold Rush & Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
-03. John 00 Fleming  -  Altered Senses (Original Mix)  7:06
-04. Dreamy & York  -  Once Upon A Time  8:14(   Читать дальше...   )Жанр: Trance, Energy, Progressive, MelodicПродолжительность: 02:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9598481BC86544047C615163EEA9C06B5BEEFC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043319   (572983) от 16.08.2016
-
-VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fifth Harmony - No Way
-002. Интонация - Давление
-003. The Dollyrots - Little Medusa
-004. Sasha - Всего Лишь Три Слова(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303396   (572899) от 21.05.2019
-
-Miguel Bose - This Is Miguel Bose (2019) [MP3|320 Kbps] <Pop, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena mia
-02. Aire soy (feat. Ximena Sarinana)
-03. Te amare (MTV Unplugged)
-04. Hacer Por Hacer(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FA3AF0B46DDC7CA3667BAC81E3CBFFA4760FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043323   (572841) от 16.08.2016
-
-VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аркадиас - Здравствуй Любовь Моя
-002. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
-003. Агонь - Отпусти
-004. Karen Туз Feat. Gaya Khan - Сеньорита(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043598   (572838) от 16.08.2016
-
-VA - Lounge Cafe: Music for Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knoult - Away from the Cares
-02. Jenya Alexanov - Voco
-03. AVIABEATS - The Bell Tolls
-04. Denis Arson - 2 Days of Paradis(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFB56248C10ADA92D40E8B22533D79916A58587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043312   (572832) от 16.08.2016
-
-VA - Turbo mix World Hits №6 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572832.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Flash Point - Peace (Extended Mix)
-002 - Remundo - Gliding Flute (Club Mix)
-003 - Alexdoparis - House Beat (Radio Mix)
-004 - Robbert Simmons - Deep Tekker (Club Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 07:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4E042D4ED938C03A866D73D3A0D72F2AE22F24
 ```
 
 https://mybot314.ru/tekegram_catalog/

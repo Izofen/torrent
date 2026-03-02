@@ -1,3 +1,218 @@
+###  Публикация: 1223147   (677385) от 03.05.2018
+
+VA - Coastlines 100 Workout Hits (2018) [MP3|320 Kbps] <Electro, Indie, Reggae>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677385.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rockie Fresh - You A Lie (Crnkn & Branchez Remix) (Clean) (Radio Edit)
+002. Montell2099 & 21 Savage - Hunnid On The Drop (Mr. Carmack Remix) (Dirty) (Radio Edit)
+003. Rockie Fresh - You A Lie (Crnkn & Branchez Remix) (Clean) (Short Edit)
+004. Jocelyn Alice - I Know (Clean)(   Читать дальше...   )Жанр: Electro, Indie, ReggaeПродолжительность: 04:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE50C8D8F1BEA72EBF2080C0224CDEB1C6FBA3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507844   (677339) от 11.06.2012
+
+VA - Музыкальные новинки  (01.06.12 по 07.06.12) (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677339.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adam Lambert - Never Close Our Eyes (Almighty Radio Edit) (3:57)
+2. ADN - Ему Ты Больше Не Нужна (3:43)
+3. Aiden Grimshaw - Is This Love (Radio Edit) (3:25)
+4. Akon - America’s Most Wanted (Full + CDQ) (3:40)
+5. Alexandra Burke - Beating Still (3:35)
+6. Alexandra Burke - Between the Sheets (3:09)
+7. Alexandra Burke - Daylight Robbery
+8. Alexandra Burke - Fire
+9. Alexandra Burke - Love You That Much
+10. Alexandra Burke - Oh La La(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 12:46:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136025   (677280) от 21.05.2017
+
+VA - The First Protocol: Global Clubbing Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677280.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - The Train (Extended Mix)
+002. Adam Szydlik - Vectrum
+003. Ferry Tayle & Dan Stone - Vona (Extended Mix)
+004. Alexander de Roy feat. Macy - Never Be Alone (Nueva Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FF1B4C3C4CB9B5785D0FB16177D2961CAFFB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136199   (677146) от 21.05.2017
+
+VA - Italo & Space Vol.37 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bobby O - Destiny Calls 3:33
+02.  Yakuro - Star Dance 4:59
+03.  Marco Rochowski - Game Of Love 6:31
+04.  Giuseppe Alicata - Parla Con Me 5:54(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 03:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C8BF305C3820B4C36551FD54069102B5AB9886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223188   (677136) от 03.05.2018
+
+VA - Billboard Hot 100 Singles Chart (05.05.2018) (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drake, Big Freedia, 5thward Weebie - Nice For What
+002. Drake - God's Plan
+003. Ariana Grande - No Tears Left to Cry
+004. Bebe Rexha - Meant to Be(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A37EA34E6CCA3AD6DDC76270409AFB4155A40AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223091   (677010) от 03.05.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 7 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677010.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга.  У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 7я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK361 Ozzy Osbourne - Mr. Tinkertrain
+362 Whitesnake - All Out Of Luck
+363 Skid Row - Psycho Love
+364 Thunder - All I Ever Wanted(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BAE384A10AEC626046418AC21CBCC7F4967967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508023   (676902) от 11.06.2012
+
+VA-Classik Album - Gold Classic Instrumental (2012) [MP3|320 кб/с]<Instrumental, Classic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Acoustic Alchemy-Jamaica Heart Beat
+02 - Anthony Ventura-La paloma
+03 - Elton John-CHELDORADO
+04 - C. Dulfer-Lilly Was Here
+05 - Cantoma-Maja
+06 - Damian Luca-Unchained Melody
+07 - David London-Horizons
+08 - Miami Sound Machine-ALL BECAUSE OF YOU
+09 - Ed Calle-Spanish Rose
+10 - En Voice-Rainy Days(   Читать дальше...   )2012Жанр: Instrumental, ClassicПродолжительность: 02:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386DC5E22FBBB5E05DE975D3A7E3D76A155B80A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136147   (676843) от 21.05.2017
 
 VA - Guitar Collection 12 (2017) [MP3|320 Kbps] <Instrumental>
@@ -548,224 +763,6 @@ VA - My Favourite Hits of 1965 (7CD) от DON Music (2016) [MP3|320 Kbps] <Easy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD5C155719169D5E16405E609A1B88DD5828E480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509376   (675652) от 12.06.2012
-
-VA - Trance Symphony Volume 14 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dabruck & Klein - 2.48AM (Extended Mix) [06:45]
-02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
-03. Boom Jinx & Daniel Kandi - Azzura (Original Mix) [06:36]
-04. Juventa - City On Clouds (Original Mix) [09:51]
-05. Indecent Noise - Civitanova (Akira Kayosa's MTM Mix) [07:10]
-06. Mark Burton - Delusion (Original Mix) [06:38]
-07. Mike Koglin vs. Genix - Dyno (Original Mix) [08:05]
-08. Nick Callaghan & Will Atkinson - Eastern Spirit (Original Mix) [08:02]
-09. Alpha Force feat. Claire Willis - Fade Away (Original Mix) [05:54]
-10. Ben Alonzi & 7 Baltic - Flashback (Original Mix) [08:29](   Читать дальше...   )2012Жанр: Uplifting Trance, TranceПродолжительность: 06:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7434F6422000B6528C06EDA9FCA935FA4E9397FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030104   (675629) от 29.06.2016
-
-VA - Record Russian Mix Top 100 June 2016 (28.06.2016) (2016) [MP3|318-320 Kbps] <Electro House, Remixes, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alekseev - Пьяное Солнце (Roma Pafos Radio Edit)
-2. Antoine Chambe & Otter Berry feat. Hi-Ly - Andalusia (Filatov & Karas Club Mix)
-3. Anton Liss feat. Вика Маскова - Закроем Тему
-4. Art Brothers & All Stars - BetonoMASHalka #1 (Dmitry V Crazy Mash)(   Читать дальше...   )Жанр: Electro House, Remixes, DanceПродолжительность: 06:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB11AD18A26440921EA1F3B0CFB61645F7FF018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030163   (675625) от 29.06.2016
-
-VA - Слушаем и Танцуем (2016) [MP3|224-320 Kbps] <Eurodance, Dance, Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Ashley - Stop In The Name Of Love (Maxi Mix)
-02. Cristina Manzano - Stay With Me (Original Mix)
-03. Blue Star Project - Stay The Night (Radio Edit)
-04. 1 st Heavenue - Leonardo Da Vinci (The 2nd Single Maxi Edit)(   Читать дальше...   )Жанр: Eurodance, Dance, Disco, PopПродолжительность: 05:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5CA09D4BDE7690E0A4BE2E219281B2594491A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509464   (675549) от 12.06.2012
-
-VA - Club 2012 - House Dubstep Trance Hits (2012) [MP3|320 кб/с]<House, Dubstep, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Loose - Chingy
-02. Desert Asteroids - Electric Heaven
-03. Mr. Brown (Dubba Jonny Remix) - Bob Marley
-04. What It Feels Like - J .Worthy
-05. Somebody That I Used to Know (Dubstep Remix) - Dubstep Mafia
-06. Believin' (Electro House Remix) - Brand Blank, Jessica Jean
-07. I Love Skrillex -2012Жанр: House, Dubstep, TranceПродолжительность: 03:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BB464534122DB258B1EA91BD593C1D673B3B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509663   (675305) от 12.06.2012
-
-VA - Дискотека: Жаркое лето №100 50/50 (2012) [MP3|160-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Настя Крайнова - Стоп Время
-02 Far East Movement feat. Flo Rida & Sidney Samson - Change Your Life
-03 Оля Полякова - Лепесток
-04 Aqua - Like A Robot
-05 Челси - Надо
-06 Taio Cruz Feat. Flo-Rida - Hangover
-07 Шатунов - Майский Вечер 2012
-08 Tina Cousins - Wonderful Life (Kenny Hayes Sunshine Funk Edit)
-09 Меседа Багаудинова - Дым
-10 Duck Sauce - Barbra Streisand(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:32:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536530   (675125) от 12.03.2022
-
-VA - German Top 100 Single Charts 11.03.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miksu / MacLoud & T-Low - Sehnsucht
-02. Glass Animals - Heat Waves
-03. GAYLE - abcdefu
-04. Civo - Weg von mir(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF79E5292E088FF1C689E381D78FE7AC1C172B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030554   (675013) от 30.06.2016
-
-VA - Moon Faze (2016) [MP3|320 Kbps] <Downtempo, Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Crowdpleaser & Mah’Mood – Yasmin (feat Habib)(6:18)
-2. Bird Of Paradise – The Holy Mountain (5:46)
-3. Dreems – Sine ‘O’ The Tymes (7:16)
-4. Nick Murray & Kris Baha – Say Something (7:19)(   Читать дальше...   )Жанр: Downtempo, Deep House, Tech HouseПродолжительность: 01:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4158589AC4B2225744282BB497E027EB3DF6EFFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

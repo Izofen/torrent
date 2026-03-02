@@ -1,31 +1,25 @@
-###  Публикация: 597622   (999681) от 05.01.2013
+###  Публикация: 1352228   (1000880) от 15.01.2020
 
-VA - Narada Guitar 2  The Best of Two Decades (2000) [MP3|320 кб/с]<Instrumental, Guitar>
+Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
 
 >>Other Styles
->>Instrumental
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Don Ross - Michael Michael Michael Don Ross (4:11)
- 2. Artie Traum - Safety In Numbers Artie Traum (6:31)
- 3. Randy Roos - Ray's Passage Randy Roos (5:48)
- 4. Billy McLaughlin - Candleman Billy McLaughlin (6:19)
- 5. Willie and Lobo - Havana Vieja Willie and Lobo (5:04)
- 6. Alex de Grassi - It Ain't Necessarily So Alex de Grassi (4:30)
- 7. Jesse Cook - Rattle And Burn Jesse Cook (3:48)
- 8. Eric Tingstad - The Craftsman Eric Tingstad (3:38)
- 9. Oscar Lopez - The Flavor Oscar Lopez (4:00)
- 10. Laurence Juber - New Jersey Left Laurence juber (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 02:00:54
+1.Directions (8:19)
+2.All Who Wander (8:15)
+3.Trailblazers (6:20)
+4.Springtime Dreaming (9:20)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:20:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40E9402853263ED9D61592F3A518258B1E76D9D4
+magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,76 +307,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600495   (998322) от 10.01.2013
-
-Dishonored (2012) [MP3|128 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Main Theme 02:09
-2.The Return 01:10
-3.Empress Death 01:06
-4.Corvo Tortured 00:51
-5.Daud Encounter 01:12
-6.Survival 01:15
-7.Wrenhaven River 02:40
-8.Streets Exploration 03:11
-9.Streets Suspense 02:44
-10.Aristocracy Suspense 02:31(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406528   (997676) от 12.01.2013
-
-Toto - Дюна/Dune (1984) [MP3|320 kbps]<OST/Score/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 - Prologue/Main Title - 3:20
-2 - Guild Report - 0:55
-3 - House Atreides - 1:44
-4 - Payul Atreides - 2:22
-5 - Robot Fight - 1:23
-6 - Leto's Theme - 1:23
-7 - The Box - 2:41
-8 - The Floating Fat Man (The Baron) - 1:16
-9 - Departure - 1:14
-10 - The Trip to Aarakis - 2:40(   Читать дальше...   )Жанр: OST/Score/SoundtrackПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602115   (997585) от 13.01.2013
 
 Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
@@ -478,41 +402,6 @@ Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602860   (997130) от 14.01.2013
-
-Во все тяжкие / Breaking Bad (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Bad - Main Title Theme (Extended) [1:16]
-02. MAtches in the Pool [2:10]
-03. Smoking Jesse's Pot [2:02]
-04. Gray Matter [3:10]
-05. The Morning After [2:25]
-06. Three Days Out [3:04]
-07. Vent [1:35]
-08. Baby's Coming [4:10]
-09. Jane's Demise [2:20]
-10. The Cousins [3:27](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C298B2FB942CEDC39D10F43D5AFE0458805920
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -887,6 +776,105 @@ VA - Союз нерушимый... - Песни и танцы народов С
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608553   (993423) от 25.01.2013
+
+V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Dub - Insensatez (How Insensitive)
+02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
+03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
+04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
+05. Aural ft. Ituana - Amanha Talvez
+06. Urban Love ft. Moana - Samba De Uma Nota So
+07. Lalann - Seguir No Caminho
+08. Sound Behaviour - Fixacao (Outro Lado Remix)
+09. Karen Souza - Do You Really Want To Hurt Me
+10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352824   (992632) от 17.01.2020
+
+Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Art Thou (4:12)
+02. Dusty Room (2:42)
+03. Someone Who Forgot His Watch (3:42)
+04. Short Memory (2:45)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608110   (992170) от 27.01.2013
+
+VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992170.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
+ 02. Charley Pride - Happiness Of Having You
+ 03. Frankie Laine - Granada
+ 04. Lynn Anderson - Heaven's Just A Sin Away
+ 05. Tina Turner - If It's Alright With You
+ 06. Jimmie C. Newman - A Fallen Star
+ 07. Anne Murray - It's All Over
+ 08. Patsy Cline - Hungry For Love
+ 09. Jim Reeves - Wind Up Doll
+ 10. Jerry Lee Lewis - Your Cheatin' Heart(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

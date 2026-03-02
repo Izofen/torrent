@@ -1,3 +1,32 @@
+###  Публикация: 1569135   (453510) от 12.08.2022
+
+The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie
+02. Rock and Roll Heaven
+03. Going to Hell
+04. House on a Hill(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 02:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1780C26F4B57F38161B60A80C31926242165CEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942633   (453250) от 01.10.2015
 
 VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<Rock>
@@ -719,35 +748,6 @@ Disc 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98071331B16F44C7C30A97FE1E4538A2D85BCF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411795   (423159) от 27.09.2020
-
-VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lo Blow - New Heirs
-002. Stillsuit - At The Speed Of Light
-003. Redline - Stand And Fight
-004. Only Attitude Counts - The Mirror(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 08:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200831B476CD2C52EB1166E1BC3EC49F7A5853BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

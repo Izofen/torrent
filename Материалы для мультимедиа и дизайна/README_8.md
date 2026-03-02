@@ -1,3 +1,32 @@
+###  Публикация: 1601570   (1046399) от 01.01.2023
+
+3D print - Printed Obsession - Squirtle with shades [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сквиртл - маленький покемон-рептилия, похожий на светло-голубую черепаху. Обычно он ходит на двух коротких ногах, но в игре Super Smash Bros. Brawl было показано, что он может бегать на четвереньках.
+
+Модель предоставлена в собранном виде.
+Размер: 128.2x107.4 h:155.8mmФормат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A376EA5229541F265D0F5CF6A055AAFC9CB25D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601572   (1046396) от 01.01.2023
 
 3D print - Printed Obsession - Team Mystic [STL]
@@ -658,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328C7EF5A619CAD6C60080D6D79AD3330D2AF5AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437557   (1041858) от 05.01.2021
-
-3D модели - 3DDD - 3DSky PRO models – December 2020 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 42 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC36DFF697C61B469638491A487995C864419ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

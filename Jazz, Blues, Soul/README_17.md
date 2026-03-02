@@ -1,32 +1,3 @@
-###  Публикация: 1614436   (1038605) от 22.02.2023
-
-Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backroad [6:47]
-02. Milo Hayward [4:52]
-03. Brooklyn Bound [5:40]
-04. Danny Mack [6:57](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614489   (1038563) от 22.02.2023
 
 Tony Brook - Alabama Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -745,6 +716,35 @@ Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D21422DF6859BC77E0782DBDAEA1A6B2AE95E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615491   (1037598) от 26.02.2023
+
+Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Quarters [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifeflight [8:44]
+02. Up Jumped Spring [7:08]
+03. Theme for Kareem [6:35]
+04. On the Real Side [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BCCDCF9EF3BF674FB82ABE5A35DA9339654EBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

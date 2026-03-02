@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1856492   (1058815) от 28.02.2026
+
+Zed Yago - At The Edge Of The World (2026) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовые немецкие хэви-металлисты ZED YAGO, молчавшие больше 15 лет, вернулись с новым альбомом "At The Edge Of The World", опубликованным на цифровых площадках в середине февраля. Этот релиз окружен атмосферой таинственности. В базах данных Metal-Archives.com и Discogs.com он отсутствует. Нет никакой информации о том, в каком составе он записывался. При (   Читать дальше...   )01. Close Your Eyes
+02. At The Edge Of The World
+03. Obsession Of Power
+04. Soldiers From The North(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29570BE1DD3E4AD7C00344D3EA86BA330E04B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856128   (1058761) от 26.02.2026
+
+Rob Zombie - The Great Satan (2026) [MP3|320 Kbps] <Industrial metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 F.T.W. 84
+02 Tarantula
+03 (I'm a) Rock "N" Roller
+04 Heathen Days(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A181CAB14522DB851F71234D1CB77DFE48D49ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856298   (1058659) от 27.02.2026
+
+Gladenfold - Soulbound (2026) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058659.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 февраля финская пауэр-метал команда Gladenfold выпускает свой четвертый альбом “Soulbound” на лейбле Reaper Entertainment. Это концептуальный альбом, наполненный эпическим величием, навязчивой меланхолией, взрывной агрессией и парящими мелодиями, переполненный необузданными эмоциями. Знаменуя собой смелый шаг вперед в своем музыкальном путешествии, группа выпускает (   Читать дальше...   )1. Fire Wind 4:31
+2. Wardens Of Time 3:41
+3. For My Queen 4:26
+4. Helix Of Hate 3:59(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDD8ED046563FCCD7ED2C5B903A1BB00B5CC32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854780   (1058048) от 21.02.2026
+
+Clawfinger - Before We All Die (2026) [MP3|320 Kbps] <Alternative Metal, Funk Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scum
+02. Ball & Chain
+03. Tear You Down
+04. Big Brother(   Читать дальше...   )Жанр: Alternative Metal, Funk Metal, Nu MetalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5843ADA399DA003DA5EBF95E9A1C54128BCE9CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854419   (1057457) от 17.02.2026
 
 Element - Dreamer (2026) [MP3|320 Kbps] <Progressive Heavy Metal>
@@ -630,122 +746,6 @@ Inner Shrine - The Last Emperor (2025) [MP3|320 Kbps] <Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4B8366B43806B9E7A971AAA86F9DF459596DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839355   (1046640) от 29.11.2025
-
-Dream Theater - Quarantième: Live À Paris (2025) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046640.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Metropolis Pt. 1
-2. Overture 1928
-3. Strange Déjà Vu
-4. The Mirror(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B27C6B8D099823BD5652D4CF29450D2E816C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839536   (1046630) от 29.11.2025
-
-Factoria - All Synthetic (2025) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignition (Intro) [00:01:35]
-02. Free Will [00:04:55]
-03. Nuclear Error [00:05:30]
-04. Oppressed [00:03:50](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB373AF15FF7AF9CB333ECD7996A33E019D35A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839259   (1046509) от 28.11.2025
-
-My Ticket Home - Pure To A Fault (2025) [MP3|320 Kbps] <Nu-Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tearjoint [00:03:14]
-02. The Weakest Wound [00:03:00]
-03. Nothing Lost [00:05:05]
-04. Spliced [00:04:02](   Читать дальше...   )Жанр: Nu-Metal, MetalcoreПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE4660B0B182F87521259ACCFD21AB67AC66CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601702   (1046361) от 02.01.2023
-
-Zombiophilia - 4 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Pay Taxes - Sponsor War
-2021 - Dead Brain
-2022 - Madness(   Читать дальше...   )Жанр: Death Metal, Pagan MetalПродолжительность: 4 CD, 02:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6623CBDF2B921ED332421CA89708A8FC019B921
 ```
 
 https://mybot314.ru/tekegram_catalog/

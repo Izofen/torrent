@@ -1,3 +1,206 @@
+###  Публикация: 1364128   (937738) от 02.03.2020
+
+Pat Travers - Travelin' Blues (2020) 2CD Compilation [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life In London
+02. Calling Card Blues
+03. Who Can You Turn To
+04. Stevie(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74924FC012B9A4404C3593A0826159AA0E6B8FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364297   (937731) от 02.03.2020
+
+Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Time
+02. Mystery Of Love
+03. Work That Magic
+04. Cold Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092995   (937429) от 13.01.2017
+
+VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Reorder Extended Remix)  5:51
+02.  Xian - Equinox (Original Mix)  8:00
+03.  Stoneface & Terminal With Ana Criado - My Heart Wont Tell You No (Original Mix)  8:20
+04.  STA - Singularity  8:28(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092962   (937407) от 13.01.2017
+
+VA - SuperBomb Club Music Pack 60 (2016) [MP3|320 Kbps] <Progressive House, Big Room, Electro House, Trance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer & Ron Rockwell — Axel F. (Crew 7 Remix) (3:48)
+02. Armin van Buuren vs. Vini Vici feat. Hilight Tribe — Great Spirit (Extended Mix) (7:37)
+03. Bad Nelson — Babylonia (Original Mix) (3:35)
+04. Bassjackers vs. Skytech & Fafaq — Pillowfight (Extended Mix) (4:01)(   Читать дальше...   )Жанр: Progressive House, Big Room, Electro House, Trance, ClubПродолжительность: 03:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BF6DB08F970A465120FB446B60C16D71C89BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092841   (937340) от 13.01.2017
+
+VA - Aboved Singles Reviews (Trance Pack  9 January) (2017) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vadim Spark & Dennis Graft - Spells (Radio Edit)  3:23
+02.  Allen Watts - Square One (Original Mix)  6:44
+03.  Mario Piu - Thunderstruck (Voolgarizm Mix)  6:32
+04.  Alexander Dyomin - Reborn (Delta IV Remix)  6:16(   Читать дальше...   )Жанр: Trance, Harmonic, Energy, Emotional, Uplifting, ProgressiveПродолжительность: 05:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE30396F9C8C50A745FB4D37F81F60DEB87F177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092888   (937336) от 13.01.2017
+
+VA - The Big Party Omega (2017) [MP3|195-320 Kbps] <Club, Progressive, Vocal, Happy Sound, Funky, Bounce>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtek feat. MC Ambush - 90s By Nature (Original Mix) 04:34
+02. Robin S & R.O.N.N. (Aka Ron Carroll) - So Alive (Code3000 Remix) 06:44
+03. Luca Debonaire - Hung Up On You (Original Mix) 05:20
+04. Leston - Down The Drain (Crazibiza Remix) 04:37(   Читать дальше...   )Жанр: Club, Progressive, Vocal, Happy Sound, Funky, BounceПродолжительность: 06:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D81D5D53AA3C0C6DBB3E1FF4A9591CEF9856C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092793   (937322) от 13.01.2017
+
+VA - Respect System Groove Dancing (2017) [MP3|251-320 Kbps] <Club, Funky, Electro, Progressive, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gil Sanders - Funky Freedom (Radio Edit) 02:39
+02. Discorocks Feat Kalypso - Happy (Full Intention's Met Life Remix) 05:45
+03. Dj Leon El Ray Feat Anthony Poteat - If You Let Me (Original Mix) 06:07
+04. Dafunkeetomato - Everyone's Dancing (Original Mix) 06:34(   Читать дальше...   )Жанр: Club, Funky, Electro, Progressive, Nu DiscoПродолжительность: 06:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A9A256828E48D850EC6E989288B5A33764A2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984954   (937256) от 10.02.2016
 
 VA - Miami Dance - Lights Impression (2016) [MP3|212-320 кб/с] <Acid House, Hard NRG, Electroclash, UK Funky, Bigroom, New Rave>
@@ -543,208 +746,6 @@ VA - Are You Ready? (Vol.22) (2016) [MP3|128 - 320 кб/с] <Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DFBEFF421FA87D817CBEDA61104DE5A53A88D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984379   (935518) от 11.02.2016
-
-VA - Evolution of Disco - CD1 (1964-2015) [MP3|128-320 кб/с] <Funk,Disco,House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Paul - Me and Mrs. Jones  04:51
-02. Jerry Butler - One Night Affair  03:28
-03. Diana Ross - Where Did Our Love Go  02:36
-04. The O'Jays - Now That We Found Love  04:42(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEEADD9CC9A37311C16AFE12125CF3DCD77EFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985345   (935509) от 11.02.2016
-
-VA - Music For Active Travel (2016) [MP3|320 кб/с] <Club, Dance, House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Glenn Morrison - Shade 06:24
-002. Turbotronic - Doomchit Doomchit (Radio Edit) 02:49
-003. Andrey Vertuga & Juliana Neva & Wild Cat - Вперёд (DMC Mikael & Denis Zubov Remix) 04:31
-004. Domg feat. Mellina - You Broke My Heart 04:35(   Читать дальше...   )Жанр: Club, Dance, House, PopПродолжительность: 06:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3043A4666C14066305D284110211A3A5B32C31CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985269   (935508) от 11.02.2016
-
-VA - Время Шансона (2016) [MP3|320 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Дюмин - Озорной
-02. Дэн Ясюк - Пяточка
-03. Жорик Иванов - Гуляй
-04. Владимир Алмазов - Нагадай мне любовь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074E624081E76FADB4F6DC74353B6B2BE3AD6C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985128   (935501) от 11.02.2016
-
-VA - Прощание Славянки: Лирика Шансона 17 выпуск (2016) [MP3|256-320 kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Енгибарян и Елена Тишкова - Подари
-002. Владимир Тимофеев и гр. 'Чёрная роза' - С кедра падают орешки
-003. Игорь Жук - Стоящие на головах
-004. Михаил Шуфутинский - Люди добрые(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843ED97D065A0D2F72B5EB1E443EF414D71A01A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985331   (935499) от 11.02.2016
-
-VA - Alterportal HITS 16 Vol. 89 - January (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cypecore - The Void
-2. Dark Avenue - Forget You
-3. Forever Still - Break the Glass
-4. One Day Remains - Enemy in Me(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7B901C1A01BA6D32F71B0FBF63764D42CCC7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985325   (935400) от 11.02.2016
-
-VA - Disco & Pop 80-90 Hits! (2016) [MP3|320 кб/с] <Euro-Disco, Italodance, Hard Trance, New Wave, Happy Hardcore>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj's Project - Vision Of Love (Extended Vocal Version) 07:48
-02. Ane Brun - Big In Japan (Uno Kaya Remix) 05:51
-03. Flirts - Passion 2012 (Dance Remix)Жанр: Euro-Disco, Italodance, Hard Trance, New Wave, Happy HardcoreПродолжительность: 06:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0660252374C3A22896D7D30CCDD9EDD7DBD03A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985405   (935385) от 11.02.2016
-
-VA - Любимая музыка. Тебе, в День Святого Валентина (2016) [MP3|320 кб/с] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935385.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hiromi Sano - I Drink
-002. Arthur Fiedler and the Boston Pops - Eleanor Rigby
-003. Billy Gorlt Orchestra - A String Of Pearls
-004. Carlten And Orchestra - Words(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 08:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1FC4D08133EF224ECBEAE44FE66573599CC526
 ```
 
 https://mybot314.ru/tekegram_catalog/

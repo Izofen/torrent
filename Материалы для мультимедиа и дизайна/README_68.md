@@ -1,3 +1,30 @@
+###  Публикация: 1371672   (890085) от 31.03.2020
+
+Рамки - NNM-Club - Рамки от Warrior 123 #10 - 1371672 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамки созданные нашим одноклубником Warrior 123
+ОднослойныеФормат: PSDРазрешение файлов: 2000x1300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FE13F756A8C5D1781FF3768DF7CC0F4BB619B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371674   (889981) от 31.03.2020
 
 Рамки - NNM-Club - Рамки от Warrior 123 #12 - 1371674 [PSD]
@@ -648,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C95743A8CDB7EE96E3968CDE9E78B9FD31560A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494896   (885784) от 09.09.2021
-
-3D модели - Hum3D - Honda VFR1200F 2015 [Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885784.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мото марки Honda.Формат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140BE5E8C74614AE88DD898673BE5D38F9D89FDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

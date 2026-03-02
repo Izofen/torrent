@@ -1,3 +1,206 @@
+###  Публикация: 995231   (884717) от 11.03.2016
+
+VA - Coming Personal Holiday - Promotion (2016) [MP3|203-320 кб/с] <UK Garage, Latin, Tropical, Progressive, Future House, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884717.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matthew Koma - So F--Kin Romantic  (Dirty Version).mp3
+002. Dillon Francis With Kygo Feat. James Hersey - Coming Over  (Album Version).mp3
+003. Shaggy Feat. Pitbull And Gene Noble - Only Love  (Album Version).mp3
+004. Boehm And Dvnni - Summer Sippin  (Original Mix).mp3(   Читать дальше...   )Жанр: UK Garage, Latin, Tropical, Progressive, Future House, BigroomПродолжительность: 12:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0B031F04E15A375CA25EBEDC91FD76D60537EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995362   (884710) от 11.03.2016
+
+VA - Vocal Tech House: Party March (2016) [MP3|320 кб/с] <Vocal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884710.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soul Button - Come To Me
+002. Loolacoma - Slow Poison (Qoob Remix)
+003. Mark Picchiotti - Shelter (Rhythmic Groove Remix) (feat. Rufus Proffit)
+004. Carlos Russo Feat. Jay Jacob - Begin (Matan Caspi Remix)(   Читать дальше...   )Жанр: Vocal, Tech HouseПродолжительность: 09:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FDC1FC92C05D960934B995B203DAC0792A1D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995534   (884706) от 11.03.2016
+
+VA - Hits 2016 See You Uptown (2016) [MP3|212-320 кб/с] <Club, Funky, Nu Disco, Indie Dance, Tropical, Garage>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884706.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Freak Mason - Lunatic 04:23
+002. Fabtrap - Your Love 03:35
+003. Paris Blohm - Get There (Extended Mix) 04:12
+004. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29(   Читать дальше...   )Жанр: Club, Funky, Nu Disco, Indie Dance, Tropical, GarageПродолжительность: 07:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A27B4C8DB3EA6E9E84F1553B68DE57327C9837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995240   (884700) от 11.03.2016
+
+VA - Relaxez-vous (2016) [MP3|320 кб/с] <Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Dri - Pleine Lune
+02. Michael Goldberg - Calme apres la tempete
+03. Nicolas Dri - Unite naturelle
+04. Michael Goldberg - eclaircie(   Читать дальше...   )Жанр: LoungeПродолжительность: 05:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57E34F750EF5DF123B361AE72B76E734EB11FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995587   (884623) от 11.03.2016
+
+VA - Блатная жизнь с радио Шансон (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884623.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анатолий Полотно & Федя Карманов - Живите-Здравствуйте
+002. Сергей Сорокин - Цепи
+003. Александр Куданов - Знаю
+004. Андрей Дубов - Начинается Путь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E2F919D2F307A8EB1F960CF62B2852FC7C9C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995421   (884492) от 11.03.2016
+
+VA - Jazz Juice: Vocal Compilation (2016) [MP3|320 кб/с] <Jazz, Modern jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884492.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen Latifah - Dont Cry Baby
+002. Ledisi - Blues In the Night
+003. Etta James - Stormy Weather
+004. Cassandra Wilson - I've Grown Accustomed to His Face(   Читать дальше...   )Жанр: Jazz, Modern jazz, BluesПродолжительность: 07:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B5AA8B72CB3F86EA54DC4C0ED6BEBD146EF26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995598   (884219) от 11.03.2016
+
+VA - Guitar Collection 3 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Acoustic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Granfelt Band - The Dream  04:50
+02. Ben Granfelt Band - Instrumental Madness  04:07
+03. Snowy White & The White Flames - Whiteflames Blues  04:35
+04. C. Williams & J. Franklin - Rome  05:59(   Читать дальше...   )Жанр: Instrumental, Blues-Rock, AcousticПродолжительность: 05:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA3592C79408E7C3A05B9290F1335152FFC861C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994856   (883809) от 11.03.2016
 
 VA - Powerful 100 Hits Delight (2016) [MP3|256-320 кб/с] <Indie Dance, Club, Progressive, Nu Disco, Bigroom, Hands Up>
@@ -539,209 +742,6 @@ VA - Sunrise Lovers Vol.3: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6B13F2D5EEF37595A5E6BC3589D3237672B6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995909   (883092) от 12.03.2016
-
-VA - Club Dance Ambience vol 58 (2016) [MP3|320 кб/с] <Club House, Vocal House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 50 Cent vs. DJ KUBA & NEITAN - Disco Inferno Party On! (Aquila Mash-Up).mp3
-002. Aceaxe feat. Jonny Rose & Sicklead - Heartfire (Original Mix).mp3
-003. Acim - All My Life (Original Mix).mp3
-004. Adam Lambert vs Adam Aesalon & Murat Salman - Ghost Town (Max Maikon Mash-Up).mp3(   Читать дальше...   )Жанр: Club House, Vocal House, House, Electro House, ElectroПродолжительность: 08:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15723D1D084E8B4498D5E5972A0FF75B43C6B6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995927   (882965) от 12.03.2016
-
-VA - Trance Desire Volume 63 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proyal feat. Ai Takekawa - The Orbit (Hazem Beltagui Remix) (05:45)
-02. A. Shine - Tango (Spark7 Remix) (04:31)
-03. Morvan - Spartacus (06:17)
-04. Sneijder feat. Jess Morgan - Sky Is On Fire (Radio Edit) (04:12)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7920B254C32B9F6C5399BE947994E161F0E812F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995962   (882960) от 12.03.2016
-
-VA - The Top Hits Insider (2016) [MP3|257-320 кб/с] <Progressive, Nu-Disco, Bigroom, UK Garage, Italo House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe Carolina & Shanahan Feat. Haliene - Stars & Moon (Original Mix) 05:00
-02. Dj Kamera - Time Machine (Original Mix) 07:01
-03. Disco Fries & Kaaze Feat. Danyka Nadeau - We Are One (Extended) 04:05
-04. D.Marco - New Day 06:59(   Читать дальше...   )Жанр: Progressive, Nu-Disco, Bigroom, UK Garage, Italo HouseПродолжительность: 08:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA2842DA02B38D68DC8B3F77FBB4F1D0644B4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995983   (882846) от 12.03.2016
-
-VA - German Top 100 Single Charts (14.03.2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882846.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Faded
-002. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
-003. Twenty One Pilots - Stressed Out
-004. Jonas Blue feat. Dakota - Fast Car(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B671A9CA0D07DA620187A4917DEC0C9C1B533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995642   (882845) от 12.03.2016
-
-VA - Давай, наливай. Выпуск 2 (2016) [MP3|256 кб/с] <Pop, Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Кирсс - Знал Бы
-002. Игорь Крылов - Кабацкий Роман
-003. Александр Куданов - Моя Светлана
-004. Татьяна Маргай - Загадай Меня(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 06:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C0D9ABC8046C958F7F7162CDCD26C7BD7D6926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995673   (882843) от 12.03.2016
-
-VA - Весенняя сотка любимой музыки. Часть 6 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882843.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rasmus Skott - Acted Show
-002. Сергей Сумачаков - Похожи
-003. Рената Штифель - Конец Фильма
-004. Lenachka - Breaking Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C518013456D160C29ABEBB3B2F6C5037F64025D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995859   (882699) от 12.03.2016
-
-VA - Amnezia Super Hits 01 (2016) [MP3|320 кб/с] <EuroDance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob & Chris - Zeitmaschine (90s Mix) 02:23
-02. Dr.Alban ft. Haddaway, FrancaMorgano & Katja Bredahl - Volcano 03:44
-03. Twenty 4 Seven ft. Stay-C & Li-Ann - Slave To The Music (Housemaxx Edit) 03:46
-04. E-Rotic - Video Starlet 03:28(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 03:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EEEEB4839F67FCBF6BC63058F1424401F1A45E
 ```
 
 https://mybot314.ru/tekegram_catalog/

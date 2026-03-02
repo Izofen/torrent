@@ -1,3 +1,31 @@
+###  Публикация: 1182445   (317060) от 10.11.2017
+
+Векторный клипарт - Vector Roses Collection #15 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+25 Роз
+Ai+Jpg PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB957DBB4DC8552CA0845F4E1166B106C438A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182426   (317057) от 10.11.2017
 
 Растровый клипарт - Tubes #59 [PNG]
@@ -649,34 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCA2A5CB96CFC6B68B5D0859A25B055FE8522A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182744   (314747) от 11.11.2017
-
-Векторный клипарт - Black 2018 Backgrounds [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Черный Фон 2018
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2352FA97061AB62798A1BE45598A77DED150A1AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

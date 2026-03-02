@@ -1,3 +1,204 @@
+###  Публикация: 988798   (919096) от 21.02.2016
+
+VA - Дальняя дорога с душевной музыкой (2016) [MP3|256 kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Май - Далеко
+02. Александр Поляков - Танго С Аккордеон
+03. Александр Закшевский - Мой Причал
+04. Band ODESSA - Платье белоснежное(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72998BB2E7BC1A154F105CF09839A12FD3853DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988824   (919092) от 21.02.2016
+
+VA - Нагадай мне любовь. Любимые песни для души - (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Алмазов - Нагадай мне любовь 05:44
+002. Геннадий Ура - Каблучками простучала 03:51
+003. Андрей Язвинский - Магнит 03:16
+004. Олег Бобрик - Маечка 03:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655A49CCBF62B34FA8A6C51427B30CEC19CC2228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987908   (919088) от 21.02.2016
+
+VA - Bossa Nova: Bossa Nostra (2016) [MP3|320 кб/с] <Latin, Dance, Folk, Spain Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bossa Nostra - Chico Desperado
+002. Cantores De Hispalis - A Bailar, A Bailar
+003. Hardage - Beautiful Day
+004. Amigos De Gines - Suena La Margarita(   Читать дальше...   )Жанр: Latin, Dance, Folk, Spain LyricПродолжительность: 07:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A993A292CBA526A23456E2C75BA0C547034321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367095   (919069) от 14.03.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 13.03.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto (Audioiko Remix) 3:16
+02. SAINt JHN - Roses (Imanbek Remix) 2:56
+03. Trevor Daniel - Falling 2:39
+04. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2968CE5C8F9DBDB707A8679F52B4FF7494E5A537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096529   (919068) от 24.01.2017
+
+VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaman's Harvest - Dangerous
+002. Guilt Machine - Twisted Coil
+003. The Guess Who - American Woman
+004. Fates Warning - Seven Stars(   Читать дальше...   )Жанр: RockПродолжительность: 09:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A06D7A3C76354E56B6C495C5662CE41E8E56CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987582   (918992) от 21.02.2016
+
+VA - Лучшая клубная музыка ANDRS vol.33 (2015) [MP3|128-320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GameFace - Brutal
+02. Apashe ft. Panther X Odalisk - No Twerk
+03. Unknown - Track Unknown
+04. Dj Crazy J Rodriguez - Hustle and Lean (Explicit)(   Читать дальше...   )Жанр: Club, Dance, Electro, House, Electro-House, Deep HouseПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0004A687F69AAB661AA35C62E03BCC641AEAD071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988674   (918991) от 21.02.2016
+
+DJ - Взрывная дискотека №1 (2016) [MP3|128-320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaptn-Ricky Ricardo (Deorro Instrumental) [03:00]
+02. DJ Mixonoff & DJ VlaD NesteRuk-Track 06 Impossible (2014)Жанр: Club, DanceПродолжительность: 03:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6FF293D0B48E48F539310FEDD5098262B9967D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988719   (918932) от 21.02.2016
 
 VA - 100-ка популярных хитов (2016) [MP3|256 kbps] <Pop>
@@ -542,209 +743,6 @@ VA - Душевная музыка на Шансоне. Версия № 8 (2017
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69B6BDD596ABDB097CD74E552572D4340AABE13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490481   (917576) от 21.08.2021
-
-VA - Beatport Electro House: Sound Pack #331 (2021) [MP3|320 Kbps] <House, Electro, Clubbing Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917576.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franc Moody - Let It Kick In
-002. Howtru - How I House
-003. Monolink - The Prey
-004. Michael Cassette - Through The Windows(   Читать дальше...   )Жанр: House, Electro, Clubbing DanceПродолжительность: 12:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4535F3866B4F0E985D3818CDEB34CF803D37F50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490484   (917548) от 21.08.2021
-
-VA - Beatport Drum And Bass: Sound Pack #333 (2021) [MP3|320 Kbps] <Bass, D&B, Bassline>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sadhu - Occult Dance Music
-002. Mind Artifice - Dreams
-003. Yung.Raj - Oofie
-004. Crate Classics - Mercy Dub(   Читать дальше...   )Жанр: Bass, D&B, BasslineПродолжительность: 08:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBD3D69D6D18D08299700C03195AC221349834D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096713   (917545) от 25.01.2017
-
-VA - Звездная вечеринка. Зарядись хитами Выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Никонович - Только Ты 2:55
-002. Rudimental Feat. Ed Sheeran - Lay It All On Me 4:03
-003. Dan Balan - Плачь 4:19
-004. Florrie - Real Love 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E278567440682E8A03707481B68066E1D01FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096827   (917535) от 25.01.2017
-
-VA - Beatport Trance Pack (25.01.) (2017) [MP3|320 Kbps] <Trance, Uplifting, Tech Trance, Progressive, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bryan Summerville - Sensual (Original Mix)  7:39
-02.  Lightform - Orbs (Extended Mix)  6:08
-03.  Alan Morris - Anaconda (Extended Mix)  5:32
-04.  Rene Ablaze & F.G. Noise - Departure (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting, Tech Trance, Progressive, VocalПродолжительность: 09:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE5EE8D1DD2B3F88F1CBC7A83E272C60C86D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490543   (917509) от 21.08.2021
-
-VA - The Ethnic Bass Party (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrou - Lost The Light
-002. Black Sun Empire - Eraser
-003. Nymfo - Stamppot
-004. Furney - Electricite De La Nuit(   Читать дальше...   )Жанр: Drum And Bass, Bassline, JungleПродолжительность: 08:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1CC9777051C902FEA740D7CEDAC3F3C7C890C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490508   (917505) от 21.08.2021
-
-VA - EDC Clubbing Techno: Summer Electro Set (2021) [MP3|320 Kbps] <Club, Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abyssvm - Melanocetus
-002. David Ismael - Fused Souls
-003. Boskii - Movement
-004. Axling - Perplex(   Читать дальше...   )Жанр: Club, Techno, Tech HouseПродолжительность: 12:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6270B77E81B41CAB4508533F1E5C85D2D45F1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096840   (917502) от 25.01.2017
-
-VA - Hits Of The 80 (Original Hits From The 80th) (2017) [MP3|320 Kbps] <Europop,  Synthpop, Hi-NRG>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sandra - Maria Magdalena  3:57
-02.  Frankie Goes To Hollywood - Relax  3:55
-03.  Eddy Huntington - U.S.S.R.  3:26
-04.  Leo Sayer - More Than I Can Say  3:37(   Читать дальше...   )Жанр: Europop,  Synthpop, Hi-NRGПродолжительность: 01:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D25718327042FBF97E9CF5CD785E1850ADF69E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

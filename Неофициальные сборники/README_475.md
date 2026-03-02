@@ -1,3 +1,218 @@
+###  Публикация: 576346   (363532) от 17.11.2012
+
+VA - Самые популярные осенние песни (2012) [MP3|320 кб/с]<Pop, Rap, Rock, Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Вместе Мы
+02. ADELE - Rolling in the Deep
+03. Adele - Skyfall
+04. Alex Clare - Too Close
+05. Alex Ferrari - Bara Bara Bere Bere
+06. Alex Gaudino feat. Taboo
+07. Amelia Lily - You Bring Me Joy (Full Single Version) (2012)
+08. Arash feat. Sean Paul - She Makes Me Go
+09. Aura Dione Feat. Rock Mafia - Friends
+10. Azuro feat. Elly - Je Ne Sais Pas (R.I.O. Remix)(   Читать дальше...   )Жанр: Pop, Rap, Rock, Dance, Club, HouseПродолжительность: 06:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D40526F17930C36891E9D1FC2D750ED3BD7B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576082   (363531) от 17.11.2012
+
+VA - DubStep - Pro V.4 (2012) [MP3|320 кб/с]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adventure Club feat. Kai - Need Your Heart (Minnesota Remix)
+02. Opiuo - Fizzle Tickler (Original Mix)
+03. Ludovico Einaudi - Ascolta (Flaer Smin 3D Chillout Remix)
+04. Carousel - Let's Go Home (Sound Remedy Remix)
+05. Xilent feat. Shaz Sparks - Universe
+06. The XX - Angels (TrapZillas Remix)
+07. Citizen Cope - Lifeline (Figure Remix)
+08. Total Recall feat. Mark McKenzie - Never Let Go (Subsonik Remix)
+09. Krewella - Alive (Pegboard Nerds Remix)
+10. Vexare - Polar(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875D4613F74F9E176293DEA39A531B87991183FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951291   (363481) от 29.10.2015
+
+VA - Autumn Dance (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodybangers - Whatever It Takes
+02. Armin van Buuren feat. Cimo Frankel - Strong Ones
+03. DCX feat. Tina Cousins - Out Of My Head
+04. R3hab & Headhunterz - Won't Stop Rocking (Extended Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068E433987A4822BE07A1E009EBB79FC974F38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951572   (363473) от 29.10.2015
+
+VA - New Italo Disco 2 (2015) [MP3|320 кб/с]<Italo Disco, Eurodisco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chito - Memories (Extended Version)
+02. Nikita Fomin - My Paradise - Your Hell (Long Paradise Mix)
+03. Talking Eyes - In the Sun (Extended Version)
+04. Synthgo - Sei La Mia Vita (Extended Version)(   Читать дальше...   )Жанр: Italo Disco, Eurodisco, PopПродолжительность: 06:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA88E363804F516B23547EA7F101792B9F09E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951419   (363472) от 29.10.2015
+
+VA - MTV Ballads (2005) [MP3|192 - 224 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E. Lanto - I Can Do It (Watch Me Now)
+002. Al Di Meola & Leonid Agutin - If I'll Get A Chance
+003. Mylene Farmer - Ange, Parle-Moi
+004. Jenifer - C'est De L'or(   Читать дальше...   )Жанр: PopПродолжительность: 06:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93712CE1F6B025EDCAE9603C3A1E92041C41E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255490   (363448) от 18.10.2018
+
+VA - Wild Love: Romantic Collection (2018) [MP3|320 Kbps] <Pop, Rock, Blues>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363448.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aquilo - Almost Over
+002. Juliander - Same Moon
+003. The Mechanics - If Only
+004. Elton John - Written In The Stars(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 12:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0937CB8C789E49CC5D5DBE8FEF82BAB547BEC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328484   (363396) от 30.09.2019
+
+VA - New Disco Funky Mode (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363396.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Terr - Have You Ever
+002. Andermay - En Blanco
+003. Bob Sinclar - Love Is The Answer
+004. Giorgio Rodgers - Ready 4 The Disco(   Читать дальше...   )Жанр: Disco, Pop, DanceПродолжительность: 13:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC68387712B2DA8DD47CE139797DE8437652855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328483   (363392) от 30.09.2019
 
 VA - Rap Constellation: The New Concert (2019) [MP3|320 Kbps] <Rap>
@@ -542,209 +757,6 @@ Haddaway - What is Love (2011) Remix [MP3|192 Kbps] <Club, Dance, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC35A02828E3153F71EDB538FC4BFC3397DC118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255566   (362891) от 18.10.2018
-
-VA - Deep House Collection Vol.186 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ultra Nate - Free (George Gabieris & D. Tzere Remix) 4:51
-002. Саlvin Наrris & Sаm Smith - Prоmisеs (Denis First & Reznikov Remix) 4:31
-003. 2XM - Inept (Original Mix) 6:33
-004. Ace Of Base - Cruel Summer (Apollo Remix) 4:44(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07265F234AD47BDEEEC31D0165C1A4BADC106A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255555   (362888) от 18.10.2018
-
-VA - Deep House Collection Vol.187 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vintage Culture & Rooftime - I Will Find (Extended Mix) 5:13
-002. The First Station - Dirty Job (Original Mix) 5:15
-003. Svet - Can't Let Go (Anton Ishutin Remix) 6:14
-004. Costa Mee - Next To Me (Original Mix) 5:23(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3737CBDAE750C8742EED00F4312F4F784081EFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416689   (362859) от 18.10.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 16.10.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAYE - Natalie Don't (3:14)
-02. Filatov & Karas with Deepest Blue - Give It Away (3:27)
-03. Hurts - Redemption (4:18)
-04. Dotan - NUMB (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AAB0D73DEB536CD386ED8E0E81F80D9D303B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176750   (362853) от 25.10.2017
-
-VA - По волне моей памяти: Том 12 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ренат Ибрагимов - Листья жёлтые  3:54
-02.  Валерий Леонтьев - Исчезли солнечные дни  4:09
-03.  Лев Лещенко - Привет  3:57
-04.  Вячеслав Добрынин - Кто тебе сказал  3:29(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67E543EA59B262D0F2CAA8F518581A055F3AAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328458   (362647) от 30.09.2019
-
-VA - Dance Hits Collection 90s Vol.4 (2019) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362647.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bellini - Samba De Janeiro (Radio Edit)
-002. Curiosity - I need your Loving (Extended Club Mix)
-003. Haddaway - Life (12' Mix)
-004. Nalin & Kane - Beachball (Original Radio Edit)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688C92D83F05DA8E636571ED516B191B2FF7B65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416720   (362595) от 18.10.2020
-
-VA - Beatport Tech House: Electro Sound Pack #187 (2020) [MP3|320 Kbps] <Tech House, Electro, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yulia Niko - Afromind
-02. Kazantip - Ready
-03. Joseph Mendez - High Volume
-04. Jordy Martin - Attention(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 06:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9A60CECAE353250A19CB80A0E3DE061F9D6F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416735   (362584) от 18.10.2020
-
-VA - Interior Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Background>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362584.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Silk Cords - Stillness
-002. Van - Enchantment Costa
-003. Grace De Matteo - Get Away
-004. Mark Mars - Ship's Lounge(   Читать дальше...   )Жанр: Lounge, BackgroundПродолжительность: 08:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA143ADF056FA9D82A500532589E86725C8A976
 ```
 
 https://mybot314.ru/tekegram_catalog/

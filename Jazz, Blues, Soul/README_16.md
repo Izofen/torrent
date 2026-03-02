@@ -1,32 +1,3 @@
-###  Публикация: 1439521   (1039522) от 14.01.2021
-
-Shaun Murphy - Flame Still Burns (2020) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In The Palace Of The King (3:52)
-02. Sweet Little Angel (4:39)
-03. Love Me Like A Man (4:09)
-04. Am I Losing You (4:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC567655EFFCEF15201AAEC04D5F9462034F227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439517   (1039520) от 14.01.2021
 
 Lachy Doley - Double Figures (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -745,6 +716,35 @@ Freddie Hubbard - Above & Beyond (1982) 1999, Metropolitan Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C615F642CF881F8CB3FEF878A7B92DDFA7AF4F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614436   (1038605) от 22.02.2023
+
+Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backroad [6:47]
+02. Milo Hayward [4:52]
+03. Brooklyn Bound [5:40]
+04. Danny Mack [6:57](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1473523   (1013522) от 30.05.2021
+
+Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Mind (3:15)
+ 02. f l o w e r (3:54)
+ 03. Walking In The Forest (3:07)
+ 04. f r a m e d (Piano Version) (3:53)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474406   (1012935) от 02.06.2021
 
 Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
@@ -715,35 +744,6 @@ VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348680   (1004272) от 02.01.2020
-
-Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siddhi Yang (5:49)
-02. She Nying Yang (6:06)
-03. Tarai Yang (6:52)
-04. Mani Yang (8:31)(   Читать дальше...   )Жанр: Tibetan ChantsПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
 ```
 
 https://mybot314.ru/tekegram_catalog/

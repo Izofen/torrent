@@ -1,3 +1,218 @@
+###  Публикация: 501407   (258351) от 25.05.2012
+
+VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ю-Питер - Песня Идущего Домой
+ 02. Мумий Тролль - Владивосток 2000
+ 03. Серьга - А что нам надо
+ 04. Чиж и Ко - Вечная молодость
+ 05. Гарик Сукачев и Неприкасаемые - Ольга
+ 06. Калинов Мост - Надоест суета
+ 07. Наутилус Помпилиус - Прогулки по воде
+ 08. Сплин - Романс
+ 09. Машина времени - Однажды мир прогнется под нас
+ 10. Кукрыниксы - Мой новый мир2012Жанр: Pop Rock, Rock, Hard Rock, Heavy MetalПродолжительность: 05:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364751E4668DA6D63C8206A03271D2A94D8EDE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501118   (258240) от 25.05.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258240.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BBE feat. Zoexenia - 7 Days & One Week (Armin Prayd Remix) [07:19]
+ 002. Amex & Bartlett Bros. feat. Lizzie Curious - A New Dawn [06:26]
+ 003. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix) [07:17]
+ 004. DNS Project feat. Madelin Zero - Another Day (Original Mix) [06:36]
+ 005. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) [07:26]
+ 006. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix) [07:28]
+ 007. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) [06:33]
+ 008. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix) [05:56]
+ 009. Eco feat. Radmila - Change The World [06:04]
+ 010. Boom Jinx feat. Key - Eternal Reminisence [08:28](   Читать дальше...   )24.05.2012Жанр: Vocal TranceПродолжительность: 03:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF135903C2D5D15C96E4219B9D7ECB70E7EF5B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838228   (257990) от 21.11.2025
+
+VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кровавый Риф - Tequila Pasaran
+02. Жамки - Аццкий Цырк
+03. Обух & Сарма - Рыбак и Князь
+04. Nagart - Игла(   Читать дальше...   )Жанр: Folk rock, Post punkПродолжительность: 05:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE494EBDC0D8442FEC9454862BD6766789ADDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837581   (257959) от 17.11.2025
+
+VA - No name compilation part 10 Instrumental, Other (2025) [MP3|320 Kbps] <Electronic, Instrumental, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feel My Vibe - Always in My Mind
+02 - Sandra, Jk Sax - Secret Land (Saxophone Remix)
+03 - Love Theme - Giovanni Marradi
+04 - Dj Aurm - Nostalgia(   Читать дальше...   )Жанр: Electronic, Instrumental, OtherПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEB5AC35478A044EEC2D23B31DA77EC3EF2014D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837579   (257958) от 17.11.2025
+
+VA - No name compilation part 9 Electronic, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mr Salama - Hello, How are you (All Language)
+02 - Davvi - Slow Slow
+03 - Imazee - Don't Come Back
+04 - Dndm - Why Love You(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F24A18D3877941553A79C8A3639302B2C21EB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837576   (257957) от 17.11.2025
+
+Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Exactly the Way You Are
+ 02 - Madness Or Love
+ 03 - Ends Up By You
+ 04 - Starlit Promise(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837565   (257956) от 17.11.2025
+
+Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's Killing Me
+ 02 - Amour
+ 03 - Endless Sorrow
+ 04 - Your Eyes(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837562   (257955) от 17.11.2025
 
 Anna Zueva - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -563,221 +778,6 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A428B6E7C1E209F727221166251ED05DD478A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837099   (256675) от 14.11.2025
-
-VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Isaak - Wicked Game (4:49)
-02. The Neighbourhood - Daddy Issues (4:20)
-03. The Weeknd - Often (4:09)
-04. The Neighbourhood - Reflections (4:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6514FBD9B3B44FABAB86203C098961A994E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498746   (256470) от 21.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 50 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9260C00B67FDF3ECAB9A110C190D6AF5D6533C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498738   (256433) от 21.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 48 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827AB9020B919D4DF26F80FF86D4542D0402B7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499334   (256411) от 21.05.2012
-
-VA - Euro Football Cup 2012. The Super Goal Compilation (2012) [MP3|320 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Copa de la Vida (Radio Edit) - The Champions
-02. Vamos Al la Playa (Radio Edit) - Elucid
-03. The Ketchup Song (Asereja) (Radio Edit) - World Cup Girls
-04. Ritmo del Sol (Radio Edit) - El Ritma
-05. Around the World (Radio Edit) - Atmm
-06. Chihuahua (Radio Edit) - The Supporters
-07. Life Is Life (Radio Edit) - Dance Kings
-08. Bamboleo (Radio Edit) - The Party Boys
-09. Bailando (Radio Edit) - Elissa
-10. Cuba (Party Mix) - Football Disco Club(   Читать дальше...   )2012Жанр: Dance, PopПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C9B9620F4DC13367DD117A5D5A98E1A4CDFEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499705   (256341) от 21.05.2012
-
-VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistow - "Fear My Love" (Dazt Glitch remix) (04:44)
-02. Krueger & Leu - "Pour Annabelle" (Fred Wendekinds Early Friedrichshain mix) (07:45)
-03. Martin Hedegaard - "Rhythm Of" (Maksy remix) (06:41)
-04. Martin Hedegaard - "Rhythm Of" (Armando Cooper remix) (04:28)
-05. Sergio Pardo - "Lucian Night" (07:37)
-06. G&O - "Nordic" (Yenk remix) (07:39)
-07. Crooper - "Earn Money" (06:13)
-08. Jack Fennessy - "Bouncey" (05:27)
-09. Beckmann - "Breaking Headlines" (radio edit) (03:45)
-10. Patrick MC Culkgin - "Nasty Sexy Girls" (03:46)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836479   (256337) от 10.11.2025
-
-VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Misamo - Message (04:05)
- 002. Nolive - A Fragile Heart (02:23)
- 003. Soonone - A Mind Without Greed (03:46)
- 004. Robia - Basic Needs (02:17)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F532839AA67AE66346B667C3A150DC0738B9F134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499731   (256336) от 21.05.2012
-
-VA - Sexy Trance #35 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256336.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nic Chagall & Duderstadt feat. Relyk - Alone With You [07:42]
- 002. Orjan Nilsen - Between The Rays (Original) [06:44]
- 003. Rosie Romero & Kyfu - Black Magic [07:04]
- 004. Oliver Smith - Butterfly Effect (Club Mix) [06:53]
- 005. Michael Jay Parker - Canberra (Original Mix) [08:23]
- 006. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix) [05:12]
- 007. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011) [08:01]
- 008. Physical Phase feat. Loreen Chimenti - Donne Moi Ton Corps (Vincent Licata Remix) [05:39]
- 009. Nick Callaghan & Will Atkinson - Eastern Spirit (Original Mix) [08:02]
- 010. Running Man - Eastern Sun [07:30](   Читать дальше...   )2012Жанр: Uplifting Trance, TranceПродолжительность: 03:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E521AB2C7C46BFD2A73832AE806C3C835A4B47
 ```
 
 https://mybot314.ru/tekegram_catalog/

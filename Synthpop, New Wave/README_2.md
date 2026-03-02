@@ -1,3 +1,32 @@
+###  Публикация: 1385795   (796648) от 26.05.2020
+
+Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visage - британская группа, одна из лидеров модно-музыкального движения новых романтиков начала 1980-х гг. Основанная в Лондоне Стивом Стрейнджем и Расти Иганом из The Rich Kids, Visage была чисто студийным проектом с участием музыкантов из Ultravox (Мидж Юр, Билли Карри), Magazine (Дейв Формула), Siouxsie and the Banshees (Джон Макгиох).Список альбомов:
+1980 - Visage
+1982 - The Anvil
+1984 - Beat Boy(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 02:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97D227F0F7578FCFFEF134AF34C7A4F35E2AEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011778   (796304) от 28.04.2016
 
 'Til Tuesday - 3 Albums (1985-1988) [MP3|320 кб/с] <Electronic, Pop Rock, Synth-pop>
@@ -717,35 +746,6 @@ Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246468   (751604) от 08.02.2019
-
-Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/с] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально группа называлась "Neon Romance", и была основана в начале 2012 года. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя время к группе присоединяется Марика Томчик, которая становится официальной вокалисткой. В течение некоторого времени ребята трудились над своим дебютником "Midnight (   Читать дальше...   )Neon Romance - 2014 - Midnight Stories
-Sexy Suicide - 2016 - Intruder
-Sexy Suicide - 2018 - Iron City (Love Song) (Single)
-Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
 ```
 
 https://mybot314.ru/tekegram_catalog/

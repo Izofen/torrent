@@ -1,3 +1,29 @@
+###  Публикация: 1493001   (898568) от 01.09.2021
+
+Экшены - Creative Market - Poster Art Photoshop Action - 6453860 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Poster Art - Это действие предназначено для превращения вашей фотографии в настоящий плакат. С помощью этого профессионального пакета вы можете превратить свои обычные фотографии в необычные изображения.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92385B1C21BD40793B5C5B22CE32155974E48EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492988   (898565) от 01.09.2021
 
 Экшены - GraphicRiver - Vintage Travel Poster Photoshop Action - 29146736 [ATN, PAT, PSD]
@@ -662,34 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00C0588AEEDC16545741F1268832CB450F00C8A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493296   (896946) от 02.09.2021
-
-Векторный клипарт - Shutterstock - Amazing Logo Archives 748 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Логотипы
-748 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060316683FD1E8E71A13F8E4F45384DCC4706E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

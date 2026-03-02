@@ -1,3 +1,119 @@
+###  Публикация: 1123458   (786308) от 08.04.2017
+
+VA - Now That's What I Call Music! 96 (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Top 40, Pop Compilation, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Now That's What I Call Music 96 - является 96-ым изданием серии Now! в Великобритании. Он был выпущен 7 апреля 2017 года. Обратите внимание на композицию "Fastlove", которая достигла первого места в UK Singles Chart в 1996 году. Она была добавлена в этот сборник как дань памяти Джорджу Майклу, который умер до выхода этого альбома. Ремиксованная версия песни, (   Читать дальше...   )CD1:
+01. Ed Sheeran - Castle on the Hill  (4:21)
+02. Rag'n'Bone Man - Human  (3:18)
+03. Little Mix - Touch  (3:31)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, ElectronicПродолжительность: 02:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5288D63847FACF9D50D957D0910A8B155D290C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124374   (785794) от 11.04.2017
+
+Bosé - Papito (2007) [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morena Mia (Con Julieta Venegas)  (03:45) 
+02. Si Tu No Vuelves (Con Shakira)  (05:13) 
+03. Bambu (Con Ricky Martin)  (04:58) 
+04. Nada Particular (Con Juanes)  (06:21) (   Читать дальше...   )Жанр: Soft Rock, LatinПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124547   (785760) от 11.04.2017
+
+Thomas Anders - Pures Leben (2017) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Der beste Tag meines Lebens
+2. Sternenregen
+3. Das Lied das Leben heißt
+4. Feuerwerk(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD60941BDC687346DBEB77965CFAD7CB741FFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124800   (785634) от 12.04.2017
+
+Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Independence
+02. There Has Got To Be A Way
+03. Restless Moods
+04. I’m Back For More (ft. Bobby Womack)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277292   (785364) от 20.01.2019
 
 Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -629,122 +745,6 @@ Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209290   (779452) от 25.02.2018
-
-ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando [04:14]
-02. I Let the Music Speak [05:21]
-03. Chiquitita [05:27]
-04. Eagle [05:52](   Читать дальше...   )Жанр: PopПродолжительность: 05:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997A745DEDF1D7900EB51FE1DA2B30B79CC2EF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209322   (779403) от 26.02.2018
-
-Shenandoah Davis - Souvenirs (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wings 03:18
-2. Supernatural Powers 04:02
-3. Seventeen 03:23
-4. Gold Coast 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485E74810AEF16F9A8CF4316BBDD87A4F02FAF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209490   (779227) от 27.02.2018
-
-VA - Acoustic 70s (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - Maggie May
-02. Paul Simon - Me and Julio Down By The Schoolyard
-03. Cat Stevens – Wild World
-04. Bob Dylan - Knockin’ on Heaven’s Door(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AF1B026624A744E83CCAE2579E6FFF00A0B9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210060   (778992) от 01.03.2018
-
-Patricia Kaas - Sexe Fort (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Chanson, Smooth Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ou sont les hommes (3:49)
- 02. L'abbe Caillou (4:39)
- 03. Je ne veux plus te pardonner (3:25)
- 04. La nuit est mauve (4:19)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, Smooth JazzПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDD62E5CF407F828498CF557398ADE3D0B0B176
 ```
 
 https://mybot314.ru/tekegram_catalog/

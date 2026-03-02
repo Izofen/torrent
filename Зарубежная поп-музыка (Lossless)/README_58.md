@@ -1,3 +1,119 @@
+###  Публикация: 1168576   (408884) от 24.09.2017
+
+V.A - Top Ten (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Frozen (Madonna)
+02.Torn (Natalie Imbruglia)
+03.My Heart Will Go On (Celine Dion)
+04.Tell Him (Barbara Straisend & Celine Dion)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E4CA99D24C2382040C637A842296FD651534A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413468   (408437) от 04.10.2020
+
+It's Immaterial - House For Sale (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Rain (04:10)
+02. Kind Words (04:44)
+03. Just North Of Here (04:18)
+04. Downriver (06:07)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B9658B35235568423436DFB7547A9099D44096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413598   (408430) от 04.10.2020
+
+It's Immaterial - Life's Hard And Then You Die (1986) 2016, Deluxe Edition, 30th Anniversary Edition [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space (Peel Session) (03:49)
+02. Hang On Sleepy Town (Peel Session) (04:11)
+03. Festival Time (Peel Session) (03:31)
+04. Rope (Peel Session) (03:32)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 02:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D6077BE84187C28C6FF429DDFA0602DCC05681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413541   (408208) от 04.10.2020
+
+Melanie C - Melanie C (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who I Am
+02. Blame It On Me
+03. Good Enough
+04. Escape(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEC9DABC15D864819F7B92DB662978E2CF39356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949229   (408154) от 22.10.2015
 
 VA - So Fresh The Hits Of Winter 2015 (2015) [FLAC|tracks]<Pop, Dance, R&B>
@@ -629,121 +745,6 @@ Billie Eilish - No Time To Die (2020) Single [FLAC|Lossless|WEB-DL|tracks]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184928427D1897E1E93424E7C7E706E595A2A285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067724   (384765) от 30.10.2016
-
-Sandra - Heaven Can Wait (1988) (CD, Maxi-Single) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384765.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Heaven Can Wait (Extended Version) 7:38
-2 Heaven Can Wait (Dub Mix) 4:01
-3 Heaven Can Wait (Single Version) 4:05Жанр: Pop, ElectronicПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706AC7E599022F670F6CEBE35A57BCA644D7FE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719523   (383740) от 06.11.2013
-
-Bee Gees - The Festival Albums Collection (1965-1967) 3CD /2013, Warner Music/  [FLAC|Lossless]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Turn Around Look At Me   (2:20)
-02.  The Battle Of The Blue And The Grey   (2:08)
-03.  The Three Kisses Of Love   (1:51)
-04.   Theme From  Jamie McPheeters   (1:54)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C498CC06C59EE0351844BD246788EEB4BD08399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326683   (383230) от 21.09.2019
-
-a-ha - Time and Again: The Ultimate a-ha (2016) 2CD, Compilation, RE. [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take on Me (Kygo Remix) (3:46)
-02. The Sun Always Shines on T.V. (F. F. Squad's 'Radiant 4K' Remix) (5:38)
-03. Cry Wolf (Jellybean Mix) (5:14)
-04. Touchy! (House Mix) (5:22)(   Читать дальше...   )Жанр: Pop Rock, New Wave, Synthpop |Продолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185E52E37FDFF0FDF247D64ADF30BFB0027C934B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068131   (383110) от 31.10.2016
-
-Patrick Lindner - Eine Handvoll Herzlichkeit (1996) [FLAC|Lossless|image + .cue] <Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383110.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die Kloane aus der letzten Bank
-2. Ich hatt dich sowieso geku.t
-3. Heut' Nacht haben die Sternerln a Pause
-4. Du schaffst mi(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D60666111372A03BB99FA698805D3F18528D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

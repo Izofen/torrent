@@ -1,3 +1,119 @@
+###  Публикация: 1043260   (574568) от 15.08.2016
+
+VA - Pop Decades: 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me [3:45]
+02. Foreigner - I Want To Know What Love Is [4:58]
+03. Tina Turner - What's Love Got To Do With It [3:47]
+04. Joy Division - Love Will Tear Us Apart [3:27](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9317E5095D56A928E5571DC7A77F4585FAB25EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043197   (574421) от 15.08.2016
+
+VA - Take On Me: 80's the Collection (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me [00:03:39]
+02. New Order - Blue Monday '88 [00:03:49]
+03. Bananarama - Venus [00:03:48]
+04. Communards - Don't Leave Me This Way (with Sarah Jane Morris) [00:04:50](   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 03:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEC0F882D7F739AFAE6DDE4261F5A64CE08CE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303571   (572528) от 21.05.2019
+
+Ten Sharp - Everything & More: The Best Of Ten Sharp (2000) Compilation [FLAC|Lossless|image + .cue] <Pop, Pop-Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful (3:34)
+ 02. Everything (4:29)
+ 03. Never Alone (4:04)
+ 04. You (4:31)(   Читать дальше...   )Жанр: Pop, Pop-Rock, BalladПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DC9D2DF2A0E0F88DABC582CB33B8A49625D65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554972   (572117) от 02.06.2022
+
+Leo Sayer - Northern Songs (2021) Sings The Beatles [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleanor Rigby
+02. Strawberry Fields Forever
+03. Revolution
+04. Get Back(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C82DA90D9FE1CF9A3CC10605816232507B7C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554977   (572092) от 02.06.2022
 
 Sandra - Medley - Non-Stop Hit Mix 2020 (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Eurodisco, Europop>
@@ -627,122 +743,6 @@ Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304665   (561708) от 27.05.2019
-
-Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Free (3:44)
- 02. Keep on Loving (3:27)
- 03. Love is a Flower (3:45)
- 04. Walk with the Dreamers (4:18)(   Читать дальше...   )Жанр: Electronic, Synthpop, Reggae, DowntempoПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CF0ADB7FE3C202D41D34647C6822FA0B85E54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924158   (560808) от 02.08.2015
-
-Natalie Imbruglia - Male (2015) [FLAC|tracks|WEB-DL]<Pop, Adult Alternative, Soft Rock, Covers>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instant Crush (4:57)
-02. Cannonball (3:28)
-03. The Summer (3:18)
-04. I'll Follow You Into The Dark (3:25)(   Читать дальше...   )Жанр: Pop, Adult Alternative, Pop Rock, Soft Rock, CoversПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70EA0ABFB80333C165D0FDF2AD3D373F3FB215F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304894   (559941) от 28.05.2019
-
-Sigrid - Sucker Punch (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sucker Punch (03:14)
-02. Mine Right Now (03:23)
-03. Basic (03:37)
-04. Strangers (03:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE6645081699D2AE7B050E9561689C4F68D34F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304885   (559917) от 28.05.2019
-
-VA - Inakustik Clearaudio 40 Years Excellence Edition (2018) [FLAC|Lossless|image + .cue] <Pop,  Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Charly Antolini - Jammin' (03:42)
-02.   Cameron Carpenter - Toccata & Fuge (08:47)
-03.   Yelena Eckemoff - Mommy's Shawl (05:06)
-04.   Brenda Navarrete - Mulata Linda (03:44)(   Читать дальше...   )Жанр: Pop,  FolkПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561703EBFE2A795EB7BE15E24DF35D4E253FFFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

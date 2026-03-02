@@ -1,3 +1,206 @@
+###  Публикация: 1221253   (696641) от 23.04.2018
+
+VA - Popular Romantic Ballads (2018) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный сборник лучших лирических зарубежных баллад из коллекции онлайн радио под названием "Popular Romantic Ballads". Создаст романтическое, приятное настроение. Зажигайте свечи, включайте музыку и наслаждайтесь!001. Gary Barlow - Don't Need A Reason
+002. Michael Buble featuring Chris Botti - Song For You
+003. Whitney Houston - Nobody Loves Me Like You Do
+004. Alice Cooper - How You Gonna See Me Now(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEB654FCB72CA687FE6F3F6D3B874A4018D9042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027464   (696542) от 19.06.2016
+
+VA - Planet Pop Vol. 04 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696542.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bahari - Dancing On the Sun
+002. James Bay - Incomplete
+003. Adore Delano - Take Me There
+004. Alanis Morissette - Wake Up(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE1984F6DD675257762EF9EE33ACAEEBDE90C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027211   (696532) от 19.06.2016
+
+VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavoour - Les Deux Guitares
+02. The Bangles - Eternal Flame
+03. Tevin Campbell - Everything
+04. The Hollies - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027243   (696529) от 19.06.2016
+
+VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Iglesias - Mmacita
+02. Christina Milan - When You Look At Me
+03. Chris De Burgh - Snow Is Falling
+04. Celine Dion - I'm Alive(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132823   (696454) от 11.05.2017
+
+VA - Рок в Авто  Зарубежный - Collection  (2012-2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Hero for the World - Eternal Shadows 5:25
+002. Abraxas - Cry Of The Nature 3:40
+003. Adrenaline Mob - Kill the King 4:33
+004. Age of Artemis - Echoes Within 4:04(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 19:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF898E99029C70709E41FB1748C3BDA6CBABAA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027651   (696416) от 19.06.2016
+
+Аида Николайчук - Мы под одним небом (2013) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мы под одним небом (03:09)
+02 - Не обещай (04:26)
+03 - Люди - миражи (03:16)
+04 - На твоей планете (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B34A85EFD19ED9B1A9F4D530D76CB01E6AC04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027443   (696415) от 19.06.2016
+
+VA - Melancholy Rock Blues (2016) [MP3|320 кб/с] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boy Bloater - It Came Out Of The Swamp
+02. Vargas Blues Band - Road To Freedom
+03. Hughes Taylor - Streams
+04. Scott Ellison - Pain Full Love(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 03:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09ED05A551D38ED7E5DAA62B12ED989BE2F43840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221231   (696371) от 23.04.2018
 
 VA - Best dance music (2018) [MP3|256 Kbps] <Dance, Club>
@@ -540,209 +743,6 @@ VA - Lobby Bar Lounge Vol.4: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D70952BCFA1FD25C19F640D50C6CEE2300742F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027949   (694844) от 20.06.2016
-
-VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ayla - Ayla (Omar Sherif 2016 Remix) (6:49)
-02. Solis & Sean Truby - Flashlight (Original Mix) (5:37)
-03. Alex Ender - KSU (Extended Mix) (6:05)
-04. Masters & Nickson feat. Justine Suissa - Out There (Robert Nickson 2016 Extended Remix) (7:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE5DB7488C0FB37893AD3742AA6BB865A46C2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027863   (694831) от 20.06.2016
-
-VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patricia Holmberg - Lyric Piece, Book I, Op. 12: VII. Albumleaf
-02. Alastair Cameron - Gnossienne No. 2
-03. Western Horizon Productions - Piano Sonata No. 11 in A Major, K. 331: III. Turkish March
-04. Maxim Melnikov - Drei Fantasiestucke, Op. 73: III. Rasch Und Mit Feuer(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AC1CF8BB95361E416D138D5FB9CD09BB9D08F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027718   (694700) от 20.06.2016
-
-VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
-002. Era Istrefi - Bonbon
-003. Gestort aber GeiL & Two Magics - Glucklich wie die Kinder
-004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 10:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63F0D3EFDD671A76B8FAF4128F1E8B208FC15EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288628   (694303) от 12.03.2019
-
-VA - German Top 50 Party Schlager Charts 11.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB105CA128060AB281513FD89A12295D9F46CCA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027821   (694287) от 20.06.2016
-
-VA - Лето солнце жара. Популярный сборник (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694287.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Алексей Воробьёв - Счастлив Сегодня И Здесь
-02. Таня Дяченко - Пять Минут Счастья
-03. Светлана Лобода - А Может К Черту Любовь
-04. Thomas Anders - Lunatic(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC0E6790C585CB966E52B1941110FB3F6311EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403218   (694264) от 18.08.2020
-
-VA - A State Of Trance Classics Vol.14 (The Full Unmixed Versions) (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Laura V - Drowning (Avicii Extended Remix)
-02. Paul Oakenfold feat. Carla Werner - Southern Sun (Tiesto Extended Remix)
-03. Moby - Why Does My Heart Feel So Bad? (Ferry Corsten Extended Remix)
-04. Dash Berlin feat. Roxanne Emery - Shelter (Photographer Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 07:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB348DFD1BAF23FE7FC1B2348102EB333F8B16C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534344   (694245) от 02.03.2022
-
-VA - NOW Yearbook Extra 1982 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694245.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Duran Duran - Rio
-02. ABC - Poison Arrow
-03. Adam Ant - Friend Or Foe(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:21:51 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A5CCFABBCAAFCC6CA62412357BD82C6FC975D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

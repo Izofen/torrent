@@ -1,23 +1,225 @@
-###  Публикация: 1507533   (798454) от 04.11.2021
+###  Публикация: 1273837   (798771) от 04.01.2019
 
-Battery Health 3 v1.0.28 [En]
+Saba - Care For Me (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busy / Sirens (feat. theMIND) (5:29)
+02. Broken Girls (4:37)
+03. Life (3:48)
+04. Calligraphy (3:04)(   Читать дальше...   )Производство: Saba Pivot LLC - 843357130095Жанр: Hip-Hop, Jazz HopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA250E295F4DC3D1742FDFBBB1D62B6E44AF53BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273840   (798770) от 04.01.2019
+
+Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birth Of The Universe (Instrumental) [01:40]
+2. Moonchild [04:50]
+3. Surveillance Society [04:39]
+4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273794   (798769) от 04.01.2019
+
+Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half-Live I (19:49)
+02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273833   (798768) от 04.01.2019
+
+Berlin Blondes - The Complete Recordings (1980-1981) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Synthpop,New Wave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Framework
+02.	Astro
+03.	Science
+04.	Romance(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F001235C255C719EE87F8C0CC0ED080D193EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273785   (798767) от 04.01.2019
+
+Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Your Love (5:33)
+02. Surrender To Me (5:33)
+03. Livin' For You (4:57)
+Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273843   (798766) от 04.01.2019
+
+Colorado - California Dreaming (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreaming (7:07)
+02. Bus Stop (5:11)
+03. Should I (4:15)
+04. Colorado Stones (5:40)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC0C30741FF9EEC3D40E93FA56C3D2001265055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274005   (798765) от 04.01.2019
+
+Зимовье зверей - Новейшая хронология (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Арбенин заново собрал «Зимовье Зверей». Группа возвращается к студийной и концертной деятельности в обновлённом составе.
+Главная интрига проекта: в качестве его аранжировщика и саундпродюсера выступает Вадим Курылёв, музыкант-мультиинструменталист, хорошо известный слушателям по работе в группе «ДДТ», ансамблю «Дубы-колдуны», «ЭлектропартиZанам» и сольному (   Читать дальше...   )01. Новейшая хронология
+02. Дети-блюз
+03. Из лета в осень переезд
+04. Интро-стих 1(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F2B6BF71383482B7B8A5EB1D619B22C9B30B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507153   (798764) от 03.11.2021
+
+Display Maestro 5 v5.0.3 [En]
 
 >>Программы для macOS
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798454.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook таких, как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
-Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.07.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Display Maestro - простая утилита, которая дает вам полный контроль над подключенным дисплеем, позволяя вам изменять не только разрешение экрана, но и глубину цвета, что невозможно сделать стандартными средствами Mac OS X (такая возможность была удалена еще в Mac OS X 10.5 Leopard).
+Примечание: После окончания работы с утилитой, все настройки возвращаются в первоначальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E29AC79B59478B7668EB12B4A7C4456093FAA07
+magnet:?xt=urn:btih:7D7FA6A6BBACC759EE2E67F3ECDE63A1CCF61DEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507288   (798453) от 04.11.2021
+###  Публикация: 1507154   (798763) от 03.11.2021
 
-VA - Beatport Organic House: Sound Pack #361 (2021) [MP3|320 Kbps] <Organic, Deep House>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 17 (2020) [AAC|~306 Kbps] <Downtempo, Lounge, Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798453.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Internal Deep - Circle Path
-002. Last Bar - I Can't Lie
-003. Loka Deep - Bass Up
-004. Max Tenrom - Armenia(   Читать дальше...   )Жанр: Organic, Deep HouseПродолжительность: 12:23:58
+01. Sarah Menescal - I Fall Apart (3:39)
+02. Beluga's Trio, Shelly Sony - Love You Inside Out (3:43)
+03. Groove Da Praia, Ituana - Talking in Your Sleep (Bossa Nova Mix) (3:48)
+04. Urban Love, Luca Giacco - Suedehead (2:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:29:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BCD74A7BFDC7929CB2BF58C60543D7372638D9C
+magnet:?xt=urn:btih:100DC99B2B83C84CC1D936BCAC3E3454AFB88341
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +256,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507556   (798451) от 04.11.2021
+###  Публикация: 1507245   (798762) от 03.11.2021
 
-Waterfox Current G4.0.2.1 [Multi/Ru]
+Downie 4 v4.3.8 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798451.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FBB5F26B1DC7882D83B1873F8EF00C4815C514A
+magnet:?xt=urn:btih:D6C68054819C2B4DCEC41987B131ADAFCDFA1C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +284,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507385   (798450) от 04.11.2021
+###  Публикация: 1507145   (798761) от 03.11.2021
 
-VA - My Little Planet: Pop Rock Indie (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 16 (2020) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798450.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dopamoon - Ailleurs Que Le Soleil
-002. The Underground Youth - For You Are The One
-003. Cerberus Shoal - Yes Sir, No Sir
-004. Sam Valdez - For A While(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:33:02
+01. Jazzystics, Apollinare Rossi - Riders on the Storm (3:46)
+02. Jamie Lancaster - Take It Easy (3:16)
+03. Michelle Simonal - Reminiscing (3:18)
+04. STEREO DUB, Karen Souza - Back Down South (Bossa Nova Mix) (2:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:165C77ACC8FD92A7D83EBEC19097246CADA77384
+magnet:?xt=urn:btih:A16D564D94605003C13BDCED245BBB01A7B1CF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +313,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507409   (798449) от 04.11.2021
+###  Публикация: 1507144   (798760) от 03.11.2021
 
-Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (04.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798449.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (04.11.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:14:05
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021)
+СУДЬЯ Хацеган Овидиу (Арад, Румыния)
+Судья на линии 1: Григориу Мирча Михаил (Румыния)
+Судья на линии 2: Георге Себастьян (Румыния)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:614EF126D7E7AB9651C7B98E704BA7D246D7E2C0
+magnet:?xt=urn:btih:D254ED52BEB82FB3BD3DF781F0925E187A2A80CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,25 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507529   (798448) от 04.11.2021
+###  Публикация: 1507162   (798759) от 03.11.2021
 
-RogueKiller Anti-Malware 15.1.2 + Portable [Multi]
+Sketch 79 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798448.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:944EFE0EC32E2C4E187928C24C6F5DFD38703354
+magnet:?xt=urn:btih:9D714CE3A61326213F474029564177D28442D77D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,28 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507287   (798447) от 04.11.2021
+###  Публикация: 1507308   (798758) от 03.11.2021
 
-David Wilson - Romance After Hours (2005) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+Vitamin-R 4.0 [En]
 
->>Other Styles
->>Instrumental (Lossless)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798447.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-David Wilson (22.09.1945) - американский скрипач и музыкант, известный своими стилизованными аранжировками, как популярной музыки, так и оригинальных композиций. Кроме скрипки играет еще на фортепиано, гитаре, аккордеоне и флюгельгорне. Работал в оркестре Henry Mancini в последние годы его жизни. Его дискография насчитывает десять альбомов, у меня же в коллекции (   Читать дальше...   )01. Everybody Loves Somebody Sometime (4:06)
-02. Am I Blue (3:41)
-03. Go Away Little Girl (4:02)
-04. Come Rain or Come Shine (4:30)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:49:42
+Vitamin-R — продвинутый таймер для техники Pomodoro. Каждый из нас постоянно сталкивается с ситуацией, когда необходимо сфокусироваться на выполнении задачи, но желанное состояние потока так и не приходит. Или, когда начав работать над очень важным для вас проектом, вдруг, через некоторое время, вы обнаруживаете себя на странице Facebook или бесцельно блуждающим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Rights ReservedПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8E743EDCD306FD7A40051A6D88750F3754A5F37
+magnet:?xt=urn:btih:BF198764762DD58424CD432798C8CB73B6DE4026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +394,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506081   (798446) от 04.11.2021
+###  Публикация: 1507155   (798757) от 03.11.2021
 
-The Darkness - Motorheart (2021) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Hard Rock, Glam Rock>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 18 (2020) [AAC|~304 Kbps] <Downtempo, Lounge, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ituana - Tape Loop (3:11)
+02. Sarah Menescal - Company (3:00)
+03. Anakelly, STEREO DUB, Nova Bossa Ltd. - Last Friday Night (T.G.I.F.) (3:30)
+04. 48th St. Collective, Michelle Simonal - Over My Shoulder (3:41)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F855A47EDABF297972EA177FFBE34D6F71B642A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507149   (798756) от 03.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352638E8763ADC1016480E2663F5DA573FC7DF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507157   (798755) от 03.11.2021
+
+iNet Network Scanner 2.8.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798755.jpg" />
+</div>
+
+
+###  Подробнее
+
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2021Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B69B07EE63CED1C381DB36B322C4B162389729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507148   (798754) от 03.11.2021
+
+Магнитная Аномалия feat. Я Vegan - Я больше не ем животных (2021) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798446.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome Tae Glasgae (2:49)
-02. It's Love, Jim (3:23)
-03. Motorheart (4:59)
-04. The Power and the Glory of Love (3:59)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:35:25
+1. Я больше не ем животных
+2. Сила
+3. Нормально
+4. Еее(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40BCBC006AC65B386FE4563917AAC44AD840D916
+magnet:?xt=urn:btih:D54B31704863DF01B9237B7D14B136A92F43E91F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,25 +505,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507487   (798445) от 04.11.2021
+###  Публикация: 1507146   (798753) от 03.11.2021
 
-Оаху / Oahu (2021) WEBRip [VP9/2160p]
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H'. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798445.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оаху – один из Гавайских островов в центральной части Тихого океана, на котором расположена столица штата Гавайи Гонолулу.Производство: СШАЖанр: Документальный, видовойРежиссер: Дэвин ГрэхемПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:19:55
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H''. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021)
+СУДЬЯ Эрнандес Эрнандес Алехандро Хосе (Санта-Крус-де-Тенерифе, Испания)
+Судья на линии 1: Наранхо Хосе (Испания)
+Судья на линии 2: Собрино Теодоро (Испания)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3D560027E1E70870EF1C40E116FCD6D52EF6011
+magnet:?xt=urn:btih:FFCB4E3C29A113D8750733B584EFC65824FC26CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +534,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507271   (798444) от 04.11.2021
+###  Публикация: 1507151   (798752) от 03.11.2021
 
-VA - Beatport Electro Pop: Sound Pack #364 (2021) [MP3|320 Kbps] <Electro Pop, Synthpop, Dance>
+Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798444.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Fede Cabral - Bomba
-002. Methyl Ethel - Neon Cheap
-003. Laurence-Anne - Strange Feeling
-004. Lusine - Not Alone(   Читать дальше...   )Жанр: Electro Pop, Synthpop, DanceПродолжительность: 07:24:06
+Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37299FEBF59A9E603BE04E3ED4B9901BC11AD3A0
+magnet:?xt=urn:btih:ADFBA52DC367038FBB8F9FAC1A39570981EC8F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +560,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507399   (798443) от 04.11.2021
+###  Публикация: 1507061   (798751) от 03.11.2021
 
-Великан / The Mighty (1998) BDRip [H.264/720p] [MVO]
+Justus - Live From a Former Submarine Wharf in The Port of Rotterdam (2021-11-01) [MP3|~245 Kbps (V0)] <Big Room, Future House>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по мотивам романа Родмана Филбрика «Великан» (Freak the Mighty, 1993). Случилось так, что неожиданная встреча мистическим образом изменила судьбы двух одиноких школьников. Они были абсолютно не похожи друг на друга: Макс - молчаливый, застенчивый и неуклюжий гигант? Кевин - маленький, сообразительный и неизлечимо больной. В своём классе оба мальчика служили (   Читать дальше...   )Производство: США, Chaos Productions, Jane Startz Productions, Miramax Films, Scholastic ProductionsЖанр: драма, комедияРежиссер: Питер ЧелсомАктеры: Киран Калкин, Элден Хенсон, Шэрон Стоун, Гарри Дин Стэнтон, Джина Роулендс, Джеймс Гандольфини, Джиллиан Андерсон, Мит Лоуф, Дженифер Льюис, Дуглас БиссетПеревод: профессиональный многоголосый, авторский (Юрий Живов), любительский одноголосыйСубтитры: русские, английскиеПродолжительность: 01:40:30
+01. Justus (NL) vs. Tiësto - ID vs. Red Lights
+02. Justus - Satisfaction 2021Жанр: Big Room, Future HouseПродолжительность: 00:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AD2E5E22C25CFAF6A6558461D798553FA69E21A
+magnet:?xt=urn:btih:E455639921065EEBECC9E3F81967DB989CAE5E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,25 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507352   (798442) от 04.11.2021
+###  Публикация: 1507158   (798750) от 03.11.2021
 
-Полоскать горло сладким саке / Amai osake de ugai / My Sweet Grappa Remedies (2019) WEBRip [H.264/720p-LQ] [DVO]
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 19 (2021) [AAC|~298 Kbps] <Downtempo, Lounge, Jazz>
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798442.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История Кавасима Ёсико (Мацуюки Ясуко), 40-летней одинокой женщины. Она счастливо проводит время со своей коллегой Вакабаяси-тян (Куроки Хару). Но однажды в жизни Ёсико происходят неожиданные изменения - она влюбляется в Окамото-куна (Симидзу Хироя) - парня, который в два раза младше нее.Производство: Япония, TV Asahi, Yoshimoto Kogyo Co. Ltd.Жанр: Драма, мелодрамаРежиссер: Акико ОкуАктеры: Ясуко Мацуюки, Кандзи Фурутати, Макото Идзубути, Кацуя Коисо, Хару Куроки, Томоя Маэно, Кадзухиро Накахара, Кодзо Сато, Хироя Симидзу, Даити ВатанабэПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:47:17
+01. Sarah Menescal - Like a Prayer (3:38)
+02. The Cooltrane Quartet, Eve St. Jones - Never Gonna Give You Up (3:08)
+03. Nenei - Dangerous Woman (3:41)
+04. Amazonics - Duel (3:13)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B71CA28B96D36BDACE0991604C6B539C89D7243
+magnet:?xt=urn:btih:89717FDAF35E1132C5F3D0575D2F3D65D468CBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,28 +616,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507095   (798441) от 04.11.2021
+###  Публикация: 1507205   (798749) от 03.11.2021
 
-Бизнес-Мастер | Трейд-Маркетинг. Диск 1 (2004) DVD5
+Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .cue]<Chicago Blues>
 
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798441.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тренер – Станислав Кузавов (2 диска)
-
-Диск 1.
-Введение в ТМ(   Читать дальше...   )Жанр: Бизнес семинарПродолжительность: 01:40:05
+01. Rockin' Daddy
+02. I Ain't Superstitious
+03. Sittin' On Top Of The World
+04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:40:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5753BD0C6AC0E33E1CA4290C7006B3E1C355FE50
+magnet:?xt=urn:btih:FC204EA3DF759918F4D5917357E637C32BE0C6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,28 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507528   (798440) от 04.11.2021
+###  Публикация: 1507161   (798748) от 03.11.2021
 
-VA - A Synthwave Panorama Vol. 21 (2021) by Gertrudda [MP3|192-320 Kbps] <Synthwave, Retrowave, Outrun>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 20 (2021) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798440.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maxnickel - Night'er (3:39)
-02. LostSckare - Programmed For Love (Gertrudda Edit) (5:54)
-03. Microsha 89 - Soviet Union (TELEGIMNASTIKA Remix) (3:54)
-04. LA Nights - Voice Flashback (Gertrudda Edit) (5:52)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:26:49
+01. Sarah Menescal - Stand by Me (3:06)
+02. Nova Bossa Ltd., Lizette - 99 Red Balloons (3:27)
+03. Amazonics, Michelle Simonal - Cry for Help (2:56)
+04. Scubba, Lila Liu - Lost in Love (2:35)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:21:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19A1CB7D48AFBAE5948C2393CB5083806E1E0A4A
+magnet:?xt=urn:btih:D4EACBF9D8B8DD5554E8C2155E0E6640EFFB22ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,25 +674,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507449   (798439) от 04.11.2021
+###  Публикация: 1507204   (798747) от 03.11.2021
 
-Бесконечный человек / The Infinite Man (2014) WEB-DLRip [DVO]
+Игорь Герман  - Привет, бродяги...(1995) [FLAC|Lossless|tracks + .cue]<Шансон>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798439.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изобретательный и дотошный учёный Дин хочет устроить для своей девушки, Ланы, самые незабываемые и самые идеальные выходные в честь годовщины. А если вдруг что-то не получится, реальность всегда можно подправить, вернуться назад и начать заново. В теории. Но будет ли всё так просто и легко на практике?Производство: Австралия / Hedone Productions, Bonsai Films, FilmlabЖанр: фантастика, комедия, мелодрамаРежиссер: Хью СалливанАктеры: Джош МакКонвилл, Ханна Маршалл, Алекс ДимитриадесПеревод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельно)Продолжительность: 01:24:43
+01. Арбат
+02. Гуцулочка
+03. Вальc - романс
+04. Ялта(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:41:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D279DAC2A655AC7164ACE1F2AAC223F8D1EA4FD6
+magnet:?xt=urn:btih:FBEDBF092348FA96F58F854AE237268B13277AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,298 +703,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507302   (798438) от 04.11.2021
+###  Публикация: 1507164   (798746) от 03.11.2021
 
-VA - Herbal Ambient Sounds (2021) [MP3|320 Kbps] <Ambient, Relax, Meditation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798438.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Decato - Transmissions
-002. Paul Oednom - Flux
-003. Forest Robots - Meditation Vii
-004. Audio Obscura - The Quiet Night(   Читать дальше...   )Жанр: Ambient, Relax, MeditationПродолжительность: 09:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D622E7F7C78B20B3B5ACC328A73D9F783E40B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506091   (798437) от 04.11.2021
-
-Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Music Group Ltd. [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Your Sweetness (Is Your Weakness) 5:49
-02 Unhappy Birthday 6:46
-03 Gone 2 Long 5:45
-04 Total Stranger 7:04(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C71BD8AF03E8CB0B3AA2008FDCFDE18D730302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507380   (798436) от 04.11.2021
-
-VA - Hymn For The Weekend (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798436.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kairo And Svniivan - Hymn For The Weekend
-002. Marina - Venus Fly Trap
-003. Hiatus Kaiyote - Get Sun
-004. Darius And Finlay - Last Flame(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2F13577E2E8F7F9281078E5459030CF9577642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507008   (798435) от 04.11.2021
-
-Алан Уотс | Ты делаешь это или Это делает тебя (2020) [MP3, Кудинов Евгений]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алан Уилсон Уотс (англ. Alan Watts) - британский философ, писатель и лектор, известен как переводчик и популяризатор восточной философии для западной аудитории. Написал более 25 книг и множество статей, затрагивающих темы самоидентификации, истинной природы реальности, высшего осознания, смысла жизни, концепций и изображений Бога и нематериального стремления к счастью.Жанр: ЭзотерикаПродолжительность: 02:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F253B3518725DEE6425A1CBB74060CFE4B29DA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507340   (798434) от 04.11.2021
-
-На высоте мечты / In the Heights (2021) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашингтон-Хайтс. Запах горячего кофе витает в воздухе у станции метро «181-я улица», а калейдоскоп желаний собирает там шумных и дружных жителей этого района Нью-Йорка. В этот вихрь попадает и Уснави, обаятельный и привлекательный владелец небольшого магазинчика, который экономит каждый заработанный нелегким трудом цент и мечтает, грезит и поет о лучшей жизни.Производство: США /  Warner Bros, 5000 Broadway Productions, Likely StoryЖанр: Мюзикл, мелодрама, драмаРежиссер: Джон М. ЧуАктеры: Энтони Рамос, Мелисса Баррера, Leslie Grace, Кори Хоукинс, Ольга Мередис, Джимми Смитс, Грегори Диас, Дафна Рубин-Вега, Стефани Беатриз, Даша ПоланкоПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: 02:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AFD472F00D21BD863DB565902213399134EE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507373   (798433) от 04.11.2021
-
-WizTree 4.04 + Portable [Multi/Ru]
+K-Lite Codec Pack Update 16.5.1 [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WizTree - небольшая и полезная утилита для определения файлов и папок, которые занимают много пространства на жестком диске. Особенностью данного приложения является его высокая производительность анализа дискового пространства благодаря прямому взаимодействию с главной файловой таблицей, которая содержит подробную информацию о содержимом носителя.Интерфейс программы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7EA27CF9E154E743FEE78CBA7F233A5A71A5D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507511   (798432) от 04.11.2021
-
-Оаху / Oahu (2021) WEBRip [AV1/4320p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оаху – один из Гавайских островов в центральной части Тихого океана, на котором расположена столица штата Гавайи Гонолулу.Производство: СШАЖанр: Документальный, видовойРежиссер: Дэвин ГрэхемПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D17983C3694158B26D164628877D518EF1028B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507479   (798431) от 04.11.2021
-
-NIUBI Partition Editor 7.6.5 Professional / Technician / Server / Enterprise Edition RePack (& Portable) by 9649 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798431.jpg" />
-</div>
-
-
-###  Подробнее
-
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor внедрена защитная (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEDF8EDCDBAF164C71A65B48F0EB010A8ECD3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507390   (798430) от 04.11.2021
-
-Second Reign - Gravity (2021) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uninvited
-02. The Truth
-03. Let Me Breathe
-04. Fire(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED15A2DA03BAE74A22950C2390CDA00911FEAD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507581   (798429) от 04.11.2021
-
-PrivaZer 4.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798429.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2C6E305EE334EE272B6066DD44BB3DE964E6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507506   (798428) от 04.11.2021
-
-Firefox Browser 94.0.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2D8087F9741A151636423818D34F4A7DB945D2
+magnet:?xt=urn:btih:10D94EDC198D30A769E798C7731C0338BF9098F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

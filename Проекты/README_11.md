@@ -1,29 +1,3 @@
-###  Публикация: 1454056   (1026485) от 13.03.2021
-
-Проекты - BusyBoxx - V05: 100 Modern Titles [AEP, MOTN]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет стильных текстовых эффектов из 100 проектов в двух вариациях для After Effects и Apple Motion.Формат: AEP, MOTN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A35889305033B1A2B372F34A7410B6A6D70F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454303   (1026347) от 14.03.2021
 
 Проекты - VideoHive - Wheels Of Steel Race Ident - 7375636 [AEP]
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D15038E87ED6E2661A202CD940C639A5E1C00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457799   (1024172) от 27.03.2021
+
+Проекты - VideoHive - Dark Room Photography - 31343002 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024172.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Dark Room Photography» - этот шаблон-презентация с фотолабораторией отлично подойдет для вашего следующего проекта. Модульный, структурированный проект произведет впечатление на вашего клиента.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373A980CF4DFA4098B2A2927382F25A0FCEFD405
 ```
 
 https://mybot314.ru/tekegram_catalog/

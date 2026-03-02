@@ -1,3 +1,206 @@
+###  Публикация: 1002623   (843314) от 03.04.2016
+
+VA - Hits Disco and Pop Dance - Part II (2016) [MP3|256 кб/с] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque - Dance Dance Dance
+02. Solid Base - Set Me Free
+03. Jules - You & Me
+04. Anita Ward - Ring My Bell(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA31B300F4FA6821DE1CEEE6F1AACA239C14C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003359   (843209) от 03.04.2016
+
+Андрей Миронов - Коллекция нового века (2003) [MP3|314-320 кб/с] <Советская эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синема, синема (4:03)
+02. Остров невезения (2:11)
+03. Женюсь (3:21)
+04. Песенка о шляпке (2:50)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20016AB395CDD977F53C544019606D8DFE4CF669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003350   (843128) от 03.04.2016
+
+VA - Сделано в СССР (2014) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843128.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Владимир Трошин - Подмосковные Вечера
+002 Полад Бюль-Бюль Оглы - Позвони
+003 Виа Орэра и Нани Брегвадзе - Песня О Тбилиси
+004 Муслим Магомаев - Свадьба(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979E7DBA22257BC25D418BFD0F547EC2ECFA6D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112298   (843103) от 08.03.2017
+
+John Mayall - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Road
+02. Sunshine
+03. Talk about that
+04. Why Did You Go Last Night(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A89B62D09F8FBBD175268FC8523B05F7F27EE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002986   (843025) от 03.04.2016
+
+VA - Blues Forever vol.45 - vol.48 (2016) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rocky Athas Group - Slow Driver
+02. Buck & Evans - Treat Me Right
+03. Gregg Alliman - Rendezvous With The Blues
+04. Blindside Blues Band - Talkin' Bout My Baby(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122E8FE5F4D1C8DBEADC56DBB0BD7EC796904796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112093   (842935) от 08.03.2017
+
+VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Twins - It Won't Be Long
+02. Larry Miller - Road Runner
+03. Kal David & Lauri Bono - Help The Poor
+04. Derric Procell - Who Will Tell Lucille(   Читать дальше...   )Жанр: BluesПродолжительность: 05:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CEF850C96EE188B45049F5BA3FF611763449AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111856   (842927) от 08.03.2017
+
+ДиДюЛя - MP3 Play (2014) [MP3|320 Kbps] <Flamenco, Folk, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842927.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Фламенко
+002. Айседора
+003. Водопад
+004. Жасмин(   Читать дальше...   )Жанр: Flamenco, Folk, New AgeПродолжительность: 07:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE4D44F68BC8EA1F8DF1C657D05A3BAEC373C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112447   (842825) от 08.03.2017
 
 Михаил Шуфутинский - MP3 Play (2015) [MP3|320 Kbps] <Шансон>
@@ -530,203 +733,6 @@ VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE04426F96834D7594FCB04F087244AB3123DC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112746   (841222) от 09.03.2017
-
-Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Blues (With Harmonica)
-02. Voodoo Chile Blues
-03. Born Under a Bad Sign
-04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003828   (841170) от 04.04.2016
-
-Within Temptation - Angel A Best Of (2016) Compilation [MP3|320 кб/с] <Gothic Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841170.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Deceiver Of Fools
-2.Dark Wings
-3.Jillian (I'd Give My Heart)
-4.Stand My Ground(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 02:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63A3E41B63E8F365F232EDF8FE2CD523ADB69DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379246   (840977) от 28.04.2020
-
-VA - не Громкие новинки недели 65 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Дима Билан - Я Тебя Отвоюю (5:21)
-2.Инна Вальтер - А нужны ли вы мне теперь? (4:55)
-3.Александр Шоуа - Дыши (4:26)
-4.Дима Билан - Там За Рекою Лес (4:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0779DD73FE22A838070215A31DFC3C6E599B7418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500388   (840949) от 06.10.2021
-
-VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
-02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
-03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
-04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309840   (840913) от 16.03.2011
-
-Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/DanceПродолжительность: 06:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379223   (840746) от 28.04.2020
-
-Bonfire - 100% Bonfire (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Get Away
-02. Hold Me Now
-03. When an Old Man Cries
-04. Temple of Lies(   Читать дальше...   )Жанр: RockПродолжительность: 03:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1EB7B60E14D8ADE7BCB022513B3C3D005465C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309704   (840700) от 16.03.2011
-
-VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 kbps]<Pop/Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/DiscoПродолжительность: 07:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA52075B21BE17EF321B058C044F06BA661C04F
 ```
 
 https://mybot314.ru/tekegram_catalog/

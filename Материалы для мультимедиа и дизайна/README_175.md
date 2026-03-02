@@ -1,3 +1,29 @@
+###  Публикация: 1040726   (585423) от 06.08.2016
+
+Экшены - GraphicRiver - Pursuit Effect Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pursuit Effect - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68053C735E6EF8E3DD11E1D9C5F18EFEB0FC5165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040737   (585369) от 06.08.2016
 
 Экшены - CreativeMarket - 10 Vintage Actions Bundle [ATN]
@@ -642,32 +668,6 @@ Pro HDR Photoshop Action 3 - экшен для Вашего творчества
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F90EC75458E40117BCF1B0D79BF209B505657B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301888   (583270) от 13.05.2019
-
-Растровый клипарт - Happy Easter #21 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 224x250-1500x1494
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF10A75637A03EBA1729CDA64651C120F443FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

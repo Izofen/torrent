@@ -1,3 +1,177 @@
+###  Публикация: 1438662   (1040936) от 09.01.2021
+
+VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monoverse - Everything You Are (Extended Mix)
+02. Kristian Nairn & Andretta - Arrow (Extended Mix)
+03. Collide The Sky - Muted Magnetism (Extended Mix)
+04. MR90 - Need You Now (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494066399465827E17D7EA4F3D017531FCE350BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438523   (1040935) от 09.01.2021
+
+VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Restonia - Moonlit Sky (Intro Mix)
+02. Victor Special & Elev8 - Time (Double Motion Remix)
+03. Marco MC Neil - Unforgiven (Abide Remix)
+04. David Surok - White December (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AA5DBC67F42A61B9882D860DFA4963F9549369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438542   (1040932) от 09.01.2021
+
+VA - Danny Oh Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sothzanne String - Lost Memories (Alex Shevchenko Emotional Remix)
+02. Gayax - New Life (Milosh K Remix)
+03. Grande Piano - Stay With Me (Norex & Adwell Remix)
+04. Shane Infinity & Adam Morris - Mayaguana (Alex Nomak Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A99DEDF279092FD70B7ABBE3A11809782FB721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438669   (1040930) от 09.01.2021
+
+VA - Best Of FSOE (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila with Plumb - Somebody Loves You (Extended Mix)
+02. Bryan Kearney - From The Inside (Original Mix)
+03. Craig Connelly & Factor B - Tranceatlantic (Extended Mix)
+04. Hÿdra - After The Rain (Extended Club Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034E25F8B588C7AC42BAB627447FBEC0D669208E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438550   (1040913) от 09.01.2021
+
+VA - Black Hole Recordings - Best Of (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Sunlounger - I Can Feel (Original Mix)
+02. Markus Schulz & London Thor & Valentino Alessandrini - Feel Alive (Original Mix)
+03. JES - Under The Midnight Sun (Original Mix)
+04. Solarstone - When I Dream (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F6BBA96ABE1421F58945BE80ABDF9334156002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611701   (1040602) от 14.02.2023
+
+VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NuMar1 - Last Day We Met (Christian Desnoyers Remix) [06:18]
+02. Rodri Santos - The Orchid (Interstellar Remix) [05:47]
+03. Marc Hackenberg - Sol (Original Mix) [07:56]
+04. DJ Tony Magic - Spiritual Journey [05:52](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69574296298B11779FAD5EDEA84914F1A65BEE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439068   (1040298) от 11.01.2021
 
 VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
@@ -571,179 +745,6 @@ VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingT
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441605   (1037460) от 22.01.2021
-
-VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES & Oliver Smith - Don't Let It End (Extended Mix)
-02. Will Atkinson - Rush (Extended Mix)
-03. Alexander Popov & Planet Perfecto - Bullet In The GunЖанр: TranceПродолжительность: 02:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E924FB914284B782920417EEA6869A3760EAA757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616036   (1037007) от 28.02.2023
-
-VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Choose & That Mucho - Release Me (Original Mix) [6:17]
-02. Angel Ace - The Sunset (Radio-Edit) [3:37]
-03. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix) [7:47]
-04. Lyes & Slimane - Find Your Way (Original Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1004CABD022896F3CE1BB87BBF9FF2B2F5635B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616288   (1036728) от 01.03.2023
-
-VA - World Of Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cenk Basaran - The Finger (Original Mix) [6:01]
-02. Facade & Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) [6:54]
-03. Somna & Vijo Caselle - Afterglow (Original Mix) [8:37]
-04. Paul Denton - Monday Club (Original Mix) [6:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BEAA2F42C3388FF1A8CD018556843808BF98E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442488   (1036591) от 25.01.2021
-
-VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix)
-02. Susana - Dark Side Of The Moon (Ferry Tayle Remix)
-03. Ana Criado - In A Thousand Skies (Dan Stone Remix)
-04. Philippe El Sisi & Sarah Russell - You Are (Steve Dekay Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E60625CA41E26B7E2335B88987A909CDB32F54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616414   (1036432) от 02.03.2023
-
-VA - Ultimate Trance Weekender: Amsterdam (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Hampshire & Thomas Datt feat. Senadee - Speed Of Light (Steve Brian Remix) [6:44]
-02. Dimension - Vulcano (Original Mix) [7:58]
-03. Sensetive5 - To The Stars (Original Mix) [7:05]
-04. Dave Horne - Into The Future (Original Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712429D0B96E96936F06BCDF3DF23B5F37962C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442713   (1036317) от 26.01.2021
-
-VA - Trance Vision (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut)
-02. Dreamy - Scar (Radio Cut)
-03. George Harrold - Ayuhuasca (Radio Cut)
-04. Artra & Holland - Mountains (Radio Edition)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FEF86C7629C085B6AD43A055E0224BE9B365F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

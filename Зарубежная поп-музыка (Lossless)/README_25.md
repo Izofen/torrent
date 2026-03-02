@@ -1,3 +1,119 @@
+###  Публикация: 1387480   (791109) от 02.06.2020
+
+Michael Jackson - Discography (1967-2009) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Джексон – легендарный американский музыкант, самый успешный исполнитель поп-музыки в мировой истории, танцор, актер, автор песен. В мире был продан 1 миллиард копий записей Джексона, включая альбомы, синглы и сборники. Музыкант 25 раз попадал в «Книгу рекордов Гиннесса» и только премий «Грэмми» он получил 15, а другие музыкальные награды исчисляются сотнями. (   Читать дальше...   )1972 - Ben {Motown 530 163-2}
+1972 - Got To Be There {Motown 530 162-2}
+1973 - Music and Me {Spectrum 550 078-2}
+1975 - Forever, Michael {Motown 530 280-2}(   Читать дальше...   )Жанр: PopПродолжительность: 80:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAC991AD55E13F2871B332D911653652FD7C932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387805   (790674) от 03.06.2020
+
+Hitmasters - Hey Sexy Lady (2003) [FLAC|Lossless|image + .cue] <Pop, Parody>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Steuersong (Lass Kanzlern) (3:10)
+02. Ein Rudi Völler (3:14)
+03. Everytime (3:02)
+04. Can't Get You Out Of My Head (3:50)(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F21D52D343C6BC73017CF9D92222BF6D78F79B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387800   (790673) от 03.06.2020
+
+VA - The Non-Stop Party Album (2000) [FLAC|Lossless|image + .cue] <Disco, Euro House, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout - Lulu (2:55)
+02. Back to the 60s Vol. 1- Dancing in the Street- (I Can't Get No) - Tight Fit (3:56)
+03. Stars on 45 Vol. 1-The Beatles Medley- Stars on 45-Venus-Sugar Sugar - Starsound Orchestra (4:30)
+04. You Sexy Thing - Hot Chocolate (3:55)(   Читать дальше...   )Жанр: Disco, Euro House, CoverПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C032BF42FD44A7ECBA5C9A3D9781B9EAB63EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202353   (790534) от 28.01.2018
+
+DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNCE
+02. Body Moves
+03. Cake by the Ocean
+04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202163   (790527) от 28.01.2018
 
 Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
@@ -630,122 +746,6 @@ Natalie Imbruglia - Counting Down The Days (2005) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD11344249960762D96D9FFE22AD18F80C013013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123458   (786308) от 08.04.2017
-
-VA - Now That's What I Call Music! 96 (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Top 40, Pop Compilation, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Now That's What I Call Music 96 - является 96-ым изданием серии Now! в Великобритании. Он был выпущен 7 апреля 2017 года. Обратите внимание на композицию "Fastlove", которая достигла первого места в UK Singles Chart в 1996 году. Она была добавлена в этот сборник как дань памяти Джорджу Майклу, который умер до выхода этого альбома. Ремиксованная версия песни, (   Читать дальше...   )CD1:
-01. Ed Sheeran - Castle on the Hill  (4:21)
-02. Rag'n'Bone Man - Human  (3:18)
-03. Little Mix - Touch  (3:31)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, ElectronicПродолжительность: 02:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5288D63847FACF9D50D957D0910A8B155D290C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124374   (785794) от 11.04.2017
-
-Bosé - Papito (2007) [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena Mia (Con Julieta Venegas)  (03:45) 
-02. Si Tu No Vuelves (Con Shakira)  (05:13) 
-03. Bambu (Con Ricky Martin)  (04:58) 
-04. Nada Particular (Con Juanes)  (06:21) (   Читать дальше...   )Жанр: Soft Rock, LatinПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124547   (785760) от 11.04.2017
-
-Thomas Anders - Pures Leben (2017) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Der beste Tag meines Lebens
-2. Sternenregen
-3. Das Lied das Leben heißt
-4. Feuerwerk(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD60941BDC687346DBEB77965CFAD7CB741FFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124800   (785634) от 12.04.2017
-
-Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Independence
-02. There Has Got To Be A Way
-03. Restless Moods
-04. I’m Back For More (ft. Bobby Womack)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

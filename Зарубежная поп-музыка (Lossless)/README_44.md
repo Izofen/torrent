@@ -1,3 +1,119 @@
+###  Публикация: 918184   (587987) от 14.07.2015
+
+VA - Super Vara 2015 (2015) [FLAC|image + .cue]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587987.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+
+01.Amna feat. Glance - Evacuat (4:16)
+02.Anda Adam feat. CRBL - Seri de mai (3:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F317E36127C418FC4C401BB5899FE67238918C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918307   (587869) от 14.07.2015
+
+Kim Wilde - Love Blonde - The Best Of (1993) Compilation [FLAC|image + .cue]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cambodia [3:58]
+02. Kids In America [3:27]
+03. Love Blonde [3:33]
+04. Chequered Love [3:22](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B5433ECFC5158D24B17124013891B3F38111E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918005   (587759) от 14.07.2015
+
+VA - Radio 538: Hitzone 74 (2015) 2CD [FLAC|image +.cue]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Mr. Probz - Another You
+02. Jess Glynne - Hold My Hand
+03. Avicii - Waiting For Love
+04. Magic! - No Way No(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36056075898FE9B29049169DEB7854480A538610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040125   (587450) от 04.08.2016
+
+Newton Family - The Best Of Newton Family (1989) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile Again (English Version) (5:23)
+02. Jumpy Dance (3:49)
+03. Love Is Magic (4:08)
+04. Yo Yo (Hungarian Version) (4:03)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E723F6E584D8C55609616CBBC5C1C26A9CC36D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918567   (586914) от 15.07.2015
 
 VA - Romantic Worlds (2008) [FLAC|image + .cue]<Pop, Soul, Electronic>
@@ -642,122 +758,6 @@ Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043260   (574568) от 15.08.2016
-
-VA - Pop Decades: 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me [3:45]
-02. Foreigner - I Want To Know What Love Is [4:58]
-03. Tina Turner - What's Love Got To Do With It [3:47]
-04. Joy Division - Love Will Tear Us Apart [3:27](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9317E5095D56A928E5571DC7A77F4585FAB25EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043197   (574421) от 15.08.2016
-
-VA - Take On Me: 80's the Collection (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha - Take On Me [00:03:39]
-02. New Order - Blue Monday '88 [00:03:49]
-03. Bananarama - Venus [00:03:48]
-04. Communards - Don't Leave Me This Way (with Sarah Jane Morris) [00:04:50](   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 03:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEC0F882D7F739AFAE6DDE4261F5A64CE08CE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303571   (572528) от 21.05.2019
-
-Ten Sharp - Everything & More: The Best Of Ten Sharp (2000) Compilation [FLAC|Lossless|image + .cue] <Pop, Pop-Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful (3:34)
- 02. Everything (4:29)
- 03. Never Alone (4:04)
- 04. You (4:31)(   Читать дальше...   )Жанр: Pop, Pop-Rock, BalladПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DC9D2DF2A0E0F88DABC582CB33B8A49625D65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554972   (572117) от 02.06.2022
-
-Leo Sayer - Northern Songs (2021) Sings The Beatles [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleanor Rigby
-02. Strawberry Fields Forever
-03. Revolution
-04. Get Back(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C82DA90D9FE1CF9A3CC10605816232507B7C57
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1048640   (546424) от 02.09.2016
+
+VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Astralion-Black Adder
+002. Evan-Blue Lightning
+003. Grave Digger-Enola Gay
+004. Hitten-Can't Bring Me Down(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE73CAD34550EE7AADC6FEFCF81224990E82C688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310757   (545178) от 26.06.2019
 
 VA - Warm Memories: Collection Classic Rock (2019) [MP3|320 Kbps] <Classic Rock>
@@ -716,35 +745,6 @@ VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3AD5EDA0372D7F6D11FE5D168112FAF53559EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928717   (521371) от 17.08.2015
-
-Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - The Show Must Go On (04:29)
-02. Bryan Adams - Everything I Do (I Do It For You) (06:34)
-03. Elton John - Sorry Seems To Be The Hardest Word (03:48)
-04. Gary Moore - Still Got The Blues (06:09)(   Читать дальше...   )Жанр: Rock, Art Rock, Soft Rock, Pop RockПродолжительность: 08:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B14BE47583E4D03C05CB2BC78B723025D78A444
 ```
 
 https://mybot314.ru/tekegram_catalog/

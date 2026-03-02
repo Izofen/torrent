@@ -1,3 +1,29 @@
+###  Публикация: 902726   (658568) от 30.05.2015
+
+Сборник - European Capital Landmarks [PSD, AI, EPS, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейские столицы. Самые известные здания и сооружения.Формат: PSD, AI, EPS, SVG, CSH, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5522DC213B20A2DD3899AA894CD2C5B6FFCD1014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225879   (657823) от 18.05.2018
 
 Растровый клипарт - Tubes #104 [PNG]
@@ -663,33 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2181F71821E7F34E9D6DF0DC403F6E884D68C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226327   (654545) от 21.05.2018
-
-Текстуры - Creative Market - Real Paper Textures Bundle - 1464807 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бумажные текстуры.
-Автор: Draw Wing ZenФормат: JPGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB61F31847164FCD8E033A02CFEDAFF0AA1521E
 ```
 
 https://mybot314.ru/tekegram_catalog/

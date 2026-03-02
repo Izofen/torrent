@@ -1,26 +1,22 @@
-###  Публикация: 1158712   (489615) от 17.08.2017
+###  Публикация: 574079   (376421) от 12.11.2012
 
-Сборник клипов - Philizz "Back To The 90s" (episode 5) (2017) WEB-DLRip [H.264/720p-LQ]
+Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489615.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Пятая часть серии видеомиксов популярных клипов легендарных 90-х. Полное погружение в мир танцевальной музыки в стиле Eurodance, Hip-Hop и EDM (электронная музыка)! Вспоминаем и наслаждаемся музыкой 90-х!
-- Разбивка по трекам отсутствует.Queen ft. David Bowie – Under Pressure (Rah Mix)
-Mousse T. ft. Hot ‘n’ Juicy – Horny ‘98
-Army Of Lovers – Crucified
-New Kids on the Block - Step By Step(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:49
+Жанр: DanceПродолжительность: 00:02:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6217677E2711FD20FFCA3EE75AF82F01FF23B68
+magnet:?xt=urn:btih:7839D1ED8D9EBF650AD86275FBAB21E2DF36956E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 937141   (489563) от 14.09.2015
+###  Публикация: 574078   (376072) от 12.11.2012
 
-VA - Осенний марафон № 189 / Видеоклипы (Самые Танцевальные Зарубежные Хиты) (2015) WEBRip [H.264/1080p-LQ]
+M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489563.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (13.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexi Blue - Royalty (Official Video) (00:03:55)
-2. Amure - Horses (Official Video) (00:05:15)
-3. Bankrupt - Bipolar Bear (Official Video) (00:02:47)
-4. Betty Blue - Acolo sus (Official Video) (00:03:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:39:10
+Жанр: DanceПродолжительность: 00:04:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0053B4741D028DE2E55F1AE607F7C220F753A5F2
+magnet:?xt=urn:btih:9CA2B97E422267E8FCA7BD42133B7205324C2FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,25 +50,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 544820   (487700) от 09.09.2012
+###  Публикация: 574221   (375342) от 12.11.2012
 
-MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
+Глэм Рок / Glam Rock -T.Rex. S.Quatro.Nazareth.Sweet and more.. (2003) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487700.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, DanceПродолжительность: 00:04:21
+На этом диске представлены одни из лучших групп направления глэм рока начало 70 х,
+все группы в самом начале своей сценической карьеры все молоды полны амбиций и задора.01. T.Rex.- Jeepster
+02. Shwaddywaddy - You Got What it Takes
+03. Nazareth - Love Hurts
+04. Dave Edmunds - Here Comes THE Weekend
+05. Rod Stewart - Tonight's The Night
+06. T.Rex - 20 th Century Boy
+07. Suzi Quatro - 48 Crach
+08. David Essex - Rock On
+09. Sweet - Teenage Rampage
+10. Bay City Rollers - Bye Bye Bye(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
+magnet:?xt=urn:btih:FE62C85CC2A09E06D07E678E64B28D8E12F8C432
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,25 +86,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 544823   (487697) от 09.09.2012
+###  Публикация: 720152   (374410) от 10.11.2013
 
-Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
+Сборник клипов - VA - Various Music part. 47 (2013) WEBRip 720p, 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487697.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:31
+1. Agnes - Don't Go Breaking My Heart 720p (3:49)
+2. Ahzee - Born Again 1080p (3:40)
+3. Aircraft & Miss Palmer - Dont Ever Let Go 720p (3:16)
+4. Andreea Balan feat. Sonny Flame - IUBI 1080p (3:20)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:32:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9416E27CA3676B3FE08A4A5371B224C264AAC19
+magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 544847   (486785) от 09.09.2012
+###  Публикация: 1327326   (374111) от 25.09.2019
 
-Сборник клипов - VA - Various Music part. 33 (2012) WEBRip 720p, 1080p
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486785.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:09:37
+Вся сила энергия и мощь понастоящему крутой музыки! Это 3я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 3 — Intro
+01. Cinderella — The More Things Change
+02. Van Halen — Don’t Tell Me
+03. 3 Doors Down — Duck & Run(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCCAADBA704C14CA39D401C58986D576B225522F
+magnet:?xt=urn:btih:89118020E59E4514FAA7891C3A0087EE9FE71267
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,25 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 382477   (486504) от 04.09.2011
+###  Публикация: 1175540   (374069) от 20.10.2017
 
-Animusic HD (2010) BDRip
+Сборник клипов - Reggae от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486504.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: МузыкаРежиссер: Wayne Lytle/Уэйн ЛитлАктеры: animationПеревод: ОтсутствуетПродолжительность: 00:41:57
+В сборник вошли самые мелодичные клипы мирового рэгги. Эта музыка пропитана ямайским духом и жарким климатом тропиков. Для всех любителей солнечных мелодий и почитателей легендарного Боба Марли. От себя добавлю, Если б я мог превратиться в музыку, то стал бы позитивным ямайским солнечным рэгги! Это 1 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для (   Читать дальше...   )001 Robert Palmer and UB40 - I`ll Be Your Baby Tonight
+002 Mark Wonder & Sizzla Guiding Light
+003 Mattafix - Cool Down The Pace
+004 Inner Circle - Games People Play(   Читать дальше...   )Жанр: ReggaeПродолжительность: 03:45:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:062E45360A908C66C19F996661B7FACC08E2E88B
+magnet:?xt=urn:btih:A669C26E15B7B739B417F3DCDFF7057483FBD483
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,28 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 937969   (483720) от 17.09.2015
+###  Публикация: 1175701   (373927) от 20.10.2017
 
-VA - Осенний марафон № 190 / Видеоклипы (Осенний Листопад Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
+VA - Viva Music (1996) VHSRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483720.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (16.09.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Lori! Lori - Брось меня (ПРЕМЬЕРА!) (00:04:47)
-2. Romadi - Я не играю в любовь (ПРЕМЬЕРА!) (00:04:10)
-3. Stereopulse - Любовь не дура (ПРЕМЬЕРА!) (00:03:35)
-4. Александр Марцинкевич - Королева (ПРЕМЬЕРА!) (00:04:24)(   Читать дальше...   )Жанр: Pop, Chanson, Hip-HopПродолжительность: 01:35:17
+Сборник клипов легендарного немецкого музыкального телеканалаDJ Hooligan - System Ecstasy
+Rhythm of Sylvia - Rhythm of Sylvia
+CJ Bolland - Camargue
+Der dritte Raum Trommelmaschine(   Читать дальше...   )Производство: Viva MusicЖанр: Музыка,клипыСубтитры: отсутствуютПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E35647FE76DECA5FE50BB7779152701410FEB58F
+magnet:?xt=urn:btih:F7D8558D78FB6CEABEFD7328311F451CBA39BA91
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +202,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 822218   (479770) от 18.09.2014
+###  Публикация: 1176076   (369192) от 22.10.2017
 
-I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
+Сборник клипов - Русский шансон от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479770.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Cat's Parade
-02. Thank you Great Spirit
-03. Adult Swim - Neon Indian
-04. Marie-Louise - Skinny Dip(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, Instrumental, RockПродолжительность: 02:57:33
+Мой подарок всем любителям русского шансона. В сборник вошли самые хитовые кабацкие песни, романсы, ну и конечно же много блатной темы. Это 1 часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас в натуре! =)  ALEXnROCK000 Интро
+001 Жека - Растревоженная птица
+002 Вячеслав Добрынин - Капитан запаса
+003 Бутырка - Малец(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:46:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC44BD0B6883AE4028F1C9F212324DD7392877E1
+magnet:?xt=urn:btih:AE6CD4E3DC0B7625616AD4F8057DC8B1CDB99BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +231,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 938637   (479676) от 19.09.2015
+###  Публикация: 1070221   (368450) от 06.11.2016
 
-VA - Осенний марафон № 191 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
+Assorti Creative 50 (2016) WEBRip [H.264]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479676.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (18.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. A Great Big World  ft. Futuristiс - Hold Each Other (Official Video) (00:03:40)
-2. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
-3. Anda Adam - Save Me Tonight (Official Video) (00:03:06)
-4. Anja Nissen - Triumph (Official Video) (00:03:09)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, IndieПродолжительность: 01:23:36
+Приглашаю вас в мир моей музыки! Надеюсь, что каждый здесь найдет что-то для себя. Пусть музыка наполнит вас гармонией и в вашей жизни всегда все будет хорошо! Клипы исполнителей Enigmatic направления. Для любителей проэкта Enigma.01. Achillea ( Jens Gad ) - Amadas Estrellas [05:30]
+02. Deep Forest - Deep Forest [03:30]
+03. Enigma - Fata Morgana [03:05]
+04. Conjure One - Sleep [05:03](   Читать дальше...   )Производство: Assorti CreativeЖанр: Enigmatic, New AgeПродолжительность: 04:07:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16F766EF1ADE20D825EBB23C9EF71C9F367230D2
+magnet:?xt=urn:btih:AD40D76020C2942A0C29AAB0E727EC3DAF71115E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,25 +260,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 140808   (479593) от 16.09.2009
+###  Публикация: 575573   (367907) от 15.11.2012
 
-The Beatles - документальные ролики из ремастерированного бокс сета / The Beatles - The Mini Documentaries - Box Set Remastered (2009) DVD5
+DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479593.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Музыка / RockСубтитры: English - French - German - Spanish - Italian - Brazilian Portuguese - DutchФормат: NTSCПродолжительность: ~00:50:00
+Жанр: ElectroПродолжительность: 00:02:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E598918AB0D717FBF07847D23DF4B830FE8D3A35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +286,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 546313   (478713) от 13.09.2012
+###  Публикация: 405851   (367808) от 04.11.2011
 
-Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
+Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:04:55
+Жанр: ВидеоклипРежиссер: Леди ГаГа, Лори Энн Гибсон, Haus of GaGaПродолжительность: 00:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD31AF4D92BB77CF39A254A5CFF1A920F092E46B
+magnet:?xt=urn:btih:D9F55F773E2A68E01CA6EC1FB92D89EB18B235D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,25 +312,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 546179   (478696) от 13.09.2012
+###  Публикация: 406067   (367786) от 04.11.2011
 
-Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
+VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:10
+“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: МузыкаРежиссер: N/AАктеры: DEV, Jennifer Lopez, Selena Gomez & The SceneПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 5x ~00:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8500FADF8AB7E7CF25A86D22D37AA4E73ABCB2F1
+magnet:?xt=urn:btih:B797F046A5D5D8FCF9DBAF8ACFF7BA3C8F95172A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,34 +338,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 384818   (478526) от 08.09.2011
+###  Публикация: 575992   (366309) от 16.11.2012
 
-DJ VJ Magrao Videomix Volume 10 (2011) DVD5
+Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478526.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Летний мегамикс бразильского ви-джея Magrao01 - DJ VJ Magrão - Introdução 2011 Parte 2
-02 - Adele - Rolling In The Deep
-03 - Rihanna - California King Bed
-04 - Flo Rida & Akon - Who Dat Girl
-05 - DJ Antoine, Timati Feat.Kalenna - Welcome To St. Tropez
-06 - Jean Roch, Flo Rida & Kat DeLuna - I\'m Alright
-07 - Far East Movement - Rocketeer
-08 - Tiko\'s Groove & Gosha - I Don\'t Know What To Do
-09 - Katy Perry - Last Friday Night (TGIF)
-10 - Jessie J & B.O.B - Price Tag(   Читать дальше...   )Жанр: Pop, Club, DanceРежиссер: DJ VJ MagraoАктеры: разные исполнителиПродолжительность: 1:09:13
+Жанр: DanceПродолжительность: 00:03:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82DA292DEB42BC15FFEA15C25D82A1EB1CE346A6
+magnet:?xt=urn:btih:A0162E116B62BE3E0CB4CFE25737F42C7737EA36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,25 +364,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 546445   (478379) от 13.09.2012
+###  Публикация: 575574   (365576) от 16.11.2012
 
-Nikita - Avocado (2012) [H.264/1080p] WEBRip
+JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478379.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:03:03
+Жанр: RapПродолжительность: 00:03:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3891EBD25A857B1D40A0311D48E3853EC23D6AF9
+magnet:?xt=urn:btih:E807D639FB6BCC86C805AE8083F6CC555963D947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,25 +390,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 545184   (478280) от 13.09.2012
+###  Публикация: 950814   (365072) от 28.10.2015
 
-PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
+VA - Осенний марафон № 200 / Видеоклипы (Презент Хитовой Двухсоточки) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopstepПродолжительность: 00:04:07
+Осенние (27.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+Представляю юбилейный, двухсотый сборник популярной музыки для хорошего настроения.01. 5 Seconds of Summer - Hey Everybody! (Official Video) (00:04:03)
+02. Alex Sparrow - She's Crazy But She's Mine (ПРЕМЬЕРА!) (00:04:18)
+03. Armin van Buuren ft. Cimo Fränkel - Strong Ones (Official Video) (00:03:29)
+04. BT and Senadee ft. Dragon and Jontron - Lifeline (Official Video) (00:03:58)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5DDBBB5ADCBBB8CE6E975456A1A9F701C9A6CF4
+magnet:?xt=urn:btih:494605E8979914BC467E07C9408CC893DC2343E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +420,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 939630   (473086) от 22.09.2015
+###  Публикация: 950661   (365066) от 28.10.2015
 
-VA - Осенний марафон № 192 /  Видеоклипы (Сборник Зарубежной Хорошей Музыки) (2015) WEBRip [H.264/1080p-LQ]
+Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние (21.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 9Muses - Hurt Locker (Official Video) (00:03:25)
-2. Ask Embla - Fathers Eyes (Official Video) (00:04:11)
-3. B-Brave ft. Cho, Frenna - Verleiden (Remix) (Official Video) (00:03:12)
-4. Big Data ft. White Sea - The Business of Emotion (Official Video) (00:04:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Trance, Drum&BassПродолжительность: 01:30:29
+Новое видео британской певицы Adele на песню  "Hello"Жанр: поп-джаз/соул, блюз.Продолжительность: 00:06:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AC8D7C1FDEA01B9A9052BF73AE16250FD262EC7
+magnet:?xt=urn:btih:16BCBC5EAA027C23913EAC3EE30F6C45A5117598
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 702050   (472731) от 20.09.2013
+###  Публикация: 1177465   (360351) от 26.10.2017
 
-Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
+The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Sabbath - Iron Man
-02. Black Sabbath - Paranoid
-03. Eric Burdon & War - Paint It Black-Medley
-04. Eric Burdon & War - Spill The Wine(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:33:39
+Иногда в нашей жизни необходимо упасть, чтобы начать всё заново, с пересмотренной точкой зрения, делая более твёрдые шаги. Это - значение названия "Zero-project". Проект отрывает от ноля и предаёт мечтам... Привет, это - "Zero-project", но мое настоящее имя - “Nikos”. Я родился в Греции в 1972. Музыка - одна из самых важных частей моей жизни. (   Читать дальше...   )01. Andromeda [03:53]
+02. Echoes [04:33)
+03. The Great Spirit [06:26]
+04. Sarabande (George Frideric Handel) [05:26](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2700AED505F926128A1466972005A2A2A603CA29
+magnet:?xt=urn:btih:2610629EAB9846C4FC3D1A310E4BC339C935E702
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,28 +475,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 701921   (472726) от 20.09.2013
+###  Публикация: 1415504   (360212) от 19.10.2020
 
-Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
+Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <Symphonic Gothic Metal>
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472726.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Sabbath - Black Sabbath
-02. Rare Bird - Sympathy
-03. Blodwyn Pig - See My Way
-02. Canned Heat - Future Blues(   Читать дальше...   )Жанр: Музыка,  RockПродолжительность: 01:43:52
+01-Epica - Abyss of Time - Countdown to Singularity (Single)Производство: Nuclear Blast RecordsЖанр: Symphonic Gothic MetalПродолжительность: 00:05:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA0B189738625619CEA2B2BED8140927CB903B35
+magnet:?xt=urn:btih:0F7B3A0C5DC73259EEB9B3D8EF0D95BED59B62B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,25 +501,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547677   (471962) от 16.09.2012
+###  Публикация: 577735   (358725) от 19.11.2012
 
-Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
+Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:04:15
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
+magnet:?xt=urn:btih:93310584671C0FB9610ED2A135CA0493ABCF5673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,25 +527,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 386753   (469518) от 12.09.2011
+###  Публикация: 577697   (358722) от 19.11.2012
 
-Калевала / Сон Река (2011) HDRip
+Usher - Numb (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжительность: 00:04:17
+Жанр: Soul, R'N'B
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ED534BE9D41677009E16AE4BEA23C8847F43ADD
+magnet:?xt=urn:btih:9B63666303AEC5F9BCAE974374F6811FF48658E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,25 +553,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 386720   (469420) от 12.09.2011
+###  Публикация: 577702   (358716) от 19.11.2012
 
-Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
+Usher - Dive (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Wish You Were Here» — третий сингл с четвертого альбома Аврил Лавин Goodbye Lullaby. Впервые о песне как о сингле упоминалось в телефонном интервью, когда Аврил находилась в Германии на ежегодной выставке-показе «The Bread & Butter Surepshow».Жанр: ВИДЕОКЛИПРежиссер: Марк УэббАктеры: Avril LavigneПродолжительность: 00:03:46
+Жанр: Soul, R'N'B
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67B771C69AEB95AFCC549FC08C2956D446281469
+magnet:?xt=urn:btih:056E18E5D7089609560D09C6B404AFB0A72A2696
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +579,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 702256   (467982) от 22.09.2013
+###  Публикация: 577860   (358546) от 19.11.2012
 
-Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
+Гайтана - My everything (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467982.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. UFO - Boogie
-02. The Move -When Alice Comes Back To The Farm
-03. Emerson, Lake & Palmer - Take A Pebble
-04. Emerson, Lake & Palmer- Knife Edge(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:17
+Жанр: Pop
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B53D3226700106C02CAFF6960AE690A0C833CD52
+magnet:?xt=urn:btih:4FA2682DA467BC9AA2725630D3D2C313D7E801DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +605,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 702720   (467961) от 22.09.2013
+###  Публикация: 577502   (358544) от 19.11.2012
 
-Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
+Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Curved Air - It Happened Today
-02. Soft Machine - Composition Based On Three Tunes
-03. Curved Air - Vivaldi
-04. Yes - I've Seen Good People ( Part 2: All Good People )(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:45:46
+Жанр: RAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65FC468F4A1718F52E61081731EFB6FA4FAC9406
+magnet:?xt=urn:btih:4459BA3506CE17F6F6AA113080EFD5E2A8A65C94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,25 +631,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548590   (467683) от 18.09.2012
+###  Публикация: 577507   (358366) от 19.11.2012
 
-Secret - Poison (2012) [H.264/1080p] WEBRip
+Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467683.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, DanceПродолжительность: 00:04:43
+Жанр: RAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C5B27756C5716CCD2675A95E804DDDA3FBDDBBF
+magnet:?xt=urn:btih:254813806A3B1877851BD23F68D52FCCDBE3EE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,25 +657,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548587   (467674) от 18.09.2012
+###  Публикация: 577689   (358356) от 19.11.2012
 
-MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
+Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467674.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: DanceПродолжительность: 00:03:30
+Жанр: R'N'B
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADEB27F771F800363F459902DB3342CCFB8988ED
+magnet:?xt=urn:btih:476216F79F2C2E8CBEC31896C820B6F8FEC6060F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,25 +683,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548586   (467209) от 18.09.2012
+###  Публикация: 577878   (358348) от 19.11.2012
 
-DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WEBRip
+Прохор Шаляпин - Дубинушка (2012)  [H.264/1080p] WEB-DLRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467209.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:02:39
+Жанр: РОР
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23B76D6B9B20CA9DB56CCAC6D17EA8A94ABD1F4B
+magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
 ```
 
 https://mybot314.ru/tekegram_catalog/

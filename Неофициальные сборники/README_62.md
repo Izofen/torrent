@@ -1,3 +1,212 @@
+###  Публикация: 1361397   (955510) от 19.02.2020
+
+VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. La Roux - Gullible Fool (Original Mix)
+002. Where Is Maps - Crazy Together
+003. Skif Bazzaty - Solo Tu Y Yo (Original Mix)
+004. Dstrqt - Missions (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361176   (955493) от 19.02.2020
+
+VA - 100 Greatest Dance Anthems (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955493.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stardust - Music Sounds Better With You (Radio Edit) 4:21
+002. Donna Summer - I Feel Love 3:45
+003. Daft Punk - One More Time 5:20
+004. Inner City - Good Life (Original 12' Mix) 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CAF170D6AABDC9DC8B9259E886DB29CB190168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360935   (955405) от 19.02.2020
+
+VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neron - Decomposing
+02. Hilaa - Naked
+03. Cassidy Janson - Fairytale
+04. 1Team - Not Afraid(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 04:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361369   (955401) от 19.02.2020
+
+VA - Рок впрок 14 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стёртые Лица - Чтобы жить
+02. Deviltears – Безликие
+03. МИССИЯ - Ранняя весна
+04. Тень Звука – Город(   Читать дальше...   )Жанр: RockПродолжительность: 03:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F6CDB29003AF474094A4F15DD82E1E09F732CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623211   (955349) от 26.02.2013
+
+VA - Gold of Teddy Killerz (2013) [MP3|320 кб/с]<Drum'n'Bass, Dub Step, Glitchhop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Modestep - Evolution Theory (Teddy Killerz Remix)
+2. Modestep feat. Teddy Killerz and Ghetts - Inside My Head
+3. Nishin Verdiano, AK9 – Bitch Please (Teddy Killerz Remix)
+4. Skrillex feat. Damian Marley - Make It Bun Dem (Teddy Killerz Remix)
+5. Teddy Killerz - Bad Taste
+6. Teddy Killerz - Hunger
+7. Teddy Killerz - New Drums
+8. Teddy Killerz - Ravezone Anthem
+9. Teddy Killerz - Samsyka
+10. Teddy Killerz - Scary(   Читать дальше...   )Жанр: Drum'n'Bass, Dub Step, GlitchhopПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA57CFA94547F64B418450FF383766BB0DD035E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360932   (955210) от 19.02.2020
+
+VA - Sentimental Blues (2020) [MP3|204-320 Kbps] <Blues, Lyric>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lost Soules - Can't Get Enough Of Her Sweet Stuff
+002. Erja Lyytinen - Stolen Hearts
+003. Sue Foley - Come To Me (Featuring Charlie Sexton)
+004. Gracie Curran & Friends - Ernestine(   Читать дальше...   )Жанр: Blues, LyricПродолжительность: 08:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7DEE3793D57CC210CC8F682F9804C40BA19B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088739   (955150) от 01.01.2017
+
+VA - 90s Dance Classics (2016) [MP3|320 Kbps] <Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madonna - Vogue 05:18
+02. En Vogue - Hold On (Hip Hop Remix) 05:50
+03. All Saints - Lady Marmalade (Timbaland Remix) 03:40
+04. Clubland - Hypnotized (Pka Full Philly 7) 04:09(   Читать дальше...   )Жанр: Latin Pop, Jazz, Soul, Dance, RnB, Swing, Garage HouseПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4660B9EF7FACF1A4DA04307802C0D2214A29989A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088471   (955145) от 01.01.2017
 
 VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -542,209 +751,6 @@ VA - Стопудовые зимние хиты. Сборник № 2 (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93C17134012F0A4176B0B44BC97D043A9583BE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088777   (954021) от 02.01.2017
-
-VA - Отрывайся с лучшими хитами. Выпуск № 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954021.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christina Novelli - Same Stars 3:42
-002. Honne - Woman 4:26
-003. Nero - The Thrill 3:30
-004. John Newman Feat. Charlie Wilson - Tiring Game 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE42341586ADDC0ED39D422C70498D0307D12A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088787   (953999) от 02.01.2017
-
-VA - Зимние блатные песни на Шансоне (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953999.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Майданов - Что Оставит Ветер 4:18
-002. Александр Назаров - Лабиринты Любви 4:01
-003. Ирина Коган - Кавказская Душа 3:52
-004. Akritis - Разбитая Мечта 5:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B59A7C2E399AFF5448E2326C7FB1CD175AB78C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089027   (953915) от 02.01.2017
-
-VA - Начинаем отмечать! №4 (2016) [MP3|192-256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953915.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elena Paparizou - Misi Kardia
-002. Daddy Yankee - Vaiven
-003. Ivan Kit - Джексон
-004. Элемент - Музыка(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E0DC532394063D8E426DB51246A07F8F61971D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088780   (953913) от 02.01.2017
-
-VA - Зимний драйв 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953913.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мали - Люблю 3:11
-002. Jojo Feat. Alessia Cara - I Can Only 3:21
-003. Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56
-004. Fargo Feat. Arma - Танцемания 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3954BA75A87A47CD83E58FA5DF8598453B56024C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089026   (953910) от 02.01.2017
-
-VA - Начинаем отмечать! №3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дарья Кумпаньенко - Полюби Меня Сильно
-002. Burito - Спешите Любить
-003. Александр Прокофьев - Ты Мне Не Веришь
-004. Дискотека Авария & Филипп Киркоров - Яркий Я(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A301ADE05219BBB292D756B404A8912963683C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088792   (953901) от 02.01.2017
-
-VA - Масть крестовая. Зима на радио Шансон. Сборник № 8 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953901.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Башкиров - Слезы Дождя 4:04
-002. Богдан Галий - Самые Любимые 3:29
-003. Андрей Опейкин - Людей Встречают По Одежке 4:12
-004. Вячеслав  Лапин - Приговор 4:11(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E876D337FEF92059F626566A25D62E582F294ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088784   (953897) от 02.01.2017
-
-VA - Полный отрыв. Зимние хиты. Сборник № 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Не.Kurili Feat. Mansarda - Оскал 5:31
-002. Adlernebel - The Forgotten Trail 8:39
-003. Original Sin - Red Mist 4:20
-004. Mc Doni - Полегче 2:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0B47675C23BAB17282D65019009AC5610791DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

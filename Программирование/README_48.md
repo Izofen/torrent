@@ -1,3 +1,29 @@
+###  Публикация: 1664792   (184155) от 27.09.2023
+
+Анатолий Постолит | Основы искусственного интеллекта в примерах на Python. 2-е изд. (2023) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описаны инструментальные средства для разработки приложений искусственного интеллекта. Даны основы языка программирования Python. Раскрыты основные понятия и определения искусственного интеллекта. Рассмотрены вопросы программной реализации элементов нейронной сети и построения многослойных нейронных сетей. Большое внимание уделено применению специализированных библиотек (   Читать дальше...   )Жанр: ТехнологииИздательство: БХВФормат: PDF, DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E1CFCDFFD856874C0D0B6FA303ADB2E6ADBB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592369   (184146) от 21.11.2022
 
 Роман Пушкин | Руби для романтиков. Самая простая книга по языку Руби с заданиями (2022) [PDF]
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD45C962F504D27223570CEC6F59806B53ECB695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594662   (176461) от 03.12.2022
-
-John Thomas | Data Structure and Algorithms With Python: The Ultimate Guide Towards Coding (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Computers store and process data with an extra ordinary speed and accuracy. So, it is highly essential that the data is stored efficiently and can be accessed fast. Also, the processing of data should happen in the smallest possible time, but without losing the accuracy.
-Data structures deal with how the data is organised and held in the memory, when a program processes (   Читать дальше...   )Жанр: программированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1207B243C3EE150A13BBCFFCE5811EBEDC09137
 ```
 
 https://mybot314.ru/tekegram_catalog/

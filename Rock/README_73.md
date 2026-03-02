@@ -1,3 +1,67 @@
+###  Публикация: 1838561   (260671) от 23.11.2025
+
+Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Back The Night [00:03:38]
+02. Lies [00:03:52]
+03. Never Let It Go [00:03:26]
+04. Too Far Gone [00:04:14](   Читать дальше...   )Жанр: AOR, Arena-RockПродолжительность: 00.45.23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B96AAEBAD6D62B17C9F4EB2D5DCB4E9D0E63258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504664   (260515) от 02.06.2012
+
+Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260515.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: RockПродолжительность: 01:19:15
+ 01. Twice In A Lifetime [0:03:02.28]
+ 02. Famous Groupies [0:03:35.40]
+ 03. Wild Life [0:06:41.60]
+ 04. Heaven on a Sunday [0:04:28.67]
+ 05. Hi, Hi, Hi [0:03:08.28]
+ 06. It's Not True [0:05:53.00]
+ 07. Must Do Something About It [0:03:43.48]
+ 08. Press [0:04:42.65]
+ 09. Pretty Little Head [0:05:13.52](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504479   (260243) от 01.06.2012
 
 VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
@@ -766,64 +830,6 @@ The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC149DDA75D13D072C92444E4AF327CDE5EBD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624670   (245069) от 07.04.2023
-
-Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Edge (03:36)
-02. Too Young (03:39)
-03. Runaway (04:10)
-04. Girl on the Airwaves (04:53)(   Читать дальше...   )Жанр: AOR, Pop RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C8E6AAE1BDB36F89F90A84F3CB2859B2A566C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624852   (245061) от 07.04.2023
-
-Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Overture [00:06:14]
-02 Never Never Land [00:11:24]
-03 The Lost Boys [00:10:20]
-04 The Home Under the Ground [00:09:54](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD5C8C6646763937C83DB60776395589FBF8BCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

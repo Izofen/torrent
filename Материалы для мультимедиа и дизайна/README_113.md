@@ -1,3 +1,29 @@
+###  Публикация: 1016503   (770182) от 14.05.2016
+
+Экшены - GraphicRiver - Strokes Photoshop Action - 9150822 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED13BE048F2FD35EDE017B5D52DBDB693B4F92DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016414   (770181) от 14.05.2016
 
 Экшены - GraphicRiver - Soft Focus 3 Photoshop Action - 13257536 [ATN]
@@ -658,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5B05868CFFB224E57D270BDFE0D8512778C956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392721   (769085) от 27.06.2020
-
-Векторный клипарт - Adolable Cute Animals Collection Vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Милые животные
-10 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1061DFC07F684EA68D021BA42F1D8B7A65ED7DCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,23 +1,22 @@
-###  Публикация: 1009148   (807589) от 22.04.2016
+###  Публикация: 528846   (570750) от 29.07.2012
 
-Океан Ельзи - Не йди (2016) WEB-DL [H.264/1440p]
+Ляпис Трубецкой - Железный (2012) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807589.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Не йди" является синглом с девятого альбома ОЕ, над которым сегодня работают музыканты группы.
-"Режиссером видео к нашей новой песни стал Игорь Стеколенко, который в свое время вместе с братом Александром сняли несколько клипов ОЭ, ставших для нас культовыми. Мне очень нарвится идея и история клипа, они очень близки к тексту песни. Также нравится (   Читать дальше...   )Производство: УкраинаЖанр: РокРежиссер: Игорь СтеколенкоПеревод: ОтсутствуетПродолжительность: 00:05:05
+Жанр: RockПродолжительность: 00:03:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E91FBC0EF90EFF98E1007EF6276C0BB5F016E46
+magnet:?xt=urn:btih:1D78E8E95D0B104B90DE07D277BB5C487577E4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015134   (804002) от 13.01.2018
+###  Публикация: 363517   (567083) от 15.07.2011
 
-Инфинити - Сборник видеоклипов (2008-2017) WEBRip [H.264/720p-LQ]
+Виктор Королёв - Московский озорной гуляка! (2007) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  А он такой
-2.  Где ты
-3.  Как тебя звать
-4.  Когда уйдешь(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: ~00:50:00
+01. Эпизод 1
+02. Базар-Вокзал
+03. Укушу
+04. Зацелую твои рученьки(   Читать дальше...   )Жанр: Шансон, музыкальное видео, клипыПродолжительность: 01:03:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD02AA833640E4F2763D6DBD36BE0DF3C79E012F
+magnet:?xt=urn:btih:98A92FBBD6CB0C872C6AFD4F9D0DAC05E55A000B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 658856   (803681) от 21.05.2013
+###  Публикация: 364122   (564934) от 16.07.2011
 
-Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
+The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Режиссёрская версия видеоклипа польской метал-группы Behemoth на сингл "Lucifer".Жанр: Black Metal, Death MetalПродолжительность: 00:10:02
+Бессмертный хит "Hotel California" из австралийского концерта "The Farewell 1 Tour" на RodLaver Arena в Мельбурне в 2005г.Жанр: Classic Rock, Country RockРежиссер: NBCАктеры: The EaglesПродолжительность: 00:07:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:886F02ABDE2A98068694D905161B9F3AE5780502
+magnet:?xt=urn:btih:01037F6007CED346D623BB2F58C8D26C83768A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 658863   (803299) от 21.05.2013
+###  Публикация: 922414   (564326) от 31.07.2015
 
-Сборник клипов - VA - Various Music part. 42 (2013) WEBRip 720p, 1080p
+Диско 80-х / Disco Of The 80's (2002) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803299.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 5ive Star - More 720p (3:28)
-2. Alex M. - Greatest DJ 1080p (3:10)
-3. Aligator - Be With You (feat. Sarah West) 1080p (4:22)
-4. Andreea D - Magic Love 1080p (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:19
+Сборник музыкальных клипов в стиле Disco начала 80х.01 Black Box - Ride On Time
+02 Milli Vanilli - Girl You Know It's True
+03 Sydney Youngblood - If Only I Could
+04 Londonbeat - I'Ve Been Thinking About You(   Читать дальше...   )Производство: ГерманияЖанр: МузыкальныйСубтитры: нетПродолжительность: 01:56:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0546A9A4C7FF245C60843A0F1D5DA58E73F78EF0
+magnet:?xt=urn:btih:3284CB5E6505DD8A0C7B48B8ADCCCF0C20E9EC24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009153   (802121) от 25.04.2016
+###  Публикация: 1152191   (562894) от 24.07.2017
 
-Був'е - Влюбленные / Був'є - Закохані (2016) WEB-DL [H.264/2160p] [4K]
+Мама, Россия Мама! (2017) WEB-DLRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802121.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сети появился клип группы «Був'є» и Александра Положинского на песню «Закохані». Эта композиция является официальным саундтреком фильма «Жива» режиссера Тараса Химича. На данный момент создатели картины держат сюжет в секрете. «Это история женщины, а не о войне, хотя автоматы там есть», - говорит Химич.Производство: УкраинаЖанр: РокРежиссер: Тарас ХимичПродолжительность: 00:03:54
+«Кто заставил плакать святые иконы? —
+Драконы Америки, Европы драконы.
+В Сербии, в Сирии плачут иконы,
+И на Донбассе слезы и стоны.(   Читать дальше...   )Производство: РоссияЖанр: PopАктеры: Группа НезабудкиСубтитры: отсутствуютПродолжительность: 00:05:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:691C0C8B62F91831FFB166D47278471F17A93686
+magnet:?xt=urn:btih:5DF245526ABC59FC280ADCDF23031D9094D327D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,28 +137,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199101   (801633) от 15.01.2018
+###  Публикация: 691403   (560052) от 20.08.2013
 
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
+Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801633.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-000 Intro
-105 50 Cent - Candy Shop
-106 Лигалайз - Моя Москва
-107 Trick Trick & Eminem - Welcome 2 Detroit(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:47:45
+Клип на второй сингл из грядущего 5 одноименного альбома "Avril Lavigne", который выходит 24 сентября.
+Клип, в котором она сильно отходит от своего имиджа, вызывает весьма неоднозначные эмоции, как у старых поклонников канадки, так и у новых. Но что несомненно точно, так это то, что она не перестает удивлять.Жанр: pop-rockПродолжительность: 5:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:536B9952B36CE79FEB6DD7F68545F8A7B4B6EA46
+magnet:?xt=urn:btih:87F77894B1B4092E40C2FD87DD8343A84B9D81DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,25 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506302   (801042) от 30.10.2021
+###  Публикация: 365093   (559355) от 19.07.2011
 
-Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
+Бритни Спирс / Britney Spears - Gimme More (Alternative Version) (2011 г.) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801042.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Satyricon — норвежская блэк-метал-группа. В Satyricon два постоянных участника: Сатир (вокал, гитара, бас, клавишные) и Фрост (ударные), к которым время от времени присоединяются сессионные и концертные музыканты. Satyricon возникли в начале 90-х и с первыми альбомами вошли в когорту групп, которые создали норвежскую блэк-металическую сцену и которые часто характеризуют (   Читать дальше...   )Satyricon - Fuel For Hatred (2002)Жанр: Black metalПродолжительность: 00:03:50
+Наконец-то в интернете появилась долгожданная оригинальная версия клипа Бритни Gimme More которую все так долго ждали и так хотели увидеть, многие говорят что все-таки и это не "та самая версия" которая была смонтирована изначально, но пока имеем только это и это прекрасно! Эта версия на 90% содержит ранее не изданный материал, лишь на долю секунды появляются моменты которые также присутствуют в официально признанном видеоролике.Жанр: Музыка, ЭротикаРежиссер: Jake SarfatyАктеры: Britney SpearsПеревод: ОтсутствуетПродолжительность: 4:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F142F43887F3BC93863C120F913C4300C79D8BBB
+magnet:?xt=urn:btih:3B2A1B930D33D1781F0510D048AE35BCBD30269C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199892   (796792) от 19.01.2018
+###  Публикация: 923900   (558877) от 03.08.2015
 
-Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
+Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796792.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Rock, MetalФормат: MKVПродолжительность: 03:43:01
+Старинная рок-н-ролльная мудрость гласит: у каждого времени должен быть свой Элвис. Крис Айзек бестрепетно и неоднократно объявлял себя в интервью правопреемником великого короля — и был совершенно прав. Эффектная внешность а-ля 50-е, великолепный голос и вызывающие ностальгию хиты тому доказательство. Сборник лучших видеоработ Криса Айзека.01. Wicked Game (Radio Edit)
+02. Dancin'
+03. Somebody's Crying
+04. San Francisco Days(   Читать дальше...   )Жанр: Classical Rock, Blues, Pop-musicПродолжительность: 01:03:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34F7EBD8DAA135F623DF080F33D62CC35C34985A
+magnet:?xt=urn:btih:270D7EEE9EC28C96A637428B10CC4FCC08CE2750
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,26 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509088   (792681) от 14.11.2021
+###  Публикация: 924477   (558871) от 03.08.2015
 
-The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
+VA - Летний марафон № 178 / Видеоклипы (Зажигательный Латинский Хит ) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для моего поколения они - кумиры. Мы, даже не видя их и не слыша их музыки, уже знали это волшебное слово - Битлс. А когда сначала услышали, а потом, много позже (с появлением видеомагнитофонов в середине 80-ых) еще и увидели, легенда стала явью. Обыкновенные люди, только жутко талантливые, и появившиеся именно в то время, когда было нужно. Это - Beatles.
-Все черно-белые (   Читать дальше...   )Жанр: РокЯзык озвучки: АнглийскийПродолжительность: 00:33:41
+Летние (03.08.2015) поп. новинки латинской эстрады. Не пропустите, держите новые треки.1. Ale Blake ft. Hevito- Latin Heart (Official Video) (00:03:30)
+2. Alexis y Fido - Santa de mi devoción (Official Video) (00:04:27)
+3. All The Way ft. Bebe Rexha - Reykon (Official Video) (00:04:04)
+4. BB Bronx ft. Farruko - Bronx Whine (Official Video) (00:03:22)(   Читать дальше...   )Жанр: Latino, ReggaetonПродолжительность: 01:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:285BD04C7E264143194161EC63906DE3364B7B37
+magnet:?xt=urn:btih:8F18B824C7C3EDE7176762D09BFB5DB2F49AF980
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,28 +248,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200828   (792661) от 24.01.2018
+###  Публикация: 924050   (558870) от 03.08.2015
 
-Сборник клипов - Русский Рок от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 4)
+Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792661.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-000 Вступление
-156 ДДТ - Ветер
-157 Ария - Колизей
-158 Би-2 - Безвоздушная тревога(   Читать дальше...   )Жанр: РокФормат: MKVПродолжительность: 03:40:27
+Индейская музыка - музыка, которая используется, создается или выполняется коренными американцами в Соединенных Штатах и людьми индейцев Канады, определенно традиционной племенной музыки. В дополнение к традиционной музыке индейских групп, там теперь существуют межплеменные жанры, а также отличные индейские поджанры популярной музыки включая: скала, блюз, хип-хоп, (   Читать дальше...   )01. Blue Chip Orchestra - Ate Heye Lo [03:53]
+02. The Wings  [23:51]
+03. Big City Indians Earth Is Crying - Dry Her Tears - Earth Hour Song [05:00]
+04. Nature - Song for Mornings Stars [02:36](   Читать дальше...   )Жанр: Native American, Folk, New Age, EthnoПродолжительность: 03:53:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91728DA1CB05333D3B6A4BDC3E7F8410E7F04166
+magnet:?xt=urn:btih:BC37DB0C07469DA000B3E0464030BB70A54B608B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,28 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185433   (791949) от 25.01.2018
+###  Публикация: 924681   (557234) от 04.08.2015
 
-Сборник клипов - Русские 2000-2016 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+VA - Летний марафон № 179 / Видеоклипы (Зарубежные Клипы) (2015) HDTVRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791949.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этот сборник я включил самые достойные и хитовые поп клипы от музыкантов с постсоветского пространства с 2000 по 2016 год. Это 2 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Интро
-061 Валерий Меладзе - Иностранец
-062 Ани Лорак - Обними меня
-063 Группа 101 - Дай мне время(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:51
+Летние (04.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Meriem - Dilemma (00:03:30)
+2. Alexandra Stan - Cherry Pop (00:03:19)
+3. Alexandra Stan - Dance (00:03:41)
+4. Andreea Balan - Baila (Spanish Version) (00:04:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, RapПродолжительность: 01:22:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32EF177AF121F36BBA49F79F32F8B2A22ED94300
+magnet:?xt=urn:btih:7C810D66EA261F957758585E7CE1D062D89CB8B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,28 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202378   (790354) от 28.01.2018
+###  Публикация: 693067   (550320) от 25.08.2013
 
-Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 4)
+VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790354.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-000 Intro
-151 Def Leppard - Let's Get Rocked
-152 Offspring - Gotta Get Away
-153 Bonfire - Sweet Obsession(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:42:08
+01. Level 42 - Hot Water 1984
+02. Level 42 - Lessons In Love
+03. Lionel Richie - Hello 1984
+04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31A949033D46F89CAE3086CBFA53A9062AF511AD
+magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,28 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204342   (784828) от 05.02.2018
+###  Публикация: 694564   (546670) от 29.08.2013
 
-Сборник клипов - Русский Рок от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 5)
+VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784828.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-000 Вступление
-207 Джанго - Была не была
-208 Разные Люди - Страна
-209 Рондо - Московская осень(   Читать дальше...   )Жанр: РокФормат: MKVПродолжительность: 03:42:57
+01.Alexander Popov - Moscow Subway (Official Music Video)
+02.Ali - Cocoon (Official Music Video)
+03.Armin van Buuren feat. Cindy Alma - Beautiful Life (Official Music Video)
+04.Armin van Buuren feat. Jacqueline Govaert - Never Say Never (Official Music Video)(   Читать дальше...   )Жанр: Музыка, TranceПродолжительность: 01:42:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A73F02556175000DD205BF957407A2F43FCDB9C7
+magnet:?xt=urn:btih:4830C0249FD0F1C5AC67F9159372EB956149836A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,26 +364,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390246   (783038) от 15.06.2020
+###  Публикация: 1238537   (546127) от 30.07.2018
 
-Запрещенные Барабанщики - Убили негра, Мама Зузу (1999-2000) WEBRip [H.264/360p] <Alternative>
+Сборник клипов - Lite Fitness от ALEXnROCK часть 1 (2018) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783038.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Убили негра 1999
-02 Мама Зузу 2000Жанр: AlternativeПродолжительность: 00:07:48
+Сборник делал на заказ для фитнесс зала. В него вошли ритмичные клипы с танцевальной поп музыкой периода 2010 - 2018. Он подойдет для любых физических упражнений и танцев, да и просто побалдеть под крутую попсу. Обложка и блин для диска есть в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+001 Andreea Balan - Trippin
+002 Armin van Buuren feat. Josh Cumbee - Sunny Days (Club Mix)
+003 Alex Spite - Sky(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 03:05:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D60D927B3DEDBCCB64DCF1CF6B487F9BEA338013
+magnet:?xt=urn:btih:37945BF39FFA59100F1EE383AA34A089C2598F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,28 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207087   (780169) от 20.02.2018
+###  Публикация: 924916   (542816) от 05.08.2015
 
-Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-LQ] <Pop, Rock> [hand made реставрация]
+VA - Летний марафон № 180 / Видеоклипы (Новинки Русской Эстрады) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780169.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полное собрание клипов и лучших живых выступлений шведского дуэта. Все видео прошло реставрационную обработку, звук в клипах заменен на CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK000 Intro
-001 Roxette - Neverending Love
-002 Roxette - Soul Deep
-003 Roxette - I Call Your Name(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:04:30
+Летние (04.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Arsenium – Бэлла Бэлла (ПРЕМЬЕРА!)(00:03:39)
+2. Dinama - Это (ПРЕМЬЕРА!) (00:03:19)
+3. Emin - Забыть Тебя (Official Video) (00:04:37)
+4. Olisha - Дилемма (ПРЕМЬЕРА!) (00:03:20)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3BFEBC4B4A8525102F62EED27DB2241D693D402
+magnet:?xt=urn:btih:E4337C3C54F20D79293917D7FAACB6F70F2B1693
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,28 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210810   (778460) от 04.03.2018
+###  Публикация: 1049796   (542024) от 06.09.2016
 
-Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 5) [hand made реставрация]
+Herbie Hancock - Future2Future (2002) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778460.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-000 Intro
-201 Van halen - Poundcake
-202 Winger - Seventeen
-203 Ugly Kid Joe - I'm Alright(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:38:26
+01. Wisdom
+ 02. Kebero
+ 03. This is DJ Disk
+ 04. Dolphin Dance(   Читать дальше...   )Жанр: Музыка, Музыкальный, Acid JazzАктеры: Herbie HancockПродолжительность: 01:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2980DE9A09A2F44AD85A4928EC8BC2F44F1527A6
+magnet:?xt=urn:btih:CACD2500D60502B3EAB0D405F8ECFCC8949B474D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,28 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012953   (777212) от 05.05.2016
+###  Публикация: 1049785   (542012) от 06.09.2016
 
-Everest of Rock - 1 (1980) WEBRip
+Джаз в Париже, ремиксы / Jazz in Paris remixed (2006) DVD5
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто то считает , что в семидесятые Рок превратился в лавку экзотических товаров с витриной во всю стену , что Рок стал коммерческой музыкой, произошел полный отход от духовных корней рока, рожденного и созданного для бунта . А кто то возразит ; как раз в семидесятых Рок достиг таких высот , преодолеть которые оказалось не под силу следующим поколениям ( уж слишком (   Читать дальше...   )01 Black Sabbath - N.I.B. (1970)
-02 Deep Purple - Black Night (1970)
-03 Deep Purple - Child in time (1970)
-04 Free - All right now (1970)(   Читать дальше...   )Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 02:11:01
+Замечательный андеграундный видеоряд с видами Парижа под не менее замечательную музыку.01. Miles Davis. Ascenseur Pour L’Echafaud (remixed by Nicolas Repac)
+ 02. Pierre Michelot. Elephant Green (remixed by Pierre Audetat)
+ 03. Raymond Fol. Les 4 Saisons (remixed by Yvinek)
+ 04. Chet Baker. Everything Happens To Me (remixed by VV (Gonsales & Renaud Letang)(   Читать дальше...   )Жанр: Музыка, МузыкальныйРежиссер: Antoine CarlierПродолжительность: 00:54:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F84A24860B1B24E1DD58123E551D2245A0F675E6
+magnet:?xt=urn:btih:85D77416F0EBB7A05EC0CE478D64FFB1AED3CE6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,28 +480,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012675   (777139) от 05.05.2016
+###  Публикация: 1154369   (540446) от 30.07.2017
 
-Wax Audio - Mashopolos (2016) WEBRip
+Сборник клипов - Philizz "Back To The 90s" (episode 4) (2017) WEB-DLRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777139.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отличные аудиомиксы из композиций разных рок- и поп-групп (Led Zeppelin vs. Black Sabbath, Metallica vs. AC/DC, Metallica vs. Michael Jackson, Bee Gees vs. Pink Floyd и т.д.). Это не разные исполнители, а парень его зовут Артём он из Сидней (Австралия) делает ремиксы на известные всем треки, начал Wax Audio в 2003 г. в рамках антивоенного движения, выпуская явно (   Читать дальше...   )01. MASHOPOLOS - The Movie [01:48]
-02. Lady Judas (Lady Gaga vs Judas Priest ) [04:13]
-03. Maiden Goes To Bollywood (Iron Maiden vs Dhoom 2) [04:07]
-04. Master Of Doin' It (Metallica + Herbie Hancock) [04:40](   Читать дальше...   )Жанр: Mix, Rock, Pop, Metall, Glam RockПродолжительность: 01:40:38
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Очередная - четвёртая часть серии видеомиксов популярных клипов легендарных 90-х. Продолжаем танцевать в стилях  Rock Ballads, Reggae, R&B и Eurodance! Вспоминаем и наслаждаемся приятной и танцевальной музыкой 90-х!
+- Разбивка по трекам отсутствует.N Sync – Tearin’ Up My Heart
+2Pac – Changes
+Puff Daddy - I'll Be Missing You
+House Of Pain – Jump Around(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C846256536A949984F1C58CDBBD54334272B528
+magnet:?xt=urn:btih:6ED67907AC4752F652373699532F30CD06217C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -502,25 +510,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211501   (777078) от 08.03.2018
+###  Публикация: 818641   (539476) от 04.09.2014
 
-Ленинград / Не Париж  (2018) WEBRip [H.264/1080p-LQ]
+Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777078.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа «Ленинград» выпустила клип на новую песню «Не Париж». В восьмиминутном ролике, больше похожем на фильм (у него даже есть полноценные финальные титры), рассказывается история ижевской семьи: домохозяйка Юля втайне от своего мужа облачается в костюм супергероини и борется с преступностью.Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:07:55
+01. Grimes - Genesis
+02. Ellie Goulding - You My Everything
+03. Chase & Status Feat. Jacob Banks - Alive
+04. CHVRCHES - The Mother We Share(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:42:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:389220E935F42ED35E4A40DE4BA4B4F1AA837713
+magnet:?xt=urn:btih:D552E5DA267DB785BAE8C7A6D36FD80A2119E9CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,25 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211731   (776783) от 09.03.2018
+###  Публикация: 818488   (539475) от 04.09.2014
 
-Фабрика / Вова Вова (2018) WEBRip [H.264/1080p-LQ]
+Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776783.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Матвиенко в совместной творческой работе с группой Фабрика придумали и выпустили необычную песню-частушку «Вова Вова», на которую сразу же сняли клип. В основе сюжета песни обычные девушки, существующие в стандартной офисной рутине, но безудержно пытающиеся покорить сердце мужчины мечты с русским, всем нам знакомым именем - Вова.Производство: РоссияЖанр: ПопПродолжительность: 00:02:46
+01. T.I. & Lil Wayne - Wit Me
+02. Ciara Feat. Nicki Minaj - I'm Out
+03. Tinie Tempah Feat. 2 Chainz - Trampoline
+04. Jay Sean Feat. Rick Ross - Mars(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 01:18:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A3DF551A4AE8FA01433CB4AC16FDC95B39887A3
+magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211562   (776740) от 09.03.2018
+###  Публикация: 818371   (539467) от 04.09.2014
 
-VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip [H.264/1080p-LQ]
+Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776740.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весенние (07.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexandra Stan - Mami (3:30)
-2. Alexandra Stan - Noi 2 (3:22)
-3. Besford ft. Manu LJ - Another World (Official Video) (3:24)
-4. Claudia Leitte ft. Pitbull - Carnaval (3:45)(   Читать дальше...   )Жанр: Pop, Dance, House, Reggaeton, Rap, Hip-HopПродолжительность: 01:10:50
+01. Nicki Minaj - Pound The Alarm
+02. Timbaland Feat. Ne-Yo - Hands In The Air
+03. Tulisa - Young
+04. Alexandra Burke - Let It Go(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:51:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:078CB43CA744F45B213999529F6D1F73C3325112
+magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,28 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211814   (776704) от 09.03.2018
+###  Публикация: 924887   (536924) от 08.08.2015
 
-VA - Весенний марафон № 228: (Дискотека с размахом) (2018) WEBRip [H.264/1080p-LQ]
+Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776704.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весенние (08.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Reea - Stole My Heart (Official Video) (3:36)
-2. Amme - Vis Strain (3:32)
-3. Andreea Banica ft. Balkan - Ce vrei de la mine (Official Video) (3:29)
-4. Andrey Exx, Elis M Feeling ft. Misha - Missing You (3:37)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Latino, ReggaetonПродолжительность: 01:31:20
+Сборник видеоклипов -  русские  ХитыЖанр: PopПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C97E6637362B38214E4D687A3C06CEF77340024E
+magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212241   (776353) от 10.03.2018
+###  Публикация: 695887   (535896) от 05.09.2013
 
-Вадим Галыгин и гр. Ленинград / 8 Марта (2018) WEBRip [H.264/1080p-LQ]
+Сборник клипов - VA - Various Music part. 45 (2013) WEBRip 720p, 1080p
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776353.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное музыкально-художественное произведение создано для привлечения общественного внимания к проблеме отношений между мужчиной и женщиной.Производство: РоссияЖанр: ПопСубтитры: русскиеПродолжительность: 00:05:53
+1. Akcent feat. Dollarman - Spanish Lover 2K13 (Notrack edit) (VJ Tony Video Edit) 1080p (3:25)
+2. Alex Gaudino feat. Mario - Beautiful 1080p (3:44)
+3. Alex Hepburn - Under 1080p (4:07)
+4. Alexander Popov - Moscow Subway 1080p (3:45)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:45:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0381696988B2863D616BFFB1D192C33049DE7B19
+magnet:?xt=urn:btih:E4C85D6E9034D4CB586502D45F804C8DC8F6AAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,28 +652,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212216   (776301) от 10.03.2018
+###  Публикация: 365183   (534476) от 24.07.2011
 
-Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.264/720p-LQ]
+Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776301.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это полное собрание клипов и лучших концертных выступлений немецкой группы. Все видео взято с оригинальных блю рей и двд, звук не менял, так как он превосходный. Поскольку фирменный блю рей с клипами делался из обычного видео с низким разрешением и судя по всему учавствовали в этом процессе люди слабо разбирающиеся в видео, и состряпали халтуру. Выставили в некоторых (   Читать дальше...   )00 Intro
-01 Rammstein - Du riechst so gut
-02 Rammstein - Links 2 3 4
-03 Rammstein - Rammstein(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 03:36:40
+Эта двухдисковая версия Greatest Flix I & II - является качественным аппаратным LDRip'ом, сделанным при помощиЖанр: МузыкаПеревод: Не требуетсяФормат: 2xDVD9Продолжительность: DVD1 - 1:13:24 + 0:17:34; DVD2 - 1:20:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7E930D1866A57759E9B9616E8D41F4534D94796
+magnet:?xt=urn:btih:F8629057C37CD770ACD1AE1B46FDAEF05FC44F1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,28 +678,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212202   (776273) от 10.03.2018
+###  Публикация: 926553   (533322) от 10.08.2015
 
-VA - Весенний марафон № 229: (Новые Лучшие Зарубежные клипы) (2018) WEBRip [H.264/1080p-LQ]
+VA - Летний марафон № 181 / Видеоклипы (Коктейль Зарубежных Новинок) (2015) WEBRip [H.264/1080p-LQ]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776273.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весенние (10.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent - Deep In Your Eyes (Official Video) (3:06)
-2. AMI - Niste dragoste (Official Video) (3:17)
-3. Ashley Monroe - Hands On You (Official Music Video) (3:46)
-4. Camila Cabello - Never Be the Same (4:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Soul, House, TranceПродолжительность: 01.39.51
+Летние (10.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alen Hit - My Heart Is Broken (Official Video) (00:04:19)
+2. Aly & Fila with SkyPatrol ft. Sue McLaren Running (Official Video) (00:05:39)
+3. Andrei Leonte - Hesitate To Love (Official Video) (00:03:07)
+4. Austin Mahone - Dirty Work (Official Video) (00:05:12)(   Читать дальше...   )Жанр: Pop, Dance, Latino, House, Indie, Chill OutПродолжительность: 01:35:25 + 00.03.56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6484DACB8BC435EA6D611BF4C6710D546D3ECB4B
+magnet:?xt=urn:btih:7B9588241D8693541E689D7125CBA78D3362C619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,28 +707,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013801   (775680) от 09.05.2016
+###  Публикация: 926442   (533108) от 10.08.2015
 
-Everest of Rock - 2 (1980) WEBRip
+NikitA - Avocado (2012) MasterRip [H.264/1080i]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775680.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Так назван сборник ( Everest of Rock ) Уверен , что сборник понравится "старичкам" но и молодым ценителям современного Рока будет интересно познакомиться с классикой жанра . (Иваныч)© Часть 2.01 The Doors - The Changeling (1971)
-02 Deep Purple - Smoke On The Water (1972)
-03 Alice Cooper - Schools Out (1972)
-04 The Hollies - Long Cool Woman in a Black (1972)(   Читать дальше...   )Жанр: Rock, Classic RockФормат: MatroskaПродолжительность: 01:40:02
+Солистки группы «NikitA» вооружены красотой и сексуальностью, и очень опасны!
+Дария Астафьева – главная «playmate» журнала «Playboy». Титул «девушки Playboy» Даша завоевывыла дважды: первый раз – у себя на родине в Украине, второй – в США, став главной юбилейной «рlaymate» в честь 55-летия американского издания «Playboy».
+Анастасия – певица, танцовщица, мастер спорта (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64C1B8B2E2B855EBE0222DB70BEE425890A9B245
+magnet:?xt=urn:btih:BD01C1ADC09B18680F161E280E32F0C24A869F4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1225070   (662881) от 13.05.2018
+
+Angel - Sinful (1979) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Take Your Love
+2. L.A. Lady
+3. Just Can't Take It
+4. You Can't Buy Love(   Читать дальше...   )Жанр: Rock, Hard Rock, GlamПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E299D6E9FE695E0D51B2CB42CD2E8E204A6585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225120   (662756) от 13.05.2018
+
+RSO (Richie Sambora & Orianthi) - Radio Free America (2018) [MP3|320 Kbps] <Rock, Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Making History [04:30]
+02. We Are Magic [04:13]
+03. Rise [03:29]
+04. Take Me [04:36](   Читать дальше...   )Жанр: Rock, GuitarПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83009B25D58FBFAC02101AA928371AED0A5B85A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225334   (660758) от 15.05.2018
 
 Infidels (with Molly Johnson) - Infidels (1991) [MP3|320 Kbps] <Hard Rock, Funk Rock, Pop Rock>
@@ -692,64 +750,6 @@ Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904414   (654325) от 03.06.2015
-
-The Rolling Stones - 2120 South Michigan Avenue (The Unreleased 1964 Blues Album) (2010) [MP3|320 кб/с]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recorded At Chess Studio Chicago, USA, 2120 South Michigan Avenue, 10/11 June 1964:
-01 - It's All Over Now 3:24
-02 - I Can't Be Satisfied 3:25
-03 - Stewed And Keefed 4:07(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7359DA86668755BCAC584E950CCF0F21154A107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904409   (654200) от 03.06.2015
-
-BrainStorm - 7 Steps Of Fresh Air (2015) [MP3|320 кб/с]<Brit-pop, pop-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Lights Go Out
-02. Snow Falls In Reverse
-03. Непокой
-04. Stay Young And Beautiful(   Читать дальше...   )Жанр: Brit-pop, pop-rockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBFF61DAA93B8A815C121C35C474C4E12E3BFEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

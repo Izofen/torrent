@@ -1,3 +1,38 @@
+###  Публикация: 602651   (997326) от 13.01.2013
+
+Шаблоны визиток для Photoshop - Rounded Clean Business Card – GraphicRiver / Бизнес Визитки
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визитные карточки для бизнеса.
+2 PSD файла + тхт файл
+300 DPI высокое разрешение
+Высококачественные фоны
+Легкое использование
+Готовность к печати
+==============================================================
+For those who make a difference in highlighting the seriousness and professionalism of the business card, you feel that you are different from your customers.
+ Detail
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BAAD2064274235421A8704895BC8C9F62E893E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603276   (997088) от 14.01.2013
 
 Векторный клипарт - Corporate Business Cards 145 – GraphicRiver / Бизнес Визитки [EPS,AI,OTF]
@@ -671,33 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4511986C9E0E52E6A440A5557F57537F8A3598C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605767   (995559) от 20.01.2013
-
-Фоны - Шелковый абстракт [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые высококачественные шелковые фоны с абстрактной раскраской
-Автор: mir8Разрешение файлов: 7776х5184
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F699D2D17CAA5AB0324D6696198CA9E6C27221D
 ```
 
 https://mybot314.ru/tekegram_catalog/

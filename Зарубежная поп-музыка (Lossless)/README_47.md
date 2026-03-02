@@ -1,3 +1,116 @@
+###  Публикация: 1307605   (554439) от 12.06.2019
+
+Prince - Originals (2019) Anthology [MP3|320 Kbps] <Pop, Rock, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Shooter
+02. Jungle Love
+03. Manic Monday
+04. Noon Rendezvous(   Читать дальше...   )Жанр: Pop, Rock, FunkПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C05D9E77049CB32044025D738621EFA7A16A81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307978   (554243) от 13.06.2019
+
+Real O - Платье (2010) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РорПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E08ADB4950812D6B5F5965A30A0ADDD32E371C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308305   (554121) от 13.06.2019
+
+Madonna - Madame X (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medellín (4:58)
+ 02. Dark Ballet (4:15)
+ 03. God Control (6:19)
+ 04. Future (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985E0E851DB4F0F8932EC76D18D4545B14A0FA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308495   (553982) от 14.06.2019
+
+Bo Katzman Chor - Zwischen Himmel und Erde (2005) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's in the Book (3:38)
+02. Seek, Seek (3:10)
+03. Where Could I Go but to the Lord (3:43)
+04. Hole in the World (4:05)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632D8036A186CE1C76F6EFD3852D6331F8F13BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236959   (553618) от 21.07.2018
 
 Ada Fijal - Ninoczka (2011) [FLAC|Lossless|tracks + .cue] <Pop, Jazz>
@@ -635,123 +748,6 @@ Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311009   (544276) от 27.06.2019
-
-Madonna - Madame X (2019) Japanese Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medellin with Maluma (4:58)
-02. Dark Ballet (4:15)
-03. God Control (6:19)
-04. Future ft. Quavo (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C969713A847ACC2FAE29C753077F909530667763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049058   (544249) от 04.09.2016
-
-VA - 12 Inch Dance: 80s Pop (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Spandau Ballet - Gold (12'' Mix) [07:15]
-02 Duran Duran - The Reflex   [06:34]
-03 Soft Cell - Torch   [08:27]
-04 Tears For Fears - Shout   [08:01](   Читать дальше...   )Жанр: PopПродолжительность: 03:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A08045A00E694BDEBAC76A9C34690534A331D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311090   (544211) от 27.06.2019
-
-VA - Top Of The Pops '1983 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращаемся к продолжению путешествия по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского (   Читать дальше...   )CD1
-01. Duran Duran - Is There Something I Should Know  (4:11)
-02. Kajagoogoo - Too Shy  (3:45)
-03. The Human League - (Keep Feeling) Fascination  (3:44)(   Читать дальше...   )Жанр: 1980s, Pop, RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC13BEA75AC6E46F003FFDC932804272D690E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238899   (543834) от 02.08.2018
-
-Nedelle Torrisi - Only For You (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love to the Limit
-02. Rich Kids World
-03. Discipline
-04. Complicated(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080A6A250B9CE5E5BF8C061DB2826987820ADC87
 ```
 
 https://mybot314.ru/tekegram_catalog/

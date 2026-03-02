@@ -1,22 +1,22 @@
-###  Публикация: 1626018   (241117) от 12.04.2023
+###  Публикация: 470711   (97303) от 20.03.2012
 
-Mozilla Thunderbird 102.10.0 [Ru]
+[Wallpapers] Gilrs Wallpaper Collection (20.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241117.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AFE99AA430BF3326205E8E738578618AB4CF4B5
+magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570245   (241109) от 16.08.2022
+###  Публикация: 470622   (97302) от 20.03.2012
 
-Hasleo Windows ISO Downloader 1.4 Portable [En]
+[Wallpapers] Cars HD Wallpapers (19.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241109.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный инструмент для загрузки установочного ISO-образа Windows 11/10/8.1 с официального сайта MicrosoftЯзык интерфейса: Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F20CBE58CF4EB1E37CC6605539247D8AE3B219
+magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,132 +50,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462462   (241106) от 14.04.2021
+###  Публикация: 470191   (97299) от 20.03.2012
 
-MacX DVD Ripper Pro 6.5.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241106.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмотра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC0A0B959652661078E2A97F8E9CC42C7352BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462362   (241099) от 14.04.2021
-
-Exposure X6 v6.0.6.211  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8A2937FADAA9439525A8A2E76C183BC969A3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625531   (241098) от 10.04.2023
-
-HDCleaner 2.047 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241098.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8F3F1AC1F06C24605BB021198FC6DDC32695F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570217   (241083) от 16.08.2022
-
-Microsoft .Net Framework 09.08.22 RePack by xetrin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241083.jpg" />
-</div>
-
-
-###  Подробнее
-
-.NET Framework - платформа для разработки, развертывания и запуска Web-сервисов и приложений. Она предоставляет высокопроизводительную, основанную на стандартах, многоязыковую среду, которая позволяет интегрировать существующие приложения с приложениями и сервисами следующего поколения, а также решать задачи развертывания и использования интернет-приложений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F64484ADB20B692090E427B28E21D00D89128F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121371   (241082) от 02.04.2017
-
-Purecloud5 - Psy Invention (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
+Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241082.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above Heaven (Original Mix) 06:59
-02. Miracle (Original Mix) 06:33
-03. Forgetting Skyscrapers (Original Mix) 07:11
-04. No Tomorrow (Original Mix) 06:51(   Читать дальше...   )Жанр: Goa Trance, Psy-TranceПродолжительность: 01:18:56
+01. Mongrel
+02. Mexico
+03. 1001 night
+04. Chasm
+05. I shall love
+06. Fragments of a diary
+07. Lullaby of the fairy
+08. Cypress hil
+09. Fists2012Жанр: InstrumentalПродолжительность: 00:24:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF1E3AD10A89B190358EA0DC8925F1234000BFC4
+magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +84,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626132   (241078) от 13.04.2023
+###  Публикация: 470937   (97292) от 20.03.2012
 
-GPU Shark 0.29.2.0 Portable [En]
+[EN] Вонючка / Muckman (2009) DVDRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241078.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GPU Shark - небольшая бесплатная и очень простая в использовании утилита, предназначенная для мониторинга состояния работы GPU. Основана на ZoomGPU и работает на базе чипсетов NVIDIA GeForce и ATI Radeon. GPU Shark может отображать для каждого GPU тактовые частоты (ядра, памяти и шейдерных процессоров), состояния производительности (или PStates), скорость вентилятора, (   Читать дальше...   )Язык интерфейса: Английский
+Согласно сведениям очевидцев, в лесах и болотах Пенсильвании обитает скверно пахнущий аналог снежного человека, которого местные жители ласково кличут Вонючкой. Найти и запечатлеть этого легендарного монстра на плёнку — последний шанс на продолжение карьеры для тележурналиста Микки. А это значит, что Микки и его съёмочная группа должны отыскать Вонючку во что бы то ни стало, даже если его не существует.Жанр: УжасыРежиссер: Бретт ПайперАктеры: А.Дж. Кхан, Элисон Уитни, Йен Пайпер, Джаред Уоррен, Даниэль ДонахьюПеревод: ОтсутствуетПродолжительность: 01:20:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84EE257948FC99325796A9546D8820B5CA62FCBB
+magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,27 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626185   (241067) от 13.04.2023
+###  Публикация: 471011   (97291) от 20.03.2012
 
-LibreWolf 112.0-1 + Portable [Multi/Ru]
+[Wallpapers] Wallpapers Sexy Girls (21.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241067.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox является одним из лучших браузеров. Тем не менее некоторые пользователи с недоверием относятся ко встроенным в продукт Mozilla службам телеметрии.
-Многие пользователи предпочитают, чтобы браузер по умолчанию был настроен на максимальную конфиденциальность и безопасность, хотя Firefox все же предлагает мощные возможности для настройки.
-LibreWolf как раз решает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BD64DD43080BD157D994413BF82AB594D4F0165
+magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,25 +136,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544785   (241049) от 17.04.2022
+###  Публикация: 470220   (97290) от 20.03.2012
 
-Фото на документы Профи 9.25 RePack (& Portable) by elchupacabra [Ru]
+Бамбу / Bambou (2009) DVD5
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241049.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_97290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
+Ален — служащий банка, очень любит свою жену, мечтает о полноценной семье и ребенке. Анна — жена Алена — не готова становиться домохозяйкой. Она поглощена своей музыкальной карьерой. Однажды в их доме появляется щенок по кличке Бамбу. «Личный враг» Алена скоро становится самым верным его другом, а Анна — будущей счастливой мамой и известной пианисткой.Жанр: КомедияРежиссер: Дидье БурдонАктеры: Дидье Бурдон, Энн Консиньи, Пьер Ардити, Эдди Мичелл, Анни Дюпре, Аксель Аббади, Эрик Фратичелли, Жан-Пьер ТальяферриПеревод: Многоголосый закадровыйПродолжительность: 01:33:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A7808E1BFBE0EA91851D55E42350006F5F47CB9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,28 +162,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120691   (241048) от 02.04.2017
+###  Публикация: 470716   (97288) от 20.03.2012
 
-VA - Armada - The Remixes 2017 Vol.3 (The Vocal Trance Edition) (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+[Wallpapers] Best HD Wallpapers Pack (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034547BFE923DB0EE4F66B9AF9DA553BD1220ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470984   (97287) от 20.03.2012
+
+[Wallpapers] HD Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97287.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 2
+Название: HD Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471030   (97286) от 20.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (21.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471028   (97285) от 20.03.2012
+
+[Wallpapers] Nature Wallpapers (21.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471070   (97284) от 20.03.2012
+
+[Wallpapers] HD Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97284.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 5
+Название: HD Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470262   (97282) от 20.03.2012
+
+[Wallpapers] Cityscapes HD Wallpapers (18.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471010   (97281) от 20.03.2012
+
+[Wallpapers] Nature Pictures №33
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97281.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №33
+Название: Nature Pictures №33
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471009   (97279) от 20.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467132   (97278) от 20.03.2012
+
+Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241048.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Armin Van Buuren & Garibay - I Need You (feat. Olaf Blackwood) (Standerwick Remix)  3:30
-02.  Gareth Emery - Cloudline (Jordan Suckley Remix) (feat. Joseph)  3:58
-03.  Andrew Rayel - Once In A Lifetime Love (Deem Remix) (feat. Kristina Antuna)  3:46
-04.  Sebastien - Escape (Heatbeat Remix) (feat. Satellite Empire)  3:30(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:54:44
+01 - Erick Decks & DJ Sign feat. Felice - Running 2012 (Original Erick Decks Extended Mix)
+02 - A. Romeo & Plage & Alateya - Summer Night (Dabruck & Klein Remix)
+03 - Moguai - Mpire (Original Mix)
+04 - Nadia Ali, Starkillers & Alex Kenji - Pressure (Alesso remix)
+05 - Yves Larock & Jesus Luz & Liliana Almeida - Running Man (Hard Rock Sofa Remix)
+06 - Hardwell - Cobra (Official Energy Anthem 2012)
+07 - Tommy Trash - Cascade (Original Mix)
+08 - Ce Ce Rogers & Syke 'n' Sugarstarr - I Believe (Max Lean Remix)
+09 - Vitodito & Oza - Kawaii (Dirty Club Mix)
+10 - Neon Hitch - F U Betta (Chuckie Club Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:09:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E6908CB3EEF8C43DFA7F2A2B6AD499E73AF4653
+magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +417,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548342   (241044) от 02.05.2022
+###  Публикация: 468054   (97277) от 20.03.2012
 
-Artstudio Pro 4.0.12 [En]
+VA - The Dance Cube XXXX 2CD (2011) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241044.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.05.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+CD1 Продолжительность: 01:10:48
+====================================
+01 - Mat Zo - Bipolar (Original Mix)
+02 - Robbie Rivera Feat. Jes - Turn It Around Feat Jes (David Solano & Landis Remix)
+03 - Tigran Oganezov - Kronos (Original Mix)
+04 - Cathy Burton - Reach Out To Me (Chris Schweizer Dub)
+05 - Tigran Oganezov - Brainbug (Original Mix)
+06 - DJ Madwave & Steve Sanders - Nooza (Damian Wasse Remix)
+07 - DJ Munder - Fly Away (Original Mix)
+08 - Solis & Mike Danis - Eleven (Broning Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:26:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BAC93CD6D03698C38D3E84767DB6A8A50A8B8CE
+magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,26 +452,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626167   (241042) от 13.04.2023
+###  Публикация: 471016   (97276) от 20.03.2012
 
-MailWasher Pro 7.12.130 RePack (& Portable) by elchupacabra [Multi/Ru]
+[Wallpapers] Flower Wallpapers Pack 2
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241042.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MailWasher Pro позволяет пользователям просматривать письма, находящиеся на различных почтовых аккаунтах, перед тем, как скачать их себе на компьютер. Благодаря MailWasher Pro вы сможете удалить или вернуть ненужные письма обратно отправителю с сообщением о том, что адресат неизвестен.
-MailWasher Pro включает антивирусную защиту, обеспечивает доступ по POP3, IMAP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+[Wallpapers] Flower Wallpapers Pack 2
+Название: Flower Wallpapers Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD03B60C5738928F7EBED0680C65F839D88ACB6D
+magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,26 +482,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462361   (241032) от 14.04.2021
+###  Публикация: 470623   (97275) от 20.03.2012
 
-DjVu Reader Pro 2.4.8 [Ru/En]
+[Wallpapers] Best HD Wallpapers Pack (19.03.12)
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241032.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DjVu Reader Pro предельно простое в использовании приложение, которое не перегружено лишними функциями, позволяя полностью сосредоточиться на чтении книги. Приложение поддерживает индексы страниц и содержания. Для быстрой навигации предусмотрена панель с миниатюрами страниц. Есть возможность масштабирования страниц.
-В целом, DjVu Reader Pro это отличная читалка книг (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2021Разработчик: FirmShell LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский и Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1EF645C9700B344839D38D6BA51D3DA56ED553B
+magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +508,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626137   (241031) от 13.04.2023
+###  Публикация: 470678   (97274) от 20.03.2012
 
-NetLimiter 5.2.4.0 (x64) RePack by KpoJIuK [Multi/Ru]
+Overkill - The Electric Age (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241031.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NetLimiter - программа, решающая проблему контроля сетевого трафика. NetLimiter следит за деятельностью каждого приложения, использующего доступ к Интернету, а также активно управляет трафиком, контролируя скорость потока данных. Вы можете самостоятельно настроить скорость загрузки и отправки информации для каждого отдельного приложения или соединения. Таким образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Come And Get It (6:18)
+02. Electric Rattlesnake (6:20)
+03. Wish You Were Dead (4:19)
+04. Black Daze (3:55)
+05. Save Yourself (3:44)
+06. Drop The Hammer Down (6:25)
+07. 21ST Century Man (4:13)
+08. Old Wounds, New Scars (4:12)
+09. All Over But The Shouting (5:30)
+10. Good Night (5:37)2012Жанр: Thrash MetalПродолжительность: 00:50:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB60304EF225C10B1169F3197AF30B289D3D18F0
+magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +543,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544830   (241030) от 17.04.2022
+###  Публикация: 469652   (97272) от 20.03.2012
 
-Adobe Photoshop Lightroom Classic 11.3.0.9 RePack by KpoJIuK [Multi/Ru]
+Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Listening, Swing, Latin>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241030.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Boquita pintada
+02. Mujer que te peinas
+03. Bas-Aut
+04. A donde vas?
+05. La Lupita
+06. El loco Igor
+07. El vals del circo
+08. El sonador
+09. Balcarce
+10. Madre querida(   Читать дальше...   )Жанр: Ethnic Jazz, Easy Listening, Swing, LatinПродолжительность: 00:55:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6670786F5B15C6F8A4AA966E518F2DEFAF3B471E
+magnet:?xt=urn:btih:E2E15F6F4563F55DD8D74854344A64B918B437CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,27 +578,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626203   (241021) от 13.04.2023
+###  Публикация: 471007   (97268) от 20.03.2012
 
-Opera GX 97.0.4719.79 + Portable [Multi/Ru]
+[Wallpapers] HD Pictures №2
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241021.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+[Wallpapers] HD Pictures №2
+Название: HD Pictures №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CDD9F48FA9B8771CF71E6B9322352947F538F3D
+magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +608,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545043   (241010) от 17.04.2022
+###  Публикация: 471029   (97267) от 20.03.2012
 
-AIMP 5.02 build 2370 RePack (& Portable) by elchupacabra [Multi/Ru]
+[Wallpapers] Mixed Wallpapers (21.03.12)
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241010.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E29671DF2881BF690F7300F706C906A9B9CB570D
+magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +634,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395814   (241004) от 12.07.2020
+###  Публикация: 471008   (97266) от 20.03.2012
 
-Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 32-й тур. Вильярреал — Валенсия (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+[Wallpapers] HD Wallpapers Pack 3
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241004.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 32-й тур
-Вильярреал (Вильярреал) — Валенсия (Валенсия)
-Стадион: Керамика - Эль-Мадригал (Вильярреал, Испания), вместимость: 25000
-Главный судья: Хосе Луис Гонсалес Гонсалес (Испания);(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:32
+[Wallpapers] HD Wallpapers Pack 3
+Название: HD Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7127F987097F2ECA5F87F3554CC839AB62CB2463
+magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +664,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626128   (240997) от 13.04.2023
+###  Публикация: 470987   (97265) от 20.03.2012
 
-GPU Caps Viewer 1.59.0.0 + Portable [En]
+[Wallpapers] HD Pictures №1
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240997.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+[Wallpapers] HD Pictures №1
+Название: HD Pictures №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:083881F4F1BF4CBA6948934F242D99EE164196AF
+magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +694,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395788   (240991) от 12.07.2020
+###  Публикация: 470988   (97264) от 20.03.2012
 
-Футбол. Английская Премьер-лига. Чемпионат Англии 2019-2020. 33-й тур. Ливерпуль — Астон Вилла (2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+[Wallpapers] Nature Pictures №32
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240991.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Английская Премьер-лига. Чемпионат Англии 2019-2020. 33-й тур.
-05 июля 2020, воскресенье. 18:30 МСК
-Ливерпуль (Ливерпуль) — Астон Вилла (Бирмингем)
-Стадион: Энфилд (Ливерпуль, Англия), вместимость: 54074(   Читать дальше...   )Телекомпания: Okko СпортЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:58:44
+[Wallpapers] Nature Pictures №32
+Название: Nature Pictures №32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FCF473B13EF92006D5FB2E3AA8E147B65009EB8
+magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,132 +724,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636233   (240990) от 29.05.2023
+###  Публикация: 470164   (97263) от 20.03.2012
 
-NIUBI Partition Editor 9.6.0 Pro - Unlimited - Technician Edition RePack (& Portable) by TryRooM [Multi/Ru]
+VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240990.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1. Zyce & Flegma - Afterglow (8:41)
+2. Cabal - The sacred Spirit (7:38)
+3. Aquafeel - GloryLand (6:43)
+4. Aqualize - Land of 2 Suns (7:51)
+5. Audioload - Way Out (7:42)
+6. Andromeda - Sensation (Aquafeel RMX) (6:32)
+7. Time in Motion - Colour (8:07)
+8. Progenitor - Typical Human Behaviour (8:18)
+9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECE90338C4C5FA90431F5F068F785529808F3493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544898   (240988) от 17.04.2022
-
-Adobe Substance 3D Painter 7.4.3 Build 1608 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа содержит различные инструменты, которые позволят создавать текстуры 3D-ресурсов, от сложных кистей до интеллектуальных материалов, которые автоматически адаптируются к вашей модели. Вдохните жизнь в свое искусство. Substance 3D Painter широко используется в производстве игр и фильмов, а также в сфере проектирования товаров, в модной индустрии и архитектуре. (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB430E669BD84801B4A75E4E3CA78AB91EE0775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626281   (240987) от 13.04.2023
-
-Opera Crypto Browser 97.0.4719.81 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер Opera Crypto Browser является современным браузером, поддерживающим актуальные веб-технологии для работы с любыми сайтами, онлайн-сервисами и веб-приложениями. Уникальностью браузера является поддержка технологий Web3, которые позволяют воспользоваться новейшими функциями и преимуществами нового поколения интернета.
-Встроенный крипто-кошелек позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0EE4863C2683115216EFCF1CA3CF167A3A5261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636245   (240986) от 29.05.2023
-
-VueScan Pro 9.8.02 (28.05.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240986.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95B135E5CDD53CDF1CC921084BA5AA8F840019A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462787   (240973) от 16.04.2021
-
-Marked 2 v2.6.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
-Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: Brett TerpstraПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94985E3575A502A73DCF3EC06B649AAE63857D70
+magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 ```
 
 https://mybot314.ru/tekegram_catalog/

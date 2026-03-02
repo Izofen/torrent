@@ -1,3 +1,31 @@
+###  Публикация: 1235383   (560375) от 11.07.2018
+
+Векторный клипарт - Fresh juices fruits and berries in vector [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Свежие соки фрукты и ягоды
+26 AI, EPS + previewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9B0FE8E70DA489E2AC4D364F9B7C91057E8F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235370   (560367) от 11.07.2018
 
 Векторный клипарт - Floral Borders Elements Set 60 [AI]
@@ -663,34 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:171ACD3F944DEDE9721C3696E0AE5E6371BCE46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235530   (558665) от 12.07.2018
-
-Векторный клипарт - Vector Architecture Collection #1 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Архитектура
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5DF62724826524457D033AEE5C4E098E3D5245
 ```
 
 https://mybot314.ru/tekegram_catalog/

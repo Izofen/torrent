@@ -1,3 +1,346 @@
+###  Публикация: 961705   (298912) от 02.12.2015
+
+Scatman John - Take Your Time (1999) [FLAC|tracks+.cue]<Euro House, Jazzdance, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Your Time (3:39)
+02. Scatman's Dance (3:25)
+03. The Chickadee Song (3:25)
+04. Take Me Away (3:54)(   Читать дальше...   )Жанр: Euro House, Jazzdance, DiscoПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB78287FB6BD23AB07BB59B5543CC8BB2085569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261914   (298875) от 13.11.2018
+
+F-Act - Detuned World (2018) Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detuned World (Original Mix) (10:04)
+02. Puzzle (Original Mix)             (08:38)Жанр: Progressive HouseПродолжительность: 00:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D17BE3CC1FD64F379491E4BAD16D10EF02EFF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334138   (298867) от 27.10.2019
+
+Lane 8 - Little by Little (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Captain (Dirty South Remix) (5:47)
+ 02. Stir Me Up (Khåen Remix) (5:20)
+ 03. Stir Me Up (Ryan Murgatroyd Remix) (4:16)
+ 04. Daya (Fairchild Remix) (7:05)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBB651B873DD184624746583C42850C03D0C572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334081   (298844) от 27.10.2019
+
+Yotto - Hyperfall (Remixed) (2019) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me Out (Anja Schneider Remix) (3:25)
+ 02. Hear Me Out (Kevin de Vries Remix) (4:05)
+ 03. Turn It Around (Monkey Safari Remix) (3:46)
+ 04. Kantsu (Chloé Remix) (4:35)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0097C44AA275C4E29366C9F2405B7C6161CB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262084   (298758) от 13.11.2018
+
+Eelke Kleijn - Maschine (2018) DAYS like NIGHTS [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maschine 1.0 (04:55)
+02. Maschine 2.0 (04:40)
+03. Maschine 1.0 (Extended Mix) (08:06)
+04. Maschine 2.0 (Extended Mix) (06:42)Жанр: Progressive HouseПродолжительность: 00:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955E0ACEF4F07BAC6F7973C2219DE66D4DED48A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961694   (298629) от 02.12.2015
+
+Snap! - This Is Snap! (2001) [FLAC|tracks+.cue]<Hip-House, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power (original 7') (3:49)
+02. Keep It Up (4:03)
+03. Welcome to Tomorrow (Are You Ready?) (4:15)
+04. Mary Had a Little Boy (radio edit) (3:41)(   Читать дальше...   )Жанр: Hip-House, Euro HouseПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAF3F75557A8D875ADEC78C9E41E714009C42DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175095   (298595) от 13.11.2018
+
+Kiasmos - Discography 9 Releases (2009-2018) Erased Tapes Records [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Tech House, Modern Classical, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zebra (03:43)Тип издания: CD, WebЖанр: Tech House/Modern ClassicalПродолжительность: 00:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A13744B1D2566ADA9461393483699EA04B0D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078932   (298063) от 02.12.2016
+
+Deadmau5 - W:/2016ALBUM/ (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4ware (08:39)
+02. 2448 (06:25)
+03. Cat Thruster (05:36)
+04. Deus Ex Machina (06:31)(   Читать дальше...   )Жанр: Electro House, Progressive House, DowntempoПродолжительность: 01:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B07E080D4A2A2A2F7230F7821C3893BD21609A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262319   (296964) от 14.11.2018
+
+Miami Disco Boys Club - Music to Make You Feel Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Head Spins (06:02)
+02. How You Feeling (05:31)
+03. Everything Has Changed (04:05)
+04. Never Meant To Hurt U (04:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39743264EDB7179A03D8CB0F5F9A099A409908B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334236   (296924) от 28.10.2019
+
+VA - Progressive Onrush III (2019) [FLAC|Lossless|WEB|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8Kays - Playa Conte (Original Mix) (5:44)
+02. Serge Landar - Centurion (Paul Angelo & Don Argento Remix) (7:07)
+03. Philthy Chit - Suena (Alfonso Muchacho Remix) (7:18)
+04. Basil O'Glue - The Sun Will Rise Again (Solid Stone Remix) (6:57)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F530C9ECA0C939C6B04FF954404080DB74C951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334244   (296816) от 28.10.2019
+
+VA - Sun:Sets 2019 (Selected by Chicane) (2019) [FLAC|Lossless|WEB|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - No Ordinary Morning (Thomas Datt Remix) (5:01)
+02. Andrew Bayer feat. Alison May - End Of All Things (3:17)
+03. Chicane - Fear I Must First Let You Go (5:17)
+04. DNKNN - Melodyne (2:55)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2659645ED7C436D0F794274E778732577B14DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079076   (295850) от 03.12.2016
+
+VA - 538 Dance Smash: Hits Of The Year (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Dance, Pop, House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приближается конец 2016 года. Ну и, конечно, все начинают подводить итоги уходящего года. Вот радиостанция 538 и собрала вместе все лучшие танцевальные и клубные хиты уходящего года. Здесь Вы можете услышать лучшие треки таких мэтров как Armin van Buuren, The Chainsmokers и Afrojack. С Наступающим!CD1
+01. Fais feat. Afrojack - Hey  (3:34)
+02. The Chainsmokers feat. Halsey - Closer  (4:04)
+03. Major Lazer feat. Justin Bieber & MO - Cold Water  (3:05)(   Читать дальше...   )Жанр: Dance, Pop, House, ElectronicПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7F72775F78A06354497B2EFFB07874F67B4A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185184   (295218) от 20.11.2017
 
 VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -386,354 +729,6 @@ VA - Rock the Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B285E35FF03D65626B9FF64E5D0A298B9350E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263016   (291406) от 17.11.2018
-
-Rompasso - Angetenar (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angetenar (06:06)
-02. Isida (04:42)
-03. Vice Versa (04:46)
-04. Gaillardia (05:35)(   Читать дальше...   )Жанр: Electronic, House, Deep HouseПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F61934C2203D3E59E9F07825EAA81CA142FE6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262794   (291392) от 17.11.2018
-
-Deadmau5 - mau5ville: Level 2 (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trap, Glitch>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drama Free (feat. LIGHTS) (3:11)
- 02. Drama Free (Chris Lorenzo Remix) (feat. LIGHTS) (3:32)
- 03. 10.8 (5:36)
- 04. GG (8:30)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trap, GlitchПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1951360247A9281E6023DC45FB266D66F4A07502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848392   (289848) от 08.12.2014
-
-VA - 538 Dance Smash Hits Of The Year (2014) 3CD[FLAC|Lossless]<House,  Dance, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нидерландская радиостанция Radio 538 довольно активно выпускает диски по страницам своих хит-листингов. Достаточно полно представлены эти хиты и на нашем трекере.
-Один из последних сборников по традиции собрал все самое интересное за 2014 год.CD1:
-01. Lilly Wood & The Prick and Robin Schulz - Prayer In C  (3:10)
-02. Oliver Heldens - Gecko  (2:45)
-03. Calvin Harris feat. John Newman - Blame  (3:26)(   Читать дальше...   )Жанр: House, Dance, TranceПродолжительность: 03:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A5AB498E8FE09308DCE34EEBD8E7DE39DD6F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186094   (289526) от 23.11.2017
-
-Purple Disco Machine - Soulmatic (2017) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Lorenz Rhode - Music in You (4:31)
-02. Purple Disco Machine - Body Funk (4:17)
-03. Purple Disco Machine & Boris Dlugosch feat. Karen Harding - Love for Days (3:16)
-04. Purple Disco Machine feat. CeeLo Green - Pray for Me (5:42)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7B661BEDCF51EB034C6B9601BC3A7CD9233C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263610   (288266) от 19.11.2018
-
-Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emphasis (Original Mix)                                         [08:43]
-02. Emphasis (Torby Jay Remix)                                      [06:27]
-03. Sunbright (Original Mix)                                        [08:03]
-04. Sunbright (Julian Nates Remix)                                  [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263579   (288264) от 19.11.2018
-
-Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (Original Mix)[08:10]
-02. S.O.S. (GSEP Remix)[09:00]
-03. S.O.S. (Gabriel Amato Remix)[07:25]
-04. Wasnt Waiting For This (Original Mix)[07:59](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263589   (288263) от 19.11.2018
-
-Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katharsys (Original Mix)                                        [08:40]
-02. Katharsys (Jackie Mayden Remix)                                 [07:40]
-03. Katharsys (NikoChristo and Synas Remix)                         [09:06]
-04. Katharsys (Ricardo Piedra Remix)                                [07:52]Жанр: Progressive HouseПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263599   (288262) от 19.11.2018
-
-Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parodi (Original Mix)                                           [08:41]
-02. Parodi (Spacebeat Remix)                                        [08:31]
-03. Simbal (Original Mix)                                           [08:00]
-04. Simbal (Paul Sawyer Remix)                                      [08:06](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1264ECA5B86EDD5E9EB95BCF995F7EA7302123E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263594   (288258) от 19.11.2018
-
-Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol One (Original Mix)                                          [08:35]
-02. Sol One (Magnovis Remix)                                        [07:46]
-03. Sol One (Willscape Remix)                                       [07:44]Жанр: Progressive HouseПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B021CBD29E21C813F117358A74AAF7FED9D2BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263468   (288129) от 19.11.2018
-
-VA - Dub Techno Moments VA (2018) GOS Music Studio [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno, Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volunteer - Selfreflection (13:26)
- 02. Atimpuri - A@4 (Specdub Chillout Rmx) (04:58)
- 03. Tender H - Prism (05:53)
- 04. Substak - Vici (05:15)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Techno, Minimal, Tech HouseПродолжительность: 02:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A3ED328FEA4192C804F62A996E30F4F7692895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335458   (287890) от 02.11.2019
-
-Peel Seamus - Susurro (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valve POD (03:02)
- 02. Absence In Reality (02:09)
- 03. Strawberry Hills (04:00)
- 04. Black Mesa (02:31)(   Читать дальше...   )Жанр: Techno, Detroit Techno, Techno AmbientПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB89316825FDAED658C10B92E37C96BAFB051B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963573   (287445) от 08.12.2015
-
-VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<Minimal, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD1 (76:02)
-02. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD2 (67:20)
-03. Various Artists - Live In South Beach (mixed by John Digweed) Continuous Mix CD3 (77:51)
-04. Zulu - Gardens Of God (Original Mix) (07:40)(   Читать дальше...   )Жанр: Minimal, Progressive House, Tech HouseПродолжительность: 08:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A836B73BD0DAF24FC248EB42C194972DB35627D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

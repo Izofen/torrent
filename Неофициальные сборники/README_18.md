@@ -1,3 +1,206 @@
+###  Публикация: 1447721   (1031623) от 14.02.2021
+
+VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы в поисках приятного настроя, активного ритма и отменных звуков, то сборник «Instrumental Jazz Palette» представит всю палитру Ваших музыкальных желаний. Композиции лонгплея это великолепная смесь, обладающая воздушностью фанка, мелодичностью соула и экспрессией джаза.001. Jarmo Nikku - Just A Little Bit
+002. Nubya Garcia - Together Is A Beautiful Place To Be
+003. Wayne Escoffery - Quarter Moon
+004. Mark De Clive-Lowe - Esss(   Читать дальше...   )Жанр: Jazz, Smooth, InstrumentalПродолжительность: 08:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447719   (1031593) от 14.02.2021
+
+VA - Neo Traditional Country (2021) [MP3|320 Kbps] <Country, Folk Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Neo Traditional Country" придётся по душе большинству любителей народной музыки, и в частности тем слушателям, которым нравится мягкая, раздумчивая и иногда даже плавная музыка, но не лишенная характера и американской изюминки.001. Luke Bryan - Where Are We Goin'
+002. Steve Earle - The Mine
+003. Eileen Rose - She's Gone
+004. Kane Brown - Bfe(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 09:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5156EB598E3AB89F716828E0DDA7554D1C0AF99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447647   (1031550) от 14.02.2021
+
+VA - Rock Drive 12 (2020) от DON Music (2020) [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miguel Montalban - True Lies
+02. Joe Bonamassa - Royal Tea
+03. Alastair Greene - Living Today
+04. U.D.O. & Das Musikkorps Der Bundeswehr - Mother Earth(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3FD6106A14015C12C971CA7BD5BF0E6B73539C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448111   (1031183) от 16.02.2021
+
+VA - Fantasmagoria (2021) [MP3|320 Kbps] <Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квинтэссенция драйва и энергетического магнетизма в сборнике "Fantasmagoria". Эта музыка как ветер — существует с нами и без нас. Её нельзя приручить, но можно наслаждаться её порывами.01. Frostbite - Midnight Simulation
+02. Alex Wright - Warp Rider
+03. Alter3d Perception - Take Your Spacetime
+04. Arkam - Black Adam(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 08:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0A28B84EC32F9A4ACE16F3B792CB5D9B6FD906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448109   (1031181) от 16.02.2021
+
+VA - Beatport Trance: Electro Sound Pack #242 (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная музыка в стиле транса будет сопутствовать Вам на протяжении всего сборника от Beatport. Очередной 242-й релиз наполнен огромным количеством неподражаемых звуков, родом из самых разнообразных направлений этого стиля. Каждый трек, это словно индивидуальная история, со своими героями, со своим замыслом, радостями и печалями.т001. Alikast And Nick V - Straight To Heaven
+002. Punk Diplomacy - Antarctica
+003. Andy Moor & Somna - More Than Love
+004. Fischer & Miethigardao - Far Above The Cloud(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 08:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2734B5FD22F3883B6A9A010849461183973001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448108   (1031171) от 16.02.2021
+
+VA - Beatport Deep House: Electro Sound Pack #239 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Beatport популярен во всех странах и отличается тем, что постоянно транслирует только самые свежие, качественные и оригинальные композиции в исполнении талантливых исполнителей. В сборнике вас ждет 100 популярных композиций в коммерческом жанре Deep House с направленностью на ритмичный бит и энергетику танца. С такой музыкой всегда встретишь хорошее утро и (   Читать дальше...   )001. Nocui - Learn How To Love
+002. Fresen - Forest Rain
+003. Øyvind - Light
+004. Fuenka - Vega (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C673615FEE6F9739FF7A55143F9B2FBBF49206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448115   (1031156) от 16.02.2021
+
+VA - Weightless Rain (2021) [MP3|320 Kbps] <Chillout, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрешитесь от суеты и растворитесь в мелодиях прекрасной музыки музыкального сборника с говорящем о себе названии "The Weightless Rain". Музыка проникающая глубоко в душу, порождающая невесомые, благородные чувства, дозволяя не только наслаждаться звуком музыкальных инструментов, но и осознать всю свою жизнь, излечить сердце, забыть о суете и погрузиться (   Читать дальше...   )001. Byron The Aquarius - End Of Time
+002. Rue - Eva
+003. Lin Q - Fall In Love Again
+004. Addex - Spiral(   Читать дальше...   )Жанр: Chillout, Chill HouseПродолжительность: 11:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73160A44ABA2F96913A93307CF4026C0CAEB334F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448114   (1031151) от 16.02.2021
 
 VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -542,209 +745,6 @@ VA - Hip-Hop Street Dance (Vol.07) (2021) [MP3|320 Kbps] <Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A293DEEB4AA332F7F40AC970062E539A77CF37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449745   (1029525) от 23.02.2021
-
-VA - 23 февраля: Страна (2021) [MP3|~245 Kbps (V0)] <Поп, рок, шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #Крутовокруг - 23 февраля, 8 марта (2:59)
-02. Фактор 2 - Афганистан (3:05)
-03. FM - Страна (3:12)
-04. Стас Экстаз - 23 февраля (3:02)(   Читать дальше...   )Жанр: Поп, рок, шансонПродолжительность: 03:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F178003995C5425846519245EBEA8138574CC11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449710   (1029520) от 23.02.2021
-
-VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Might Just Take Your Life (Remastered 2005)
-02. The Lachy Doley Group - Make or Break
-03. Santana - Oye Como Va
-04. Glenn Hughes - Steady(   Читать дальше...   )Жанр: Rock, HammondПродолжительность: 04:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FCE9F75BF1D4177F9DDA659420105E09AE2AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449904   (1029515) от 23.02.2021
-
-VA - 23 февраля: За пацанов (2021) [MP3|~245 Kbps (V0)] <Шансон, поп>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arton - Русская душа (2:22)
-02. Виталий Сухов - Закадычные друзья (3:38)
-03. Александр Блик - Соточка (2:48)
-04. Александр Дюмин - Друзья (3:17)(   Читать дальше...   )Жанр: Шансон, попПродолжительность: 03:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C396AB7B649B639B6169F77DC230047E485EBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449702   (1029511) от 23.02.2021
-
-VA - Громкие новинки Февраля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сплин - Вирус (4:39)
-02. Земфира - остин (4:29)
-03. J Balvin, Karol G, Anuel Aa - LOCATION (4:25)
-04. Cream Soda, Лауд - Магия (4:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A04AE94EE10676A28FBB1EC0436314727329B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449946   (1029484) от 23.02.2021
-
-VA - Не за горами весна Vol.3 (2021) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алексей Лунд - Друзьям (5:53)
-02. Александр Росс - Хмель (4:57)
-03. Аслан Кятов - Хулиган (4:55)
-04. Владимир Ждамиров - Я поцелуем выпью твои слёзы (4:52)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A3CA49DADB97E2B33CC82FF4F70B15A4C6A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623373   (1029403) от 01.04.2023
-
-Plvtina - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnotic
-02. One Love
-03. Fly
-04. Rine(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CF198B246FF32D3AEC68F15481C3390D569F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623263   (1029398) от 01.04.2023
-
-VA - Anos 70 - Internacional (2023) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029398.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Earth, Wind & Fire - September [03:35]
-002. Michael Jackson - Don't Stop 'Til You Get Enough [05:51]
-003. Elvis Presley - Suspicious Minds [04:29]
-004. Redbone - Come and Get Your Love (Single Version) [03:26](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 07:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AAA42C597DC890CC2DCBD2994E3B71BEB52882
 ```
 
 https://mybot314.ru/tekegram_catalog/

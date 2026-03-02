@@ -1,22 +1,25 @@
-###  Публикация: 1777734   (71029) от 06.02.2025
+###  Публикация: 1776075   (71335) от 30.01.2025
 
-Firefox Browser 135.0 Portable by PortableApps [Ru]
+Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71029.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+01. Big Foot [5:32]
+02. I'll Remember April [11:12]
+03. Donna Lee [6:50]
+04. Chasing the Bird [9:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:218641D1B1580D1B835D8F2EF755F374093BE46E
+magnet:?xt=urn:btih:210C9DF86B01886E32D5DD78562A04ACDBDB9130
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777739   (71028) от 06.02.2025
+###  Публикация: 1776076   (71334) от 30.01.2025
 
-Happy Color® – игра раскраска v2.17.7 Mod by vadj [Ru/Multi]
+Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Latin Jazz, Guitar Jazz>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71028.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Happy Color — самая популярная и излюбленная бесплатная игра-раскраска. В ней вы можете найти тысячи изображений на любой вкус — природа, искусство, спорт, автомобили, фэнтези, мода, интерьеры и многое другое! Happy Color делает жизнь людей ярче во всем мире! Эта раскраска — залог хорошего настроения. Раскрашивание по номерам с Happy Color — это успокаивающее и легкое (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.02.2025Разработчик: X-FLOWПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+01. Corcovado [6:22]
+02. Tears (Razao de Viver) [3:34]
+03. Wave [9:08]
+04. Voce (You) [3:13](   Читать дальше...   )Жанр: Bop, Latin Jazz, Guitar JazzПродолжительность: 00:51:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A15AEC79A4D7AAF86F16D246BD0D78AE519E55E9
+magnet:?xt=urn:btih:93D79C10079B2B4729A8965BA17D3E410953F0FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777495   (71027) от 06.02.2025
+###  Публикация: 1776080   (71333) от 30.01.2025
 
-Растровый клипарт - Resource Boy - 1000+ Ransom Note Letters [PNG]
+Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar Records [FLAC|Lossless|tracks + .cue] <Cool>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71027.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный алфавит-латиница с дополнительными знаками препинания и прочими значками в нескольких вариациях. Материал раздается с официальной документацией.Разработчик: Resource BoyФормат: PNGРазрешение файлов: 4000 x 2659 - 239 x 1000
+01. Introduction by Gene Krupa [0:47]
+02. As Catch Can [7:07]
+03. I Can't Get Started [9:51]
+04. Just in Time [6:53](   Читать дальше...   )Жанр: CoolПродолжительность: 01:15:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:858B8272D8D58E2725A7134916C83545F8D82402
+magnet:?xt=urn:btih:2FEDEA5DF29ECDE32BAC73341AC8CE11FAA15D89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777500   (71026) от 06.02.2025
+###  Публикация: 1776082   (71332) от 30.01.2025
 
-Журнал | Homebuilding & Renovating №2 (2025) [PDF][EN]
+Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks + .cue] <Smooth Jazz, World Fusion>
 
->>Журналы
->>Домоводство (журналы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71026.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
+01. Ve que (Coming Home) [6:15]
+02. Nguoc dong Huong Giang (Going Up Stream the Perfumed River) [4:36]
+03. Chi toi (My Lovely Sister) [7:23]
+04. Chi toi (My Lovely Sister) [5:36](   Читать дальше...   )Жанр: Smooth Jazz, World FusionПродолжительность: 00:51:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB5C1893311A80F96BDBFAD9167B1F0ACF595E79
+magnet:?xt=urn:btih:BAA50DBBA8CB07C8FFE3DD40FA8CFE72757D0921
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777424   (71025) от 06.02.2025
+###  Публикация: 1776079   (71331) от 30.01.2025
 
-Растровый клипарт - Resource Boy - 60 Barbed Wire Textures [PNG]
+Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71025.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные текстуры под колючую проволоку. Материал раздаётся с официальной документацией.Разработчик: Resource BoyФормат: PNGРазрешение файлов: 7680 x 4320
+01. Going There [6:12]
+02. In the Interim [4:25]
+03. This Is My Song [3:09]
+04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3617D1F3E21EA33E17C0EF6122A4670A1816650A
+magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,28 +143,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777471   (71024) от 06.02.2025
+###  Публикация: 1776003   (71330) от 30.01.2025
 
-VA - Kontor Top of the Clubs (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Король моды / Il re della moda (1914) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая забавная история. Фильм антикварный, а тема вполне себе современная. Простая семейная пара из деревни выиграла в лотерею. Как говорится,  деньги есть - в ресторан ходить не запретишь. Вот и решили наши герои приобщиться к культуре и поехали в город. А в городе-то, не как в деревне, все по-другому. И наряды, и манеры. В городе за модой следят. Вот они там (   Читать дальше...   )Производство: Италия / Società Italiana CinesЖанр: короткометражный, комедия, немое киноРежиссер: нет сведенийАктеры: Джузеппе Гамбарделла, Лоренцо СодериниПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BD8F49EC68515BAC89E476F521D4963A5C0346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776164   (71329) от 30.01.2025
+
+VA - Nothing But... Trancetopia Vol. 22 (2025) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71024.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leony, G-Eazy & Felix Jaehn - By Your Side (In My Mind) Part II (02:43)
-02. Morgan Seatree & Florence + The Machine - Say My Name (Remix) (02:48)
-03. Tiscore; Future Breeze - Guide Me Home (02:37)
-04. Klaas & Neptunica - Chewing Gum (02:14)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:49:11
+01. George Romero - The Light (Original Mix) [3:31]
+02. Harlam - Venus Proyect (Sam Fletcher Remix) [6:42]
+03. CO1N & Fros7novA - Purifaction (Extended Mix) [6:14]
+04. FAWZY - Breaking Boundaries (W!SS Extended Remix) [6:58](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B88EC39F652CE95459416D1D907D2E371A9B39CA
+magnet:?xt=urn:btih:284F585C4379A0BE2D35ADDC9E08DE10DDC75264
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,347 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777720   (71023) от 06.02.2025
+###  Публикация: 1776178   (71328) от 30.01.2025
 
-К.В. Градова | Театральный костюм. Книга 2. Мужской костюм (1987) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга об историческом театральном мужском костюме написана, во-первых, как вторая часть книги «Театральный костюм», а во-вторых, потому, что работ о мужском костюме, как театральном, так и историческом, нет, если не считать нескольких брошюр по отдельным небольшим разделам, которые носили более или менее случайный характер и давно стали библиографической редкостью. (   Читать дальше...   )Жанр: Мода и стильИздательство: Союз театральных деятелей РСФСРФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935B118671B4A284FD5A0FC34DD661A8647ECE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777393   (71022) от 06.02.2025
-
-Пресеты - DVLOP – Eric Floberg – 606 Presets [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет предустановок разработан, чтобы быть простым. Он включает в себя три различных предустановки для использования с вашими фотографиями. «Ravenswood» даст вам реалистичные цвета и контраст в качестве основы. Это мое решение в один клик для большинства свадебных галерей. «Belmont» предназначен для сценариев, где вы хотели бы немного больше поэкспериментировать (   Читать дальше...   )Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95693C020C8F94E568566FD678658170FEA7803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777736   (71021) от 06.02.2025
-
-Firefox Browser ESR 128.7.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6011376A592632EA1B92D94F46BB18FCF19377E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777465   (71020) от 06.02.2025
-
-Шрифты - Nice - Playful Retro Font [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nice — игривый ретро-шрифт, который излучает радость и тепло винтажной эпохи. Сочетая классические ретро-элементы с современным оттенком, этот шрифт предлагает веселую и захватывающую атмосферу. Идеально подходит для проектов, требующих яркой, фанковой и радостной атмосферы.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B1EE5D8FE664E4AF1E8B54E1D9A78C72444540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777615   (71019) от 06.02.2025
-
-YT Downloader 9.11.20 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71019.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784631641C82BDA353E74EC3522BD8E41FA308A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777520   (71018) от 06.02.2025
-
-Текстуры - Resource Boy - 250 Fireworks Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные текстуры в виде фейерверка. Материал раздаётся с официальной документацией.Разработчик: Resource BoyФормат: JPGРазрешение файлов: 3558 x 3558 - 6272 x 3008
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA55E2D87CECF7D1CFE467804762FC68254CFBFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777503   (71017) от 06.02.2025
-
-Растровый клипарт - Resource Boy - 500+ Jungle Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные орнаменты в виде джунглей. Материал раздается с официальной документацией.Разработчик: Resource BoyФормат: JPGРазрешение файлов: 1024 x 1024
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33D3CBF6C206212107524836635AC9CE4369660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777514   (71016) от 06.02.2025
-
-Журнал | Homebuilding & Renovating №3 (2025) [PDF][EN]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6C361CC25101721A3366EB5D727BA6F3FC9E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777448   (71015) от 06.02.2025
-
-Журнал | Linux Format №325 (март 2025) [PDF][EN]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8125CCC0580E2ECA72B03BB112CDD457CDD45C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777413   (71014) от 06.02.2025
-
-Шрифты - Sia Vrublevskaya - Behance - Feature Mono - 213191701 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Разработчик: Sia VrublevskayaФормат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79916072401C835A089B3D723B231C024C0E94BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777528   (71013) от 06.02.2025
-
-Heiri Kanzig & Michael Zisman - Lost & Found (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bass Song (5:02)
-02.  Quem Disse (3:22)
-03.  Children's Song (5:07)
-04.  Vivo Sonhando (5:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BFF4EA68CC304FADE33FD5C909B689A89FC38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777594   (71012) от 06.02.2025
-
-Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Empty Pool (3:51)
-02.  Samphire (7:04)
-03.  Riverman (6:08)
-04.  Ezéquiel Célada - Apple Tree (5:38)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160A0756E4105CBEC09EFBA7017008D68386BF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777478   (71011) от 06.02.2025
-
-Shannon Ames - Bohemian Dreams (2004) [FLAC|Lossless|image + .cue] <Folk-Rock>
+Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Instrumental>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71011.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brother Keeper    [0:04:09.05]
-02. It's Alright    [0:03:59.04]
-03. Full Sail    [0:04:33.51]
-04. The Right Side    [0:03:46.01](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:47:24
+01. Looking for the Pusher (04:12)
+ 02. Macabro Suite (06:33)
+ 03. Le 4 A (06:29)
+ 04. Vestale (03:43)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, InstrumentalПродолжительность: 01:00:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:348364C29A936DC1AABF1066B10BCE54E3E1B564
+magnet:?xt=urn:btih:8D5217DBB7983D697FE9CC9C1A127EA5F44BFFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,28 +227,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777543   (71010) от 06.02.2025
+###  Публикация: 1776069   (71327) от 30.01.2025
 
-Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Журнал | Лечащий Врач (том 28) №1 (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BCF43759292BC9AB51EC82DEE0FBF657943F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776063   (71326) от 30.01.2025
+
+Газета | Мир Новостей №2(1620) (8 января 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71326.jpg" />
+</div>
+
+
+###  Подробнее
+
+В газете можно найти материалы практически на любую тему: о политике и экономике, о здоровье и садоводстве, о науке и о мире таинственного, непознанного. Советы врачей, психологов, экспертов по судебным делам, стилистов, косметологов, народных целителей - вот далеко не полный перечень того, что можно видеть на страницах "Мира новостей", тираж которого неизменно (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "Редакция газеты "Мир новостей"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F2AC674769A81D9327EF25CD45AC5F1725BC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776182   (71325) от 30.01.2025
+
+Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Fusion, Instrumental>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71010.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  On Swing Street (3:30)
-02.  Unforgettable Christmas (2:41)
-03.  Lucky In Love (2:35)
-04.  Moving Day (2:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:08
+01. Looking for the Pusher (04:12)
+02. Macabro Suite (06:33)
+03. Le 4 A (06:29)
+04. Vestale (03:43)(   Читать дальше...   )Жанр: Progressive Rock, Fusion, InstrumentalПродолжительность: 01:00:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F3A94040495F24F472990B46C3C6A8EC9B09D72
+magnet:?xt=urn:btih:F3F708C52AB2B956BC605E7CF3907E3EBC2E6957
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777713   (71009) от 06.02.2025
+###  Публикация: 1776189   (71324) от 30.01.2025
 
-To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+VA - The Sound of 2025, Chapter 1: Milan (Day Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71009.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Zen (4:39)
-02.  That Time Is Your Time (3:23)
-03.  Spin (3:22)
-04.  Why This Way (6:46)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:58
+01. Aviia - Omni (Original Mix - Mixed) (07:39)
+02. Tom Sommerson - Time Is Frozen (Original Mix - Mixed) (05:07)
+03. Arni - Look Around (Original Mix - Mixed) (04:05)
+04. Cosmonoise - Becoming (Original Mix - Mixed) (04:55)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76724FFDD5AEC79BF467FB56F80E931C35369BE1
+magnet:?xt=urn:btih:FC60412307B2502B5417FD0ECA5342C7E25DC87D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,28 +337,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777467   (71008) от 06.02.2025
+###  Публикация: 1776254   (71323) от 31.01.2025
 
-Thy Row - Unchained (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+VA - Armin van Buuren - A State Of Trance 1210 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani pres. Ottagon ft. Lake Silver – Dust
+02. MRPHLNDR – Mooger
+03. 8Kays & AURIN – Time Warp
+04. Armin van Buuren & Omnia – Love(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228477123CFF10D337EBF1436E5E3189424726D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776374   (71322) от 31.01.2025
+
+My Sweet Torment - The Order Of The Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71008.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Road Goes On
-02. The Round
-03. Unchained
-04. Horizons(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:55
+01. The Order Of The Shadows [00:08:09]
+02. REM [00:05:31]
+03. Dark Tranquility [00:05:28]
+04. Lifeless [00:06:32](   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:55:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3EF8F533CA232D6CA9590F09D9C445612B7060E
+magnet:?xt=urn:btih:D91EE1F82F09E387F13D2F8963A07E2B802ABF0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777714   (71007) от 06.02.2025
+###  Публикация: 1775484   (71321) от 31.01.2025
 
-VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71007.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Michael Wollny - Lady Madonna (4:14)
-02.  Tim Lefebvre - Tutto (5:12)
-03.  Joel Lyssarides - Stay Now (2:50)
-04.  Daniel García Trio - Gates to the Land of Wonders (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:15
+01. James Brown - Sex Machine
+02. Peoples Choice - Do It Anyway You Wanna
+03. Earth, Wind & Fire - Saturday Nite
+04. Emotions - Best Of My Love(   Читать дальше...   )Жанр: Electronic, Pop, Funk, DiscoПродолжительность: 01:17:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B70FFB3463D23A77ECFA1460BA14B63B20E8A530
+magnet:?xt=urn:btih:9AEC3A758557053B72E54BF57B59288194C639B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +424,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776516   (71006) от 06.02.2025
+###  Публикация: 1776278   (71320) от 31.01.2025
 
-Sharks - Live In Providence / The Car Crash Tapes (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Журнал | Вяжем крючком №11 (ноябрь 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F62E7E7205CD8685636B4AA156A38E764B7409D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776284   (71319) от 31.01.2025
+
+VA - Damaged Records Presents Frost (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordan Suckley - Power Surge (Extended Mix) (04:14)
+02. Jackob Roenald & Tymo White - Emergency Call (Extended Mix) (06:33)
+03. Jamie Walker - Good Time (Extended Mix) (06:15)
+04. Jordan Suckley - We Are Free (Extended Mix) (04:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3989C44E56401ADEDE1FD57A81A9914068F8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776279   (71318) от 31.01.2025
+
+Журнал | Вяжем крючком №12 (декабрь 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком для начинающих и опытных мастеров. В каждом выпуске журнала вы найдёте современные вязаные модели и аксессуары, подробные мастер-классы и новые узоры.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1B0CFFD84FB87591BEEE650290427344647424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776386   (71317) от 31.01.2025
+
+Марина Степнова | Женщины Лазаря (2022) [MP3, Марина Степнова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная сага длиною в столетие рассказывает об острых гранях любви между гениальным учёным и тремя женщинами его жизни.Жанр: современная русская литератураИздательство: ВимбоПродолжительность: 15:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A121184355ACAA0B39E2D126DE183AAD88D11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776277   (71316) от 31.01.2025
+
+VA - Top 20 January 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arsen & Cyan - Fall Again (Extended Mix) [6:44]
+02. Mata - Tree (Extended Mix) [6:14]
+03. Jacoob - Fiction (Extended Mix) [5:39]
+04. MORZO - Time Keeps Moving (Extended Mix) [4:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D7A13DF57044171817BC14097A2A490DC1BBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776393   (71315) от 31.01.2025
+
+On Atlas' Shoulders - Aion (2025) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71006.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Woman [00:04:27]
-02. Darlin' [00:02:30]
-03. Poor Little Rich Girls [00:03:40]
-04. Amsterdammed [00:02:45](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:33:37
+01. Aion (feat. Jeff Black) [00:07:34]
+02. Gunslingers [00:03:05]
+03. Swallow the Sun [00:03:56]
+04. Gears of Life [00:04:02](   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:37:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CB068A13B6DE6B15CC262694822677E5CBF4FDF
+magnet:?xt=urn:btih:F73BD225A588BC9A7EB3FD4670A4A7DBF62E7E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,28 +589,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777626   (71005) от 06.02.2025
+###  Публикация: 1776352   (71314) от 31.01.2025
 
-Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+Mflex Sounds - Misleading Truth (Volumes) (2025) [MP3|320 Kbps] <Italo-Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71005.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  When I Fall in Love (3:12)
-02.  Sifter (6:13)
-03.  Don't Give Up (7:30)
-04.  That Girl (3:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
+01. Sparkle (5:08)
+02. Search A Heart (2020 Re-Edit) (7:06)
+03. I Want You Back (6:40)
+04. I'm Walk Alone (10:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:47:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:183BA2B0B4CFBACA211F6EF85D015303D4F2C538
+magnet:?xt=urn:btih:130EA93390F03CAFB047F284436E48FD017627F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +618,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777719   (71004) от 06.02.2025
+###  Публикация: 1776350   (71313) от 31.01.2025
 
-Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul, Jazz>
+Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71004.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don't Tread On Me (3:13)
-02.  Brown Baggin' (3:23)
-03.  I Plead the Fifth (4:53)
-04.  Ballad #001 (5:17)(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 00:36:47
+01. Bad Love (6:06)
+02. Black Hole (5:18)
+03. My Angel 2 (Snippet) (2:28)
+04. A Sea of Calm (3:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16E4E93B244307CBE15517D32AFA1DB88E989DA2
+magnet:?xt=urn:btih:213895AFE3E3829B20FC2A7A5A9F0358DCC67DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776208   (71312) от 31.01.2025
+
+Мёртвая Вера - Запечатлённый Дьявол (2025) [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жрать говно [00:02:27]
+02. Богу похуй [00:04:14]
+03. Смерть [00:03:07]
+04. Гей-пропаганда [00:03:33](   Читать дальше...   )Жанр: black metal, death metal, doom metalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69680487F14CF52BD1D9DDDA8CCFAFF9611A1681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776315   (71311) от 31.01.2025
+
+Сплендор / Splendor (1989) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71311.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сплендор» - название старого кинотеатра, которым владеет Джордан, унаследовав его от своего отца. Театр прогорает и приносит хозяину только долги и лишние неприятности. Наконец, Джордан вынужден продать «Сплендор» бизнесмену Ло Фазио, который собирается переделать кинотеатр во что-то вроде мебельного магазина. Когда Джордан приходит в свой кинотеатр в последний (   Читать дальше...   )Производство: Италия, Франция / Cecchi Gori Group Tiger Cinematografica, Générale d'Images, Gaumont...Жанр: драмаРежиссер: Этторе СколаАктеры: Марчелло Мастроянни, Массимо Троизи, Марина Влади, Паоло Панелли, Памела Виллорези, Мауро Боске, Николетта Делла Корте, Джада ДесидериПеревод: профессиональный двухголосыйЯзык озвучки: русский, итальянскийСубтитры: английскиеПродолжительность: 01:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DFE1EB40A1548DF8C2F8E58674ECE4FF9B946F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776356   (71309) от 31.01.2025
+
+Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [MP3|320 Kbps] <Italo-Disco, Synth-Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Know (5:48)
+02. Dream With You (6:18)
+03. In My Eye (6:12)
+04. Love In The Rain (7:49)(   Читать дальше...   )Жанр: Italo-Disco, Synth-DanceПродолжительность: 03:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D758BC1B391A194CB0C41F6CFCB94685A824D99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

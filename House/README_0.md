@@ -1,3 +1,61 @@
+###  Публикация: 1841520   (1048155) от 11.12.2025
+
+VA - 100% Ibiza (The Late Night Club Closings 2025) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz - Frequencies (Video Edit) 02:58
+02. Steen Thottrup & Kaia Mainz - Dreamers (Stefano Martiago Remix) 05:03
+03. Kornpluck - Tincture (Vocal Mix) 05:23
+04. Jacob Ireng - Contemplation (Radio Edit) 02:37(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0CC44BD62372FCCA49FC3B73B2F739F38A1C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841657   (1048089) от 12.12.2025
+
+VA - Black Hole House Music 12-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Nation - Hold On (Extended Mix) 04:32
+02. Bt & Jan Johnston - Mercury & Solace (Little Foot Extended Remix) 05:45
+03. Manufactured Superstars & Vedic - Diva 03:12
+04. Fonzerelli, Jaki Nelson & H4lo - Edge Of Tomorrow (Extended Mix) 05:17(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567E28DEE724A30F2C256DEDA0F75E6564B15AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840690   (1047512) от 06.12.2025
 
 VA - YHV Melodic Progressive Sampler 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
@@ -687,64 +745,6 @@ VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058BF7F56ED5E3D93BB84FFDDDE231F6A317F0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615845   (1037273) от 27.02.2023
-
-VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.O.D - Set Me Free (Extended Mix) (4:41)
-02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
-03. Something Good feat. Yotto - Rhythm (Of The Night) (Extended Mix) (6:35)
-04. Vintage Culture & Three Drives - Greece 2000 (Extended Mix) (5:17)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABF35E2619714EC60A30CD95599FE2AE16E5C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615949   (1036987) от 28.02.2023
-
-VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) [6:10]
-02. Innellea - Targo (Original Mix) [5:16]
-03. Maxim Lany - Renaissance (5AM Extended Edit) [7:03]
-04. Agents of Time feat. Vicky Who? - Liquid Fantasy (Extended Mix) [5:30](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 04:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6B582477214AEF2FBF32DDA2EDBD3A8CED2FD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

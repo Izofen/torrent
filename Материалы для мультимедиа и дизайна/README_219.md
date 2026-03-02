@@ -1,3 +1,29 @@
+###  Публикация: 1247043   (456537) от 13.09.2018
+
+3D модели - ArtStation - Electric locomotive - model 441-316 [UE4] [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456537.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель Electric locomotive (Электровоз)Формат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE008C0232D8844E75300EBE19AA9121C92B27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162554   (456519) от 02.09.2017
 
 Растровый клипарт - CreativeMarket - Autumn is coming! Watercolor set [PNG]
@@ -655,32 +681,6 @@ Motion Design Elements 003: Animated Frames 2 - Этот сборник аним
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C49772F46EA6E33E3DDD29BA9A35E36B3773BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247453   (452430) от 15.09.2018
-
-Растровый клипарт - Deeezy - Snow Free 3D Lettering [PNG, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снежный алфавит в 2-х вариациях с дополнениями (паттерны) и официальной документацией.Формат: PNG, PATРазрешение файлов: 3000 × 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B32718E94F68FD8ECC2C44FC2D31873A544D65D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1313771   (522967) от 10.07.2019
+
+VA - With Gratitude: Romantic R&B (2019) [MP3|320 Kbps] <R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Timara - Nice & Slow
+002. Ciisum - Love In The Club
+003. Brown Boy - Stay (Feat. Mob Fam & Unique)
+004. Amerie - Midnight Rain(   Читать дальше...   )Жанр: R&BПродолжительность: 11:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A7D27F9748EB799C7E3075CD00C899BDF8ACF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240519   (522756) от 14.08.2018
+
+VA - Velvet Blues: 150 Works Of Gold Masters (2018) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Allen Toussaint - On Your Way Down
+002. The Blind Boys Of Alabama - Stay on the Gospel Side
+003. Sam Green and the Midnight Heist - Where You're From
+004. Wille and the Bandits - Hot Rocks(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3E41A6D971C603D21E123093ADA872BE56BC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559839   (522614) от 27.06.2022
+
+VA - New Vol.18 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Одинцов - Девчонка
+02. Рустам Нахушев - Белые розы
+03. Сергей Рудов - Июньские цветы
+04. Соня Белькевич & Илья Родин - Гори(   Читать дальше...   )Жанр: Pop, Dance, ShansonПродолжительность: 02:58:58 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61345013535C92A078C55C3A0A0D3C3B0854007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559875   (522566) от 27.06.2022
+
+VA - Супер зарубежные хиты 90-х (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522566.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Brothers On The 4th Floor - Come Take My Hand (4:03)
+002. 2 Brothers On The 4th Floor - Dreams (Will Come Alive) (4:23)
+003. 2 Brothers On The 4th Floor - Fly (Through The Starry Night) (3:28)
+004. 2 Brothers On The 4th Floor - Mirror Of Love (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 16:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028E49E4D87789B5CCC110E9695F2CBE0739B633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928481   (522549) от 16.08.2015
+
+VA - Glamour House Ibiza (2015) [MP3|320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan McKie - The Throb (06:49)
+02. Nick Hook - Just for One Day (06:17)
+03. Jay Frog - Marrakesh (05:55)
+04. R.O.N.N. - Morenita (05:20)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482A0595CFAFC0425BBBE749CB46840E4B9CA8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928370   (522537) от 16.08.2015
+
+Tumbleweed Wanderers - Collection (2012 - 2015) [MP3|320 кб/с]<Classic Rock, Indie Rock, Indie Folk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Longer Waiting
+02. Take It Back
+03. Roll With The Times
+04. Tired Of Wandering(   Читать дальше...   )Жанр: Classic Rock, Indie Rock, Indie FolkПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CF8D96561EEB2519C5CAF35BB956FB28AA718E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928255   (522533) от 16.08.2015
+
+VA - Top Club 40 - August (2015) [MP3|320 кб/с]<Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Willy William – Te Quiero (Extended Mix)
+02 – Kendi Girac – Cool (DJ MARTIN B. INTRO EDIT RMX)
+03 – Dj Kikfat Ft. Edalam x Willy William – Helicopta Collector (Club Mix)
+04 – Eva Simons – Policeman (Club Mix)(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 04:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F0EE8E3648E1514090278EEFCC2F913BD8FEC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928450   (522531) от 16.08.2015
 
 VA - Best Of Sexy Music (2015) [MP3|320 кб/с]<Lounge, Chillout>
@@ -539,215 +742,6 @@ Alpine - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative Dance, Indie Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE169098312B4DA036753A8B7D7F497DC6903248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928838   (521764) от 17.08.2015
-
-VA - Romantic Nights - Sex Lounge Tracks for Erotic Moments Sensual Massage (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotic Chill Music - Romantic Nights (Calm Music)
-02. Tantric Massage - Erotic Massage (Reiki Healing)
-03. Cafe Tantra - Gentle Touch (Touch Therapy)
-04. Erotica - Tantric Sex Sound (Stimulate)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6583AEAA62A8F52554F25DDD5FAE3B378503C44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928384   (521753) от 17.08.2015
-
-Family Of The Year - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative, Indie Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Barn
-02. The Princess And The Pea (feat. Willy Mason)
-03. St. Croix
-04. In The End(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927129   (521699) от 17.08.2015
-
-Берёзовый Сок - Магнитоальбом (1990) [MP3|224 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро 1
-02 - Скрипка
-03 - Интро 2
-04 - Музыканты(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066061D07B5DEA569B0B424B8B0591A77A78C551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533916   (521595) от 12.08.2012
-
-VA - Sexy Trance #44 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Realistic Brain - Art (Original Mix)
-002. Radion 6 - B U Tiful (Original Mix)
-003. Pedro Del Mar & Illitheas - Bahia Del Sol (Illitheas Mix)
-004. Traces Traxx - Beautiful Waimea (Original Mix)
-005. You Are My Salvation - Chase Me
-006. Shoxx - Chasing Darkness (Original Mix)
-007. The Crystal Method - Come Back Clean (Daniel Wanrooy & Mark Green Remix)
-008. Sun Resort - Companion (Original Mix)
-009. Sensi pres. Raven van Dark - Dying Day (Original Mix)
-010. Nicologik & Zephyr - Emerald (Steve Brian Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB42E8FF6B6105E6BD6B2E051F66B191EAC02DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314018   (521423) от 12.07.2019
-
-VA - Urban Odyssey (2019) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artifi & Cj Sn - Sierra Leone (Extended Mix)
-002. Pourya - Beyond Imagination
-003. A-Tronix - Forgiven
-004. Kovac - Fahrenheit 932 (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63994CFE90D3961DEA4606487DA2D6BB9A8AA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314031   (521419) от 12.07.2019
-
-VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Devon Church - A Wave On Land
-002. Ace Frehley - I Wanna Go Back
-003. Ken Hensley - Set Me Free
-004. The Hazytones - The Hand That Feeds(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 13:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3AD5EDA0372D7F6D11FE5D168112FAF53559EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928717   (521371) от 17.08.2015
-
-Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - The Show Must Go On (04:29)
-02. Bryan Adams - Everything I Do (I Do It For You) (06:34)
-03. Elton John - Sorry Seems To Be The Hardest Word (03:48)
-04. Gary Moore - Still Got The Blues (06:09)(   Читать дальше...   )Жанр: Rock, Art Rock, Soft Rock, Pop RockПродолжительность: 08:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B14BE47583E4D03C05CB2BC78B723025D78A444
 ```
 
 https://mybot314.ru/tekegram_catalog/

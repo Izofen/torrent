@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1856560   (1059080) от 28.02.2026
+
+Bruno Mars - The Romantic (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Funk , Soul, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risk It All [00:03:24]
+02. Cha Cha Cha [00:03:56]
+03. I Just Might [00:03:32]
+04. God Was Showing Off [00:03:31](   Читать дальше...   )Жанр: Funk , Soul, PopПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A74952409B11584D605235EE560B31B07A1055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856580   (1059070) от 28.02.2026
+
+(the)Dead Elvis - Через Круги Под Глазами (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Experimental, Alternative Hip-Hop, Industrial>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Через Круги Под Глазами [00:02:49]
+02. Выбор [00:02:15]
+03. Чёрные Ушки [00:02:22]
+04. Гарантировано Пройденные Рубежи [00:02:31](   Читать дальше...   )Жанр: Experimental, Alternative Hip-Hop, IndustrialПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB63FC65DC458B6E8CB88F746D7D735D64A7A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856465   (1058794) от 28.02.2026
+
+Тони Раут & Гарри Топор - Ульта (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ульта [00:02:24]
+02. Бесконечный замок [00:02:09]
+03. Мясорубка [00:02:03]
+04. Аутфит [00:02:08](   Читать дальше...   )Жанр: Alternative Hip-HopПродолжительность: 00:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F445E4AF2FEB331B481B2D1369426790BF4DBB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855427   (1058109) от 23.02.2026
 
 Mozzy - Not A Chance In Hell (2026) [MP3|320 Kbps] <Hip-Hop>
@@ -659,93 +746,6 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC63C866ED0FA08D60D4EF64DD63D0C8BBB569AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608019   (1043789) от 28.01.2023
-
-Каспийский груз - Осторожно Окрашено (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осторожно Окрашено [00:03:55]
-02. На белом [00:04:02]
-03. Преступник [00:02:59]
-04. Веретено [00:03:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA5FB0AAD9289D50627EDE5E4142046B0474BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608089   (1043735) от 29.01.2023
-
-Marlowe (L'Orange & Solemn Brigham) - Marlowe 3 (2022) [FLAC|Lossless|Web-DL|tracks] < Hip-Hop, Underground Hip-Hop, Instrumental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlowe Three (1:25)
-02. Past Life (3:11)
-03. President The Rock (2:30)
-04. My People (3:37)(   Читать дальше...   )Производство: Mello Music GroupЖанр: Hip-Hop, Underground Hip-Hop, InstrumentalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7874BC2A0B3B786ED9A3074DA27A9E8D95DB842A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608670   (1043546) от 31.01.2023
-
-Marty McKay - Plandemic (2023) [MP3|320 Kbps] <Rap Rock, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Plandemic [00:04:08]
-02 - Global House Arrest [00:03:42]
-03 - Hope Is Gone (feat. Rootwords) [00:04:51]
-04 - Voiceless Cries [00:03:57](   Читать дальше...   )Жанр: Rap Rock, Hip-HopПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78105E8BE1BB2E4C8C781AEC5456F10F6BEB48A
 ```
 
 https://mybot314.ru/tekegram_catalog/

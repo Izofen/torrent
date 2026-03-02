@@ -1,3 +1,206 @@
+###  Публикация: 1027833   (692568) от 21.06.2016
+
+VA - Hard'n'Heavy Collection (2016) [MP3|256 кб/с] <Hard'n'Heavy, Hardcore, Nu Metal, Black Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biohazard - Hallowed Ground
+02. Metallica - Fade To Black
+03. Merelin Menson - Coma White
+04. Anathema - Emotional Winter(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE47E1F7B43999224D307E2DDA7AC8BE17D06BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403415   (692235) от 19.08.2020
+
+VA - Beatport Deep House: Electro Sound Pack #146 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692235.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kasey - Let It Go
+002. Cco - Waiting For U In Bed
+003. Nicolas Barnes - Exposure (Original Mix)
+004. Patrick De Launay - Black Lagoon(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC2D23297E310818E853CDA654C6DEF4069692D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403341   (692226) от 19.08.2020
+
+VA - 100 Most Uplifting Songs Ever (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692226.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lily Allen - Smile
+002. Clean Bandit - Rather Be (feat. Jess Glynne)
+003. Coldplay - Viva La Vida
+004. Aretha Franklin - Respect(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E90AD836F896612E8D3B7AE208A9D4102D0DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288796   (692076) от 13.03.2019
+
+VA - Buffalo Bass Mix (2019) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692076.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Sidеs - Sрinе
+002. Clеvеlаnd Wаtkiss - Convеrsаtions
+003. Dj Qt - Who Knows
+004. Loz Contrеrаs Fеаt Trас - Lеарs And Bounds(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08 :08 :31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA7F93D9715AE8D85399343080C511D934C3255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288784   (691845) от 13.03.2019
+
+VA - Громкие новинки месяца Vol.27 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Chainz, Marsha Ambrosius - Forgiven (5:23)
+02. Adamant - Маршмелоу (3:28)
+03. ALEKSEEV - НЕ МЕД (3:32)
+04. Alesso - TIME (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91FE00A362B11FEDB2440B4E7FB99B47F55FD8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288831   (691844) от 13.03.2019
+
+VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alvin Lее - Mоving Thе Bluеs
+002. Alvin Lее - Jеnnу, Jеnnу
+003. Dаvе Evаns - Whеrе Shе Gоеs I Gо
+004. Bеn Prеstаgе - Sоmеdау Bаbу(   Читать дальше...   )Жанр: Blues Rock, Country, Rock And Roll, FolkПродолжительность: 10 :10 :48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761280981458F73BE2EF42E652A37A3E9E01BABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133951   (691660) от 14.05.2017
+
+VA - Intellectual House [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Can 7 - Uska Dara (Feat. Eartha Kitt) (Umami Remix) 6:35
+002. Joseph Westphal - Peace (Zwette Remix) 5:22
+003. Sebastian Leithold & Christoph Leithold - Deep Blue (C-ro Remix) 6:23
+004. Alessandro Cicchelli - Riviera 7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 05:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A160E9E5969AECB27C17033480A437A244D84A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133610   (691657) от 14.05.2017
 
 VA - Damned Thoughts: Drumm And Bass Mix (2017) [MP3|320 Kbps] <Drumm and Bass>
@@ -542,209 +745,6 @@ VA - Vocal Deep House Vol.28 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30B86092E46CB6DB1F09C48A4DF07CD68C322CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133614   (691301) от 14.05.2017
-
-VA - Весна Танцевальная (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Серебро - Между Нами Любовь 3:11
-002. Hurts - Beautiful Ones 3:02
-003. Alok  Bruno Martini feat. Zeeba - Hear Me Now (Leo Burn Radio Edit) 3:19
-004. 5sta Family - Многоэтажки 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69773E143C0952BC9A06776F5B02065F1E23F4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133950   (691175) от 14.05.2017
-
-VA - Melodic Techno [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691175.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karada & Pedro Mercado - Our Vision 7:44
-002. Midnight Pulse - Mirror Lake 6:29
-003. Anders. - Mr. Holmes 4:59
-004. Mininome - Ordinary Day 5:50(   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAF2B913B7B02E48B8471E57CA05D6964650DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133592   (691164) от 14.05.2017
-
-VA - Disco Dance 90’s (2017) [MP3|320 Kbps] <EuroDance , Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nsync - Tearin Up My Heart 3:41
-002. Black Spaghetti - Fight For Your Right 3:46
-003. Coco - I Had A Dream 3:52
-004. E-Motion - Get Up 5:37(   Читать дальше...   )Жанр: EuroDance , DiscoПродолжительность: 05:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D12276DC78841005BF0B965DCFE62E868139296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133908   (691064) от 14.05.2017
-
-VA - Woman Vocal In Jazz (2017) [MP3|192-320 Kbps] <Jazz, Smoot, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691064.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Caro Josee - Paris (Feat. Manusch Weiss) 5:50
-002. Nina Landis - Songbird 3:23
-003. Ceu - Arrastarte-Ei 3:39
-004. Keiko Matsui - The Edge Of Twilight 3:22(   Читать дальше...   )Жанр: Jazz, Smoot, Vocal JazzПродолжительность: 06:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46FB1BAE88B69ACEDC6779E9CA226C81EDC1F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028454   (690875) от 22.06.2016
-
-VA - African Daydreamer: Relax Set (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690875.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Le Voyage - African Daydreamer (Ethno Mix)
-002. Petit Prince - Demi tour
-003. Jive Ass Sleepers - Cafe Electronique
-004. Joachim Pastor - Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:31:41 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB332ECAB2428351131090C4727FADC0270A3669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028249   (690779) от 22.06.2016
-
-VA - Music For Easy Running (2016) [MP3|320 кб/с] <Uplifting, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aero 21 - Mallorca (Original Mix)
-002. Dan Stone - Venezuela
-003. Cosmic Gate - Exploration of Space (Cosmic Gate Third Contact Remix)
-004. Ellie Lawson with Adrian&Raz - A New Moon (MozQe Bootleg)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 11:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5890FFEC801B0F14D06B490EFCF549E6D210BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134175   (690764) от 14.05.2017
-
-VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House & Trance от LORDEGRAF Vol.9 (2017) [MP3|320 Kbps] <Deep House, Electro House, Techno House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Alden Jacob feat. The Parakit - When I Hold You  3:11
-002.  Ilkay Sencan - Back To Life (Original Mix)  3:11
-003.  Max Olsen feat. Vera Fox - The Beat Is Rockin (Original Mix)  5:34
-004.  DeepDelic - Emotilow (Original Mix)  5:29(   Читать дальше...   )Жанр: Deep House, Electro House, Techno House, TranceПродолжительность: 09:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E67AE3F1578FF1352D43F95C33685A5824F08B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1611961   (1040637) от 14.02.2023
+
+Bogobes - 3 Relises (2022-2023) [MP3|320 Kbps] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Духи Чумы (EP)
+2022 - К2023 - PantheonЖанр: Blackened Death MetalПродолжительность: 3 CD, 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C818F4E9876F1E4E7C02E2249B79CB33A4D72DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612105   (1040630) от 14.02.2023
 
 Dzen (Андрей Нагорный) - Глаза Анютины (2023) [MP3|320 Kbps] <Rock>
@@ -710,35 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A781E45208B5C96F6589C99E9F2D69C89A720B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440821   (1037987) от 20.01.2021
-
-Сборник песен на стихи Осипа Мандельштама - Сохрани мою речь навсегда (2021) Deluxe Version, Tribute [MP3|192 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Рома Либеров - Об альбоме [00:01:09]
-02 Alina Pash - Среди лесов, унылых и заброшенных (Intro) [00:01:05]
-03 Alina Pash - Среди лесов, унылых и заброшенных [00:03:30]
-04 MILKOVSKYI - Только детские книги читать (Intro) [00:00:38](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF796396BFCA6D2087A9CE23EE5C45D9027DE39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1730932   (107723) от 21.06.2024
+
+Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afterlife (Intro)
+ 02.  Get the Chance
+ 03.  I Still Love You (Feat Lian Ross)
+ 04.  Heaven is Waiting(   Читать дальше...   )Жанр: Euro Disco /Pop DanceПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731725   (107637) от 22.06.2024
+
+VA - Compilation part 89 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasimoff - Alone
+02. Davbo - Emma
+03. Kasimoff - Florida
+04. Menda - Hear Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0CA9C267C3B75475B490D987BA761F5EE7D9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733234   (107346) от 28.06.2024
+
+VA - Compilation part 91 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isskoy - After You
+02. Isskoy - Desert Voice
+03. Zakhid - Desert
+04. Jumanov - Distance(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9972FFDEEDD251B3925E1EF1EFDA4CE58C1AFB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733125   (107279) от 30.06.2024
+
+Александр Тафинцев - Коллекция Блюз (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Тафинцев и Александр Самойлов - Про Союз [04:53]
+02. Александр Тафинцев и Александр Самойлов - Чёрный волк [04:37]
+03. Александр Тафинцев и Сергей Никитин - Мачо [04:01]
+04. Александр Тафинцев - На просторах Дикого запада [04:23](   Читать дальше...   )Жанр: BluesПродолжительность: 06:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F8AC4C54E5EBC7B1D6496A28F95DD2026BD127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733475   (107270) от 30.06.2024
+
+VA - РАДИО БАТЯ - 015 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! - Набираю номер (04:33)
+02. Эллаи - Переболит (03:19)
+03. Rauf & Faik - Там, где мы с тобой (02:49)
+04. Anton Lacosta - Tik Tok (02:18)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F42A5037D311FFE83F247D90C477A87A83354A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732658   (107269) от 30.06.2024
+
+VA - Bad Blues, Dark Blues (2024) 2CD  [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy F Gibbons - Missin’ Yo’ Kissin’ [03:19]
+02. The White Buffalo - The Matador [04:34]
+03. Gov't Mule - Thorazine Shuffle [06:47]
+04. Isobel Campbell, Mark Lanegan - Snake Song [02:48](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 11:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4FDA399D6EB8633FE91680E5E1E30D7420A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735030   (107024) от 06.07.2024
+
+VA - Compilation part 95 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Back to You
+02. Menda - Easy
+03. Afrasyab - Emotive
+04. Jumanov - Feeling(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD94322CA39152C4533073962D937E20DFA7E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735602   (106797) от 10.07.2024
 
 VA - Trance In Motion Vol.378 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
@@ -542,209 +745,6 @@ VA - Compilation Part 196 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59CF3874BFCD5C239AF9AAC3D148EE0CA1549862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823006   (104375) от 09.10.2025
-
-VA - Compilation Part 198 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Riltim - Sweet Love
-02 - Umideep - I'm Sorry My Love
-03 - Umar Keyn - D’octobre
-04 - Rodle - Noches De Encanto(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2C65E0C249DC26F704F7CBD7AA71141E44838E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751919   (104024) от 28.09.2024
-
-VA - compilation musical kaleidoscope part 4 (2024) [MP3|320 Kbps] <electro swing, electro pop, nu Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Back Around
-02. Odd Chap & Little Violet - Crazy Out There
-03. Alanna Lyes & Atom Smith & Riff Kitten & Elliot Deutsch - Mine
-04. Atom Smith & Alanna Lyes & Elliot Deutsch - Bad Girls(   Читать дальше...   )Жанр: electro swing, electro pop, nu JazzПродолжительность: 01:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E58D19F4F0F123BFFF41A4144A67CE16AB4D191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751639   (104009) от 28.09.2024
-
-VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 Kbps] <Nu Jazz, Electro Swing, Electro pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle & the Pocket Belles - Midnight Dancer
-02. Caravan Palace - Mad
-03. Riff Kitten - Viper Queen
-04. Caravan Palace - Reverse(   Читать дальше...   )Жанр: Nu Jazz, Electro Swing, Electro popПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752000   (104007) от 28.09.2024
-
-VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104007.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Odd Chap - Rosco's Groove [02:54]
-002. Klischee - Trick Me [02:29]
-003. Betty Booom - Toxic (Electro Swing Mix) [03:31]
-004. Daisy La Fontaine - Mr. Perfect [03:00](   Читать дальше...   )Жанр: Swing, Nu Jazz, ElectroПродолжительность: 05:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2606E9F882FC06043BEE6CD2406CC209AD9087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751939   (103991) от 28.09.2024
-
-David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16 Horsepower - American Wheeze
-02. 16 Horsepower - Black Bush
-03. 16 Horsepower - Black Soul Choir
-04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759143   (103323) от 06.11.2024
-
-Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dizzy
- 02.  Osaka
- 03.  We Live We Die
- 04.  Part Time Psycho(   Читать дальше...   )Жанр: Electropop, indie popПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2F1CDD2D116ED73D190FD9F9F999529DE77B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762096   (103018) от 23.11.2024
-
-Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Lost
- 02.  Don't Cheat Me
- 03.  Patience
- 04.  For You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B105187573964475627857486EEE6C59DE2654D
 ```
 
 https://mybot314.ru/tekegram_catalog/

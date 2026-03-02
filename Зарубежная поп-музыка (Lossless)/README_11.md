@@ -1,3 +1,119 @@
+###  Публикация: 980477   (955667) от 29.01.2016
+
+Sia - This Is Acting (Deluxe Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Set Free
+02. Alive
+03. One Million Bullets
+04. Move Your Body(   Читать дальше...   )Жанр: Pop, IndieПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDB66946E13C377F0C37506D7395F95C982485F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361460   (955403) от 19.02.2020
+
+VA - BRAVO Hits 108 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955403.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода предыдущего сборника от трех известнейших музыкальных лейблов (ссылки на серию смотрите внизу поста) прошло ровно четыре месяца и ,конечно, поднакопилось хитов, которые заслуживают быть в коллекциях у любителей популярной музыки. Как обычно, внизу вы сможете послушать некоторые треки из этой коллекции и решить для себя - иметь или не иметь...CD1:
+01. Dua Lipa - Don't Start Now  (3:03)
+02. Topic, A7S - Breaking Me  (2:47)
+03. Robin Schulz feat. Alida - In Your Eyes  (3:29)(   Читать дальше...   )Релиз состоялся: 14 февраля 2020 годаЖанр: Pop, Dance, ElectronicПродолжительность: 02:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F2C1DF173A21261047821C29E0D34BCA758F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980693   (953030) от 31.01.2016
+
+VA - Rhythm of Life (1991) [FLAC|Lossless|tracks + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Stevie B. - Because I Love You (The Postman Song)
+2.Chimes, The - I Still Haven't Found What I'm Looking For
+3.DNA Featuring Suzanne Vega - Tom's Diner
+4.Beats International - Dub Be Good To Me(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F3274055EE478AEE6AD1D0F9A0CC16286C545F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980826   (952970) от 31.01.2016
+
+Eleanor Friedberger - New View (2016) [FLAC|Lossless|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He Didn't Mention His Mother 04:00
+02. Open Season 04:42
+03. Sweetest Girl 03:01
+04. Your Word 03:41(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898587C55CA8B62433CCC3416703EA0B1CEBC9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981137   (952805) от 31.01.2016
 
 Sam Brown - April Moon (1990) [FLAC|Lossless|tracks + .cue] <Pop, Jazz>
@@ -627,122 +743,6 @@ Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363481   (942679) от 28.02.2020
-
-Kevin Krauter - Toss Up (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowboy Chloe
-02. Lonely Boogie
-03. Rollerskate
-04. Suddenly(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B4D7E065438D94835A365145556FCDB4EBBA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363458   (942642) от 28.02.2020
-
-Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:05)
-02. Opportunity (03:33)
-03. Patience (03:52)
-04. Surprise (03:43)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E1DADB268ED7E125B0B18F3DC61C6F011FBF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149305   (940473) от 29.02.2020
-
-Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September (I'm On My Way) (2:45)
-02. On My Pillow (3:24)
-03. Love Is (3:24)
-04. What They Say (3:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984309   (940218) от 08.02.2016
-
-Tindersticks - The Waiting Room (2016) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Indie Rock, Alternative Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me (02:46)
-02. Second Chance Man (03:57)
-03. Were We Once Lovers? (04:50)
-04. Help Yourself (05:39)(   Читать дальше...   )Жанр: Chamber Pop, Indie Rock, Alternative PopПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B479C9923418CFB0C9CC4751ACCE7FD2EBEF668
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1014075   (776966) от 06.05.2016
+
+VA - Trance Eve Volume 68 (2014) [MP3|320 кб/с] <Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Richard Durand & Pedro Del Mar feat. Roberta Harrison - Paint the Sky (Alex O'Rion Bigger Room Remix) [07:15]
+002. Robbie Rivera feat. Blake Lewis - All We Are (Marco V Remix) [05:10]
+003. Running Man - Alternative Alegra (Original Mix) [07:59]
+004. Sean Tyas & Julie Thompson - What I Am (Club Edit) [06:49](   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 04:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD0580302983DEAB6F37C6013B16EA47B57D321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013851   (776965) от 06.05.2016
+
+VA - Relaxing Sunset Lounge Ibiza (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Wait
+02. The Diventa Project - Come Together - Vocal Mix
+03. Faro - Dreaming In Orange
+04. Sugarman - Summernights(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F75A52F385E592C0AB51983104FA528B35B758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013998   (776959) от 06.05.2016
+
+VA - Melodies Of Emotions Saturn (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plutian - Saturnus (Original Mix) 8:49
+02. Psymes & DJ Harn - St Elevation (Original Mix) 9:22
+03. Paul Miller - Plick Plack (Original Mix) 7:02
+04. Paul Van Dyk With Aly & Fila Feat. Sue Mclaren - Guardian (Original Mix) 7:58(   Читать дальше...   )Жанр: TranceПродолжительность: 09:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22859129651A8FE46C42F5727251C4D69E0569A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013942   (776954) от 06.05.2016
+
+VA - Trance Desire Volume 68 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel -  Musa (Original Mix)  7:53
+02. A.R.D.I. & Cari -  These Words (Original Mix)  7:08
+03. MNK feat Michelle Hutcheson -  Run Or Stay (Original Mix)  6:45
+04. Trance Arts ft. Hysteria! -  Still Have A Choice (Original Mix)  5:58(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BDB3F15EF651A6699DAEEA8FC9ADB51F1E0916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013627   (776951) от 06.05.2016
+
+VA - Spring Break Beach Party (2016) [MP3|320 кб/с] <Progressive House,Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funtom Cruisers - Boarding (Original Mix)
+02. Dj Rohan - Bring The Bass Back (Original Mix)
+03. Inquisitive - Rave Slam (Original Mix)
+04. D.J. Mash Up - Summertime Sadness (Remix)(   Читать дальше...   )Жанр: Progressive House,Techno, HouseПродолжительность: 06:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282FBD98DCF4CA6E191DEBCFCD7C5978A009EE10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013937   (776950) от 06.05.2016
+
+VA - Rain Hugs: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Area Code 51 - Hook City
+002. Lan Sub - 7 Years - Acoustic Guitar
+003. Coffee Machine - I've Got You
+004. W. Dekay - Charming Night(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B30713040B1733D5A5F6F02C30AF30B0C5C5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014033   (776947) от 06.05.2016
+
+VA - Звездная Сага (2016) [MP3|320 кб/с] <Prog Electronic, Post-Rock, Soundtrack & OST>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Days Between Stations - In Utero (05:10)
+02 If These Trees Could Talk - The Gift Of Two Rivers (01:08)
+03 Blue Drift - Deep Space (05:01)
+04 Erik Norlander - Fanfare for Absent Friends (06:08)(   Читать дальше...   )Жанр: Prog Electronic, Post-Rock, Soundtrack & OSTПродолжительность: 02:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DD2AE51B810F880C236B80DD400A344BAD60E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014048   (776931) от 06.05.2016
 
 VA - Скиталец (Хроника звездной саги) (2016) [MP3|320 кб/с] <Space Rock>
@@ -542,209 +745,6 @@ VA - Созвездие весеннее - 5 (2016) [MP3|256 кб/с] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A51144F4A489DF72335525D9C43C8B30BBA358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212024   (776501) от 10.03.2018
-
-VA - 100 Hits DJ Trance Mastermix (2018) [MP3|320 Kbps] <Vocal Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elypsis & Fenna Day - Who You Are (Extended Mix)
-002. Roman Messer feat. Christina Novelli - Fireflies (Original Mix)
-003. Cern - The Message (Northern Mix)
-004. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix)(   Читать дальше...   )Жанр: Vocal Trance, ElectroПродолжительность: 10:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3030277AEFD5BE0D69FC3F472136F4F565B41946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014319   (776445) от 07.05.2016
-
-VA - Дискотека бездна удовольствий 1100 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Наташа Королева - Я Устала (02:54)
-002 Anouk - Run Away Together (03:34)
-003 Алексей Кудрявцев - Не Было Тебя (03:32)
-004 Randi - Dansam (03:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98947B82C813BB1C7F2464EA5D854621A5BC377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212170   (776432) от 10.03.2018
-
-VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 14 (2018) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ahzee - We Got This (Radio Edit) [2:53]
-02.	Alok & Liu feat. Stonefox - All I Want [3:03]
-03.	ASDEK - Imperial (Original Mix) [4:44]
-04.	Bazzi - Mine [2:14](   Читать дальше...   )Жанр: Electro, Deep, Techno, House, TranceПродолжительность: 06:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDE9797E80C50CF9CB802EB9EBE190C694A97F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212120   (776262) от 10.03.2018
-
-VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ya Rick Ft. Addie Nicole - Follow My Destiny (Original Mix) 03:17
-002. Vinicius Nape, Jonathas Noronha - Explore (Original Mix) 06:12
-003. Tyron Hapi, Mimoza - Anyway (Majestic Remix) 02:34
-004. Thomas Mengel Ft. Isotobia Forrest - Invincible (Mike Shiver Extended Mix) 04:44(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 07:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014480   (776207) от 08.05.2016
-
-VA - Trance Maniacs Party - Melody Of Heartbeat #163 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Essonita feat. Irina Makosh - Letter To Angel (Original Mix) 6:27
-02. Beat Service - Not This Time - Original 5:55
-03. Squarz Kamel, Love Dimension - Say Me (Original Mix) 6:29
-04. Eminence Ft. Holly Drummond - Ultraviolet (Cold Rush Remix) 7:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E1686D1E5C38099CFB1C3ABFB974BDEB13CD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014716   (776206) от 08.05.2016
-
-VA - Floating Beings - Psy Trance Mix (2016) [MP3|320 кб/с] <Psy Trance, Psyhodelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixsense - Floating Beings 7:12
-02. U-Recken - Carol Of The Bells (Talamasca Remix) 7:49
-03. Gravedad cero - Above the Storm 8:29
-04. Major7 vs. Reality Test - Seduction 7:55(   Читать дальше...   )Жанр: Psy Trance, Psyhodelic, Goa TranceПродолжительность: 08:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38A84050321E277C0E466A85C233A87BCD525E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014454   (776205) от 08.05.2016
-
-VA - Beach Workout DJ Power (2016) [MP3|320 кб/с] <House, Progressve, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776205.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Val Entin, Gaetan Durand - Do It Hard (Club Mix) 5:38
-002. Samee - Close Yet Far (Original Mix) 7:38
-003. Phatt-B - Hesitation (Radio Edit) 3:24
-004. Pulsedriver - Do You Want It Right Now (Bounce Mix) 4:02(   Читать дальше...   )Жанр: House, Progressve, ClubПродолжительность: 10:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EE75854C851501661DBC83CAB1697587D94471
 ```
 
 https://mybot314.ru/tekegram_catalog/

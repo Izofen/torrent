@@ -1,3 +1,29 @@
+###  Публикация: 912191   (611973) от 25.06.2015
+
+Пресеты - 500+ Premium Lightroom Preset [LRTEMPLATE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 500 качественных пресетов для Lightroom, разделённые на 27 различных категорий.Формат: LRTEMPLATE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF05C49438141B45CC5C28B49B556E21937C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037836   (611892) от 25.07.2016
 
 Экшены - CreativeMarket - Faded Duotone Photoshop Actions [ATN]
@@ -648,34 +674,6 @@ Modern Paint - экшен для Вашего творчества. Многие
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C5603C1A026BBB4027F4DC2E2653A6DEB411CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296323   (608287) от 19.04.2019
-
-Векторный клипарт - Spring sale banner with beautiful chamomile [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Букет ромашек, рамка с цветами с лучах солнца.
-9 EPS + PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B716BB971A842C4453880B9787E0CF7351EB57
 ```
 
 https://mybot314.ru/tekegram_catalog/

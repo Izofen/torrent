@@ -1,3 +1,207 @@
+###  Публикация: 1140688   (654865) от 07.06.2017
+
+VA - SpaceSynth & ItaloDisco Hits Vol.27 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Hi NRG>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rocky M - Fly With Me To Wonderland 4:27
+02.  Cyber Space - Time Traveller 6:26
+03.  Eddy Huntington - Meet My Friend 3:34
+04.  Marco Rochowski - Game Of Love 6:31(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, Hi NRGПродолжительность: 04:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7432A4C8D5A0810661FE3DA27E294F40BD477C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226542   (654861) от 21.05.2018
+
+VA - Progressive Generation: Trance Party (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654861.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Progressive Generation: Trance Party" – это богатый музыкальный мир, в котором можно утонуть и не заметить как проходит время. Отличные аранжировки, современный звук и особое звучание, которое со временем может перерасти в музыкальную зависимость, не оставят безучастным ни одного уважающего себя меломана.001. Roman Messer & Shawn Davis - Tonight (Original Mix)
+002. Kyau & Albert - Memory Lane (Album Rework)
+003. Maria Milewska & Dennis Graft - Until (Extended Mix)
+004. Kayat feat. Clare Stagg - The Calling (Denis Kenzo Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DC2941EE94A9CDF8341F7B00BD5F617A9AEF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540068   (654846) от 28.03.2022
+
+VA - Новички в попсе Vol 11 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ermakov - нули (1:57)
+02. ZADONSKAYA - Улетай (3:07)
+03. Кейс - Без вести (2:46)
+04. Temnee - Воздух (2:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69237EB89FDA664876A617D8ABEF5D4B49BD825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540074   (654831) от 28.03.2022
+
+VA - Deep Night Deep House 2 (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dava - Обнулила Нас (2:38)
+02. Demando - Black Rose (2:47)
+Fly Above (DJ Dark and Mentol Remix) (2:49)
+04. Stefre Roland, Iriser - Past (3:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA32B3EFFB64C4BBF1A266D5C8473DFE57843E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226503   (654784) от 21.05.2018
+
+VA - Eli's Tears (2018) [MP3|320 Kbps] <Heavy, Death Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отсутствие адреналина? Хочется «потяжелее»? Мечтаете разрушать и устроить настоящий дестрой? Тогда композиции сборника «Eli's Tears» специально для вас. Они помогут поддержать нужный настрой, выпустить пар и насладиться мощными треками популярных исполнителей.001. Fates Warning - Something From Nothing
+002. Exit Eden - Question Of Time
+003. Nocturnal Rites - A Song For You
+004. Goatwhore - Forsaken(   Читать дальше...   )Жанр: Heavy, Death MetallПродолжительность: 12:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDB5C8C3871E8CC003B323A7DF2908DD4ED7C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140640   (654761) от 07.06.2017
+
+VA - Vocal Deep House Vol.29 (Russian Version) (Compiled by Zebyte) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Filatov & Karas Feat. Masha - Lirika (Monkey Mo Remix) 4:36
+02.  Kristina Si - Тебе Не Будет Больно (Pavel Kosogov Remix) 3:36
+03.  Artik Feat. Asti - Кто Я Тебе (Diggo & Dizza Remix) 5:33
+04.  Pasha Lee & Vitaco Feat. Elia - Не Любимая 4:08(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0920C97AC607A21EA76E3B73041642879D3A77BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515956   (654749) от 27.06.2012
+
+VA - Танцевальный рай 24 (2009) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stereo Love - Edward Maya & Vika Jigulina
+02 Colors - Morandi
+03 On The Beach - Sonic Palms
+04 I Gotta Feeling - The Black Eyed Peas
+05 For An Angel '2009Жанр: PopПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84FCA50286ABECB0B78814ABA467C5904E46845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515791   (654743) от 27.06.2012
 
 VA - Trance. Vocal Fascination 26 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
@@ -579,209 +783,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749AA32417D085E58A9D0C2738B1C4B24EAFE2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904423   (654123) от 03.06.2015
-
-VA - Лето в кайф. Сборник 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654123.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaman - Лето Будет
-002. Mariah Carey - Infinity
-003. Ирина Дубцова - Люби Меня Долго
-004. Nicco & Chris Deelay - Remember(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869588E8F3956154AA96F1EFCFE0420EFBA1B16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140940   (653937) от 08.06.2017
-
-VA - Beatport Top 100 Big Room May (2017) [MP3|320 Kbps] <House, Trance, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Axwell Ingrosso - How Do You Feel Right Now (Extended Mix) 04:14
-002. Blasterjaxx - Savage (Extended Mix) 04:06
-003. Laidback Luke, Tania Zygar, Florian Picasso - With Me feat. Tania Zygar (Extended Mix) 03:59
-004. Dzeko - Fluxland 2017 (Club Mix) 03:38(   Читать дальше...   )Жанр: House, Trance, Big RoomПродолжительность: 07:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11AEAEEAAE8973976BA30BBA200E349027462C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140935   (653934) от 08.06.2017
-
-VA - Beatport Top 100 Drum & Bass May (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653934.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tantrum Desire - Gravitate 04:47
-002. Drumsound & Bassline Smith - The Odyssey (VIP) 04:36
-003. Bungle - Cocooned 06:19
-004. Mind Vortex - Future Fold VIP 05:04(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E168A1210C518ED0F83EDC510E6965AE90310212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140859   (653852) от 08.06.2017
-
-VA - Emotional Healting: Spa Music Paradise (2017) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653852.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yoga Healing Sounds Unit - Vinyasa Chill Yoga
-002. Kundalini Yoga Group - Emotional Healing
-003. Anoushka Shankar - Secret Heart
-004. Spa Music Paradise Zone - Breathe & Beneficial Rain(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 08:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B71B23068ED14F85E6FE56819D9E8F7E384C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140928   (653851) от 08.06.2017
-
-VA - Beatport Top 100 Dance May (2017) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tujamo, Sorana - One On One 02:58
-002. Gorillaz Ft. D.R.A.M. - Andromeda (Purple Disco Machine Remix) 06:03
-003. Axwell Ingrosso - More Than You Know (Original Mix) 03:23
-004. Alok, Bruno Martini, Zeeba - Never Let Me Go (Extended Mix) 04:15(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A182783CB55A01C9B3EC7BF2E3594F8E1F9B173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140923   (653849) от 08.06.2017
-
-VA - Alternative Digest June 2017 Mix (2017) [MP3|192-320 Kbps] <Alternative Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Animal Alpha - 101 Ways 05:52
-002. Yellowcard - A Place We Set Afire 04:20
-003. Aquilo - All I Ever Wanted 02:30
-004. Takida - All Your Life (Haven Stay Part 2) 03:51(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 11:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1FA4B05BD43F5B6AF81A4BA6E471A09271E4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140927   (653840) от 08.06.2017
-
-VA - Beatport Top 100 Downloads May (2017) [MP3|320 Kbps] <Electro, Deep House, Indie, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pleasurekraft - Tarantula (7 Year Itch Rework) 07:50
-002. CamelPhat - Hangin Out With Charlie (Original Mix) 06:23
-003. Dennis Cruz - Mad (Original Mix) 06:36
-004. Patrice Baumel - Glutes (Original Mix) 07:30(   Читать дальше...   )Жанр: Electro, Deep House, Indie, Nu DiscoПродолжительность: 10:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A80D6D3F31C2A2BD403D4C462A6BC7C9B7C774A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1083972   (272485) от 17.12.2016
+
+VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoyum - Tears
+02. Daviddance - Time (Feat. J. Cockburn) (Original Mix)
+03. Steve van gur - Hello
+04. Anne deist - First time(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C871935E95BBD5BCADC9EB7D4FE887191E8604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083975   (272316) от 17.12.2016
+
+VA - Best Meditation Music 50 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation Music Zone - Best Meditation Music 3:38
+02. Chakra Healing Music Academy - Zen Garden Ambient 3:54
+03. Mindfulness Meditation Music Spa Maestro - Liberation Of Thoughts 3:22
+04. Meditation Mantras Guru - Calm Sea For Self-Hypnosis 3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 03:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B63B8238873A2DA28B7C1EC252421ABC57D76A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083978   (272238) от 17.12.2016
+
+VA - Лучшие хитовые треки в стиле Chillout, New Age & Ambient от LORDEGRAF (2016) [MP3|32-320 Kbps] <Chillout, New Age, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Arthur Doul - Digital Down [05:22]
+02.	Alex Field - Deep Black Sea (Chillout Mix) [06:16]
+03.	Alex Field - My Life (Original Mix) [03:41]
+04.	Antonymes - Pour Toujours Sans Espoir [04:07](   Читать дальше...   )Жанр: Chillout, New Age, AmbientПродолжительность: 08:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EB1A3F7F3B5785F5C67E2D6EBCAF24B18B01F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189041   (272083) от 04.12.2017
+
+VA - Road Blues: Top 50 Songs (2017) [MP3|320 Kbps] <Rock Blues, Folk Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gina Sicilia - Don't Want To Be In Love
+02. Karen Lovely - Fish Outta Water
+03. Clark, Gary, Jr. - Grinder
+04. The Kate Lush Band - Pack It Up(   Читать дальше...   )Жанр: Rock Blues, Folk RockПродолжительность: 03:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEC81214089F36ED0138A94EA4DF01DE62050AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188969   (272080) от 04.12.2017
+
+VA - The Best Dancing Hits of The 90’s years (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Session – Lucky Number
+02. Missing Heart – Charlene
+03. Music Instructor – Super Fly
+04. Look Twice – Feel The Night(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B9FDB5C50DE48F71BF8E7469CCA4F0FD158C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188926   (272008) от 04.12.2017
+
+VA - Счастливый случай. Сборник хитов от Русского радио (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272008.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Седокова - С Чистого Листа
+002. Hann - Счастливый Случай
+003. Сергей Дубровин & Dima Sirota - Отпусти
+004. Лев Тимашов - Саундтрек Сердца(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C44D390A755734C5993D2A999C126934F73FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265695   (271954) от 30.11.2018
+
+VA - Empire Records - Enigma Alive 4 (2018) [MP3|320 Kbps] <Chillout, Downtempo. Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_271954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Smith - Bull Drake (Original Mix)
+02. Richard Bonne - My Tears Of Elements (Artenovum Mystic Chillout Mix)
+03. Frank Borell - Photon (Deep West Cut)
+04. L'Enigme Sacree - Sanctus And Angus Dei (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo. LoungeПродолжительность: 03:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3EB59AF9438FD15D0134BC72DC93FF80FDBF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266087   (271797) от 30.11.2018
 
 VA - Шансон 2018 [MP3|320 Kbps] <Шансон>
@@ -539,209 +742,6 @@ VA - Взаимные Лайки: Русский Сборник Популярн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF6A131235D9D92452FC2AA573EB45E524E27124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266390   (271034) от 01.12.2018
-
-VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - thank u, next
-02. Little Mix - Woman Like Me (feat. Nicki Minaj)
-03. Jess Glynne - Thursday
-04. Halsey - Without Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5FC7D320291053E092862BF8F82A7ABEE3BD384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266134   (271006) от 01.12.2018
-
-VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271006.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alina Baraz - Fallin
-002. Sega Bodega - Kisses 2 My Phone
-003. David Jay - Hands High
-004. Ayelle - Actor(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 07:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B3F3710B54E2B86CE894E1359602B7C076548E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189352   (270939) от 05.12.2017
-
-VA - Новая Современная Классика Выпуск № 1-4 (2017) [MP3|320 Kbps] <Classic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Garrett - Bitter Sweet Symphony
-02. Max Richter - Last Days
-03. Sampha - (No One Knows Me) Like the Piano
-04. Lindsey Stirling - The Phoenix(   Читать дальше...   )Жанр: ClassicПродолжительность: 23:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D3C25C71E52C1C59DA0DB0647E7269E38048AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266235   (270814) от 01.12.2018
-
-VA - Shazam Хит-парад Russia Top 100 Ноябрь (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KAZKA  -  Плакала
-002. Don Diablo & Emeli Sande & Gucci Mane - Survive
-003. Jarico - Fiery Sky
-004. Rompasso  -  Ignis(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2ACB3A71255CEAD86DADD7F4A6EF87F67BE6399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847800   (270742) от 01.12.2018
-
-VA - 50 Лучших Баллад Навсегда (2014) [MP3|320 кб/с]<Rock, Metal, Art>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rainbow - Temple of the king
-02 Uriah Heep - Sunrise
-03 UFO - Belladonna
-04 Shoking Blue - Daemon Lover(   Читать дальше...   )Жанр: Rock, Metal, ArtПродолжительность: 04:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6166ACDD1403D5DBE069FBB8DBF7523FE6BD2ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189421   (270433) от 06.12.2017
-
-VA - Trance In The Road (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270433.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mellari - Sputnik (Original Mix)
-002. Roman Messer - For You (feat. Clare Stagg)
-003. Spaceptima - The End Of Melancholy (Original Mix)
-004. Veselin Tasev - Blue Sky (Extended Club Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF2DC7256C5D9AE483BA3E91C6080A74261463D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189474   (270429) от 06.12.2017
-
-VA - Seasons To Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270429.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sami Sivananda - Samadhi Vibes (Original Mix)
-002. Sonic Scope - Kryshen (Original Mix)
-003. Sunyata Project - Words Of Vishnu (Ibiza Ethno Mix)
-004. Florito - Feel So Good (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8E6F56E7D68061FF1D4D0DD8578E79427D7610
 ```
 
 https://mybot314.ru/tekegram_catalog/

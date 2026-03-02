@@ -1,3 +1,212 @@
+###  Публикация: 1525407   (129210) от 21.01.2022
+
+VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спокойная и плавная музыка отлично подойдет для меланхоличных ребят, любящих наблюдать из окна за зимними пейзажами. Особенную атмосферу создает аранжировка, в которой напрочь отсутствуют жесткие ударные – это свойство предает композициям уникальный шарм комфорта001. Rico Rosario - Hit Hop
+002. Blue Avenue - The Floor Is On Fire
+003. Alexander Paris - Shining Night
+004. Leeman Brothers - Belisa(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5D5B451906E35F71D33A4C41A044BFAE63A93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525382   (129205) от 21.01.2022
+
+VA - Beatport Deep House: Sound Pack #397 (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая известная в музыкальных кругах  медиа площадка Beatport не перестает радовать своих почитателей музыкальными новинками. Вот и на этот раз она преподносит нам "Подарок" в виде 397-го электро саунда - микс самых известных композиций клубного дип хауса со всего мира.001. Junktion - Tribute
+002. Awsi - Lo Que Faltaba
+003. Efe Goroglu - There For You
+004. Peter Brown - This Feeling(   Читать дальше...   )Жанр: Deep House, Soft ElectroПродолжительность: 10:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6319632BDA2F8A0E2FD136B92962D69CB2E54499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525418   (129196) от 21.01.2022
+
+VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
+002. Memorio - Grace
+003. Subdream - Monsonoom
+004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525376   (129191) от 21.01.2022
+
+VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
+002. Simone D Jay - Move Your Feet
+003. DJ Planet Express - Wanted U 2 Kno
+004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525426   (129188) от 21.01.2022
+
+VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
+002. Theo De Tank - Make Me Feel
+003. Jürgen Degener - Rhyme
+004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488307   (129184) от 27.04.2012
+
+VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yolan & Kenia - На Пороге Лета (Extended Mix)
+02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
+03. Батишта feat. Ульяна Глушкова - Мама
+04. MainstreaM One - Всё Пройдёт
+05. Karizma - Я Забуду (Radio Edit)
+06. Алиса - Настроение
+07. Music Hayk - Почему Не Я
+08. Bi-O-Shock - Биоробот
+09. LiLi - Lady GaGa Отдыхает!
+10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525414   (129162) от 21.01.2022
+
+VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта музыка для тех. кто максимально отрешиться от проблем и уйти в себя, или познать что-то новое и расширить границы зоны комфорта. Для многих людей лучшим способом провести это время становится путешествие и не важно большое или маленькое, но обязательно под хорошую музыку.001. DJ D Redd - Sloppy Top
+002. Plasma2097 - Wayne Train
+003. Goncalo M - Operation Friction
+004. Makaja Gonzales - Silver Bullet(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525431   (129146) от 21.01.2022
 
 VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
@@ -562,209 +771,6 @@ ALSA - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB649AB69B34B49CB957A0216FC1B6CFDFADAA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684173   (127799) от 15.12.2023
-
-VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2xa - In Love (00:02:23)
-02. Ofenbach Feat. & Norma Jean Martine  - Overdrive (Extended Mix) (00:03:40)
-03. Sam Wick - Облаком (00:02:51)
-04. Aquaneon - Эта Любовь (00:01:57)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B49E8366E176ACAB44549115404E3729D00ED07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684667   (127659) от 16.12.2023
-
-ADIK - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  With Him
- 02.  Egypt
- 03.  Cosmos
- 04.  Anatomia(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501CEB008770CE7F464E0530F8D6CB2398D50F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684709   (127478) от 17.12.2023
-
-VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бумеr - Строгий Приговор (00:03:33)
-02. Кришталь - Пьяная (00:02:54)
-03. Сергей Вольный - Ничья (00:03:42)
-04. Элина - Любовь Сирота (00:03:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED604AEC421FAE7AC4F5A5CDD1E09B241586BD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684982   (127464) от 17.12.2023
-
-Azimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  World Hold On
- 02.  Angela
- 03.  The City of Love
- 04.  Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 06:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D8066836A05FEA31CA5572DDFBE9CA5698716C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684946   (127452) от 17.12.2023
-
-VA - Music News vol.324 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127452.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rozalia - Завяжи Мне Глаза (02:14)
- 002. Aespa - Jingle Bell Rock (Sped Up Version) (01:33)
- 003. Adventure Club feat. Delaney Jane - How Do I Say Goodbye (02:49)
- 004. Andy Dust feat. Cyril M & Mougleta - Lucky You (Andy Dust Vip Mix) (02:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109008D0FE871F1B4B78E6B902EBEF1B0AB94464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684785   (127415) от 17.12.2023
-
-Karimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stay With You
- 02.  Memories
- 03.  Soul
- 04.  Together(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1DC6C28B69241487E6392772AC56FA916385BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685316   (127265) от 18.12.2023
-
-Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Feu
- 02.  Allez Salut
- 03.  Lové
- 04.  Raison(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8818A3920999E942A3E2AF80ED906B0AEC5A7810
 ```
 
 https://mybot314.ru/tekegram_catalog/

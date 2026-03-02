@@ -1,3 +1,29 @@
+###  Публикация: 1796696   (17773) от 19.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Landscape Paintings Digital Paper Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны в виде пейзажных картин.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7AB8D28462ACFAD62E5D61C574FAFF5AB8E90E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796247   (17771) от 19.05.2025
 
 Звуковые библиотеки - Ghosthack - Skyrealm Volume 2 [WAV, MID]
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C2A8A3B13C9742E4903E8CE265768147D2A9ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797714   (17111) от 24.05.2025
-
-Фоны - assetpro .design - Behance - Surreal Gradient Waves - Backgrounds Collection - 142427923 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор разнообразных градиентных фонов цветных и чёрно-белых с дополнениями.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552CDDD780DBFBA7E4EA6E4DABE9C0E54B2321AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

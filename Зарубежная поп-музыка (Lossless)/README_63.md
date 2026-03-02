@@ -1,3 +1,119 @@
+###  Публикация: 957440   (326522) от 18.11.2015
+
+Justin Bieber - Purpose (2015) Deluxe Edition [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark My Words (2:14)
+02. I’ll Show You (3:20)
+03. What Do You Mean? (3:26)
+04. Sorry (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CA300464E492E1C772D517977738B2E41AC69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581997   (325321) от 07.10.2022
+
+VA - Top Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Glass Animals - Heat Waves (3:58)
+002. Justin Bieber - Ghost (2:33)
+003. Olivia Rodrigo - good 4 u (2:58)
+004. Elton John, Dua Lipa - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE4543506DF0116922017D842CCCC7A1CD6BAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958157   (324714) от 20.11.2015
+
+Adele - 25 (2015) [FLAC|Tracks+cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Send My Love (To Your New Lover)
+03. I Miss You
+04. When We Were Young(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7C36D8FF9D268A72AF189F309F24D774689121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958345   (323524) от 21.11.2015
+
+Adele - 25 (2015) Target Exclusive Deluxe Edition [FLAC|tracks+cue]<Indie Pop, Neo Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+ 02. Send My Love (To Your New Lover)
+ 03. I Miss You
+ 04. When We Were Young(   Читать дальше...   )Жанр: Indie Pop, Neo Soul, Vocal JazzПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4032EB5A43EFD72AD828D1614BC4591A599A84B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259156   (323382) от 02.11.2018
 
 Barbra Streisand - Walls (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -627,122 +743,6 @@ VA - Top Of The Pops '1978 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:362B0C2798C78EA930A6E4AF85C16C4DED8A7913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076351   (313686) от 25.11.2016
-
-Prince - 4Ever (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Rock, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss [3:46]
-02. Sign 'O' The Times [3:44]
-03. Alphabet St. [2:25]
-04. Batdance [4:07](   Читать дальше...   )Жанр: Pop, Rock, FunkПродолжительность: 02:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4391B6B188039ADA2D9E38EECF3642B75D5A8BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422218   (313058) от 07.11.2020
-
-Sade - Lovers Live (2002) Epic 506125-2 [FLAC|Lossless|image + .cue]<Sophisti-Pop, Adult Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherish the Day (6:38)
- 02. Somebody Already Broke My Heart (5:14)
- 03. Smooth Operator (4:17)
- 04. Jezebel (6:45)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F1C03D98C1C97BDCE968B8075C3B5205C0F000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182902   (312343) от 12.11.2017
-
-Roby Facchinetti & Riccardo Fogli - Insieme (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Italo Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strade (3:13)
-02. Per salvarti basta un amico (4:10)
-03. Le donne ci conoscono (4:12)
-04. Il ritorno delle rondini (3:48)(   Читать дальше...   )Жанр: Pop, Italo PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415416FE944E080159659749F6D7F839E94CA2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959954   (312251) от 26.11.2015
-
-Madonna - Something To Remember (1995) [FLAC|tracks+.cue]<Downtempo, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna With Massive Attack , - I Want You (6:23)
-02. I'll Remember (4:22)
-03. Take A Bow (5:21)
-04. You'll See (4:41)(   Читать дальше...   )Жанр: Downtempo, BalladПродолжительность: 00:65:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB05B86E55F756F2B94F0626D1B6A2BEFB331F83
 ```
 
 https://mybot314.ru/tekegram_catalog/

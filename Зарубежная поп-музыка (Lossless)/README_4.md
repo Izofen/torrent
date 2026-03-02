@@ -1,3 +1,121 @@
+###  Публикация: 1448467   (1030930) от 17.02.2021
+
+Tindersticks - Distractions (2021) [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Alone (Can't Stop the Fadin') (11:07)
+02. I Imagine You (05:36)
+03. A Man Needs a Maid (04:42)
+04. Lady with the Braid (06:59)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB19D37FC134F90436BB4A07230A449870691A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449366   (1029966) от 21.02.2021
+
+Ariana Grande - Positions (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. shut up
+02. 34+35
+03. motive (feat. Doja Cat)
+04. just like magic(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AC11FADF02F66E2C4D44B651E7E2893806EB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623115   (1029601) от 31.03.2023
+
+Elton John - Honky Château: 50th Anniversary (1972, 2xCD, Remastered, 2023, Rocket Entertainment) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Honky Château — пятый студийный альбом британского певца и композитора Элтона Джона, выпущенный в 1972 году. Пластинка была названа в честь французского замка XVIII века Шато д’Эрувиль, где проходила её запись. Альбом занял первое место в США, став первым серии из семи последовательных альбомов Джона, возглавлявших национальный хит-парад.
+
+В феврале 1972 года (   Читать дальше...   )CD One:
+ Honky Château:
+01. Honky Cat
+02. Mellow(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84031A3513464E4DC0CE1E7304C350E1C5CEB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449924   (1029574) от 23.02.2021
+
+Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (04:05)
+02. My Favourite Game (03:35)
+03. Apologize (02:48)
+04. You Have Been Loved (04:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E5D81B5234960CF500F9AE7E1C5781ECA547C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450128   (1029189) от 25.02.2021
 
 Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -626,122 +744,6 @@ Stan Van Samang - Feel The Power (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B4B10F456952354089B53EF3E76D0F34D0DB80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456650   (1024916) от 23.03.2021
-
-VA - Vintage Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Taylor - Walking Man
-02. The Doobie Brothers - The Captain and Me
-03. Seals and Crofts - Get Closer
-04. Carly Simon - One More Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730C259F06C18193DC4875E691BEC947E75ED11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456633   (1024878) от 23.03.2021
-
-Chris Rea - Platinum (1997) Compilation Unofficial Release Russia [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell - Part 1 &Part 2
-02. Josephine
-03. Let's Dance
-04. Auberge(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77A572F71D5F0F67BD9B1B02BAA1BCBD9A36EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083304   (1024725) от 24.03.2021
-
-Sweetback - Sweetback (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Jazz, Trip-Hop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaze (5:27)
- 02. Softly Softly (4:29)
- 03. Sensations (4:30)
- 04. Au Natural (4:15)(   Читать дальше...   )Жанр: Electronic, Jazz, Trip-Hop, DowntempoПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29D5CB264E3B19DC6680CF648697378622E2574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457192   (1024523) от 25.03.2021
-
-Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willow
-02. Champagne Problems
-03. Gold Rush
-04. ‘Tis The Damn Deason(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6176C4CC790C6708155817622524EED983DA8906
 ```
 
 https://mybot314.ru/tekegram_catalog/

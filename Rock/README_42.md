@@ -1,3 +1,61 @@
+###  Публикация: 1040134   (587523) от 04.08.2016
+
+Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Alternative Pop Rock, Electronic Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels
+02. Unseeing Eyes
+03. Go
+04. Hello(   Читать дальше...   )Жанр: Alternative Pop Rock, Electronic Indie Rock, ShoegazeПродолжительность: 00:39:00 + 00:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1455C09CE2F7FE3774ED593CF8CFE213474479F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918653   (586034) от 16.07.2015
+
+The Plott Hounds - Living Free (2014) [MP3|320 кб/с]<Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southbound (04:22)
+02. Living Free Or Dying To Try (03:44)
+03. This Ain't No Country Song (03:51)
+04. Growing Young (02:59)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435562FFE53223D2424199683DD082A8ED32470E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551990   (585874) от 22.05.2022
 
 Arbiter - 4 Releases (2021-2022) [MP3|320 Kbps] <Heavy Psych Rock>
@@ -694,64 +752,6 @@ Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921124   (577608) от 24.07.2015
-
-Donovan -  Les Genies du Rock - Catch The Wind (1995) [MP3|320 кб/с]<Folk Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Candy man (3:29)
-02.  Jersey thursday (2:13)
-03.  Ballad of a crystal man (3:54)
-04.  The little tin soldier (3:05)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E8B275AF246A7802699A578CC764F45B9518C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150919   (577558) от 16.07.2017
-
-Eagles - Their Greatest Hits Volumes 1 & 2 (2017) (2CD) [MP3|320 Kbps] <Rock, Blues-Rock, Country-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Take It Easy  3:32
-02.  Witchy Woman  4:11
-03.  Lyin' Eyes  6:22
-04.  Already Gone  4:15(   Читать дальше...   )Жанр: Rock, Blues-Rock, Country-RockПродолжительность: 01:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E062CC04CF1828644C4A49020BCF738E7E179D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

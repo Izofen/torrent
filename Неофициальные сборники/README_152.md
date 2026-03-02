@@ -1,3 +1,206 @@
+###  Публикация: 1008409   (816116) от 18.04.2016
+
+VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gateway 88 - Dark Brotherhood (Aldo Henrycho Remix) 07:21
+02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
+03. Ather - Evelyn (O.B.M Notion Rmx) 07:44
+04. Dreamy - Know Thy Self (Original Mix) 08:46(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B363BB0B69AD49EF50F90F8358EDFA090AB6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008427   (816036) от 18.04.2016
+
+VA - Resident Advisor Top 50 Charted Tracks March (2016) [MP3|320 кб/с] <Tech House, Nu-Disco, Electronica, Minimal, Tribal, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon Emerson - The Frontier (Original Mix) [07:35]
+02. ANNA - Odd Concept (Original Mix) [07:19]
+03. Antigone - Hiraeth (Original Mix) [06:36]
+04. Basti Grub, Natch & Dothen - Oh Baby Dance (Original Mix) [06:49](   Читать дальше...   )Жанр: Tech House, Nu-Disco, Electronica, Minimal, Tribal, TechnoПродолжительность: 05:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC7CD469E82F5B114114637733B18327D4A1B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008349   (815937) от 18.04.2016
+
+VA - Ночь в дороге (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вхип (Владимир Хомутов Игорь Павлов) - Непьющий
+02. И. Кучин - Шняга
+03. Игорь Махачкалинский - Седой скрипач
+04. Каре Андрей - Сними наручники, конвой!(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8F48565FA32B2379E61CCE6A74F1E36AE8207F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008372   (815933) от 18.04.2016
+
+Александр Торчилин - Белый снег - Любимых никогда не выбирают (2005) [MP3|320 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В эту ночь
+2. Белый снег
+3. Недавно это было
+4. Что ты делаешь со мной(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2B572333FC521ECCD522D9D0DF0A3A87191064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008380   (815930) от 18.04.2016
+
+Александр Торчилин - Военный альбом (2004) [MP3|320 кб/с] <Военная песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На сопках Маньчжурии
+02. Тучи над городом встали
+03. Последний бой
+04. Мишка-одессит(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28935FD51E43492D19091EBB537E5BCD395309CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008619   (815925) от 18.04.2016
+
+VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristiano Pomante Quartet - Maybe
+02. Guido Russo - Antigua
+03. Overflow - Sunny
+04. Frank Tayla - Tropez(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503924   (815860) от 21.10.2021
+
+VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W, Timmy Trumpet, R3hab - Distant Memory (2:30)
+02. Will Sparks - My Company (4:03)
+03. Virtual Riot, LeKtriQue, Leah Culver - Neon Angel (4:44)
+04. Vini Vici, Diego Miranda, Wuant - More Power (3:28)(   Читать дальше...   )Жанр: Club House, Dance, OtherПродолжительность: 05:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E2316A075FE8F16CD3B431DC239EE450D9A3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197435   (815813) от 07.01.2018
 
 VA - Record Super Chart #518 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -544,209 +747,6 @@ VA - Lounge Royale: Exclusive Music Selection (2016) [MP3|320 кб/с] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E18C1571FFC16014557428FCB8BB9BFED146D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008850   (813935) от 19.04.2016
-
-VA - Whatpeopleplay Top 100 Topseller March (2016) [MP3|320 кб/с] <House, Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mr. Fingers - Qwazars [06:17]
-002. Frank Wiedemann - Moorthon II (Original Mix) [08:56]
-003. Borrowed Identity - Mary Jane [07:12]
-004. Soulphiction - Make it Burn [05:25](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 11:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF293D329CC28C621937B88C4B056948CC267542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008661   (813934) от 19.04.2016
-
-VA - LUXEmusic: Dance Super Chart Vol. 64 (2016) [MP3|320 кб/с] <Club House, Dance, Deep House, Electro House, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - P.I.M.P. (DJ Krupnov & DJ All Inclusive feat DJ O'Neill Sax Radio Edit) [03:12]
-02. Adele - Hello (DJ Denis Rublev Remix) [04:25]
-03. Aisha - Новое поколение (DJ Andy Light & DJ O'Neill Sax Radio Remix) [03:49]
-04. Anton Liss feat. Гейдар Багиров - Океаны (Radio Edit) [03:45](   Читать дальше...   )Жанр: Club House, Dance, Deep House, Electro House, HouseПродолжительность: 03:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2BDFEA738293E20D044E79199DE172BA61E7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711820   (813819) от 14.04.2014
-
-VA - Italo Super Hits vol. 1 - 17 (2014) Часть 1[MP3|171 - 320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ann Lee - I Get The Feeling (Digimax Remix Alex Daal Edit) (07:49)
-02. Brian Ice - Inside My Lonely Nights (vocal version) (06:05)
-03. C. C. Catch - Jump In My Car (Baart'B Bootleg) (04:38)
-04. Cairo - Ilyen a Nyar (Crag P. Italo Disco Remix) (04:00)(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Synth-Pop,SpacesynthПродолжительность: 43:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9111B90846184F5B151D9C837FE6407383F1B001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008864   (813803) от 19.04.2016
-
-VA - Elite Lounge: April Relax (2016) [MP3|320 кб/с] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ajad Samskara - Byron Bay
-002. Don Gorda Project - Disambiguation
-003. Vedo - Beautiful Monster
-004. Blank & Jones - Nuits Blanches(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 08:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AD0B5250C2EEEDC05371BB1A7A11B86BADF1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383071   (813750) от 14.05.2020
-
-VA - Happy Love Day (2020) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Coco - Villa Bonita
-02. Luke Evans - Show Me Heaven
-03. Penny Police - Kig Op
-04. Glenn Soukesian - Figure It Out(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 05:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A682864420D4B496479ED1DE2E016F699271ECC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383146   (813749) от 14.05.2020
-
-VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Udo Jürgens - Mit 66 Jahren 03:39
-02. Connie Francis - Schöner fremder Mann 02:41
-03. Jürgen Marcus - Eine neue Liebe ist wie ein neues Leben 03:46
-04. Juliane Werding - Am Tag als Conny Kramer starb 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8A1BC6045D400AB2505F00B37E524AB2A83DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383073   (813743) от 14.05.2020
-
-VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Upsetters - Night Doctor
-002. Spart MC - Jalouzi
-003. L.A.B. - Running
-004. Madison - Free(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 07:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CDE3EFB92A8B667758707ABAD88B2F72792F64
 ```
 
 https://mybot314.ru/tekegram_catalog/

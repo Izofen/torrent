@@ -1,3 +1,61 @@
+###  Публикация: 1557129   (542811) от 14.06.2022
+
+Mount Caravan - Demo (1998-2002) 2022, DAREDEVIL RECORDS [MP3|320 Kbps] <Heavy Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MASTERS OF THE INNERSPACE [00:06:01]
+02. OCEAN WANDERER [00:06:32]
+03. GASOLINE VAN [00:04:57]
+04. THE HOLLOW CORE (Instrumental) [00:05:16](   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 3CD, 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEAD65AF72D2E9DBDA3C4E66D39B772BFA7CE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557245   (542704) от 14.06.2022
+
+Sleazy RoXxX - Trinity Junction (2022) [MP3|320 Kbps] <Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyz4boyz [00:03:30]
+02. Curse Of Generation [00:04:57]
+03. Drunk To Forget [00:04:06]
+04. Everything [00:03:27](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CED2675E0874E85CDD21C620B0DDC1085F38C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556832   (542700) от 14.06.2022
 
 10cc - The Things We Do For Love: The Ultimate Hits and Beyond (2022) 2CD, Digital Deluxe, Xploded Music Limited [MP3|320 Kbps] <Art Rock, Art Pop, Progressive Pop, Soft Rock>
@@ -687,64 +745,6 @@ VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F615F903004CB8E78FB0A4FEBC46519B8594537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240467   (524255) от 12.08.2018
-
-VA - Classic Road Trip (2018) [MP3|320 Kbps] <Blues, Psychedelic Rock, Folk, Blue-eyed Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524255.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-  1. The Rolling Stones - Start Me Up
-  2. Cream - Sunshine Of Your Love
-  3. The Who - Who Are You(   Читать дальше...   )Жанр: Blues, Psychedelic Rock, Folk, Blue-eyed SoulПродолжительность: 03:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF80E08F71407A16B69E7A20F924155FC5D0CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927791   (524124) от 14.08.2015
-
-The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб/с]<Goth Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Generals (3:26)
-02.  Dozen girls (4:36)
-03.  Disguise (3:30)
-04.  Take that (2:51)(   Читать дальше...   )Жанр: Goth Rock, PunkПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE12859D05E0841DE2D29E45B833D79A58D84183
 ```
 
 https://mybot314.ru/tekegram_catalog/

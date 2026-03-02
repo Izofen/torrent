@@ -1,3 +1,206 @@
+###  Публикация: 1038731   (604978) от 29.07.2016
+
+VA - Rocco Presents Hands Up Heroes Vol. 9 (2016) [MP3|320 Kbps] <Hardcore, Hands Up, Dancecore,>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocco -  Illusion (feat Fara) (Club Mix) 4:40
+02. Nesh Up -  Boomin Bass (Club Mix) 5:00
+03. Ray Knox -  Back in 1984 (Rob Mayth Remix) 4:20
+04. Alex Cortez Projekt -  All I Want (feat CvB) (Alex Megane Newdance Mix) 4:59(   Читать дальше...   )Жанр: Hardcore, Hands Up, Dancecore,Продолжительность: 01:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE23204EBDAE5A9D2B46149BE3819078F5D4829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231478   (604971) от 18.06.2018
+
+VA - Swing Jazz Improvization (2018) [MP3|320 Kbps] <Swing Jazz, Electro Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doobie - Swing Interlude
+002. Phos Toni - Dirty Skirt
+003. Arthur Pochon & Charles Chemery - Disco de Paris
+004. Swingrowers - Via con me(   Читать дальше...   )Жанр: Swing Jazz, Electro JazzПродолжительность: 08:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641879E7506973D47D0FD64A93C7B68327A4585D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038689   (604960) от 29.07.2016
+
+VA - Time for Jazz: Mellow Cafe Jazz, Soul Imagine Jazz Music (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz 2016 - Romantic Dinner Party
+02. Chilled Jazz Masters - Cafe Bar
+03. Smooth Jazz Band - Coffee Time
+04. Jazz Lounge - Cocktails & Drinks(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5396B11E47A3708929A6BD0DF022BFB8C90BEB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038868   (604957) от 29.07.2016
+
+VA - Ballads for Lovers Vol.3 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash Test Dummies - In The Days Of The Caveman
+02. Tina Turner - Let's Stay Together
+03. Roxette - Fading Like A Flower
+04. Haddaway - I Miss You(   Читать дальше...   )Жанр: PopПродолжительность: 02:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613935D38B8655578BCA3936C2F94FDE42103400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231492   (604888) от 18.06.2018
+
+VA - Memories Of Mad Desire: Disco Multimix (2018) [MP3|320 Kbps] <Disco, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nada - Brividi D'amore
+002. Tiziano Ferro - Paura Non Ho
+003. Bisquit - Zoo Zoo
+004. Al Bano Carrisi - Io Di Notte Zuviele Nachte Ohne Dich(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 08:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307E1D19B1C437C2DE7A388ECBB105E371B8D541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038680   (604836) от 29.07.2016
+
+VA - Chicane - Twenty (2016) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane -  Offshore (Thomas Datt Remix) 7:32
+02. Chicane & Bryan Adams -  Don't Give Up 3:31
+03. Chicane & Ferry Corsten feat. Lisa Gerrard -  38 Weeks (KOKO Version) 6:08
+04. Chicane & Steve Edwards -  Carry Me Home (Twenty Rave Remix) 5:28(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573C51DA09B6CDA2EFBAEE7D4DD8DD10518D065A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297231   (604833) от 21.04.2019
+
+VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604833.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike Nero - Messed Up My Mind (Original Mix)
+002. Boryana - Simulation
+003. Santiago Garcia - Apes On Mars (Original Mix)
+004. T78 - Stinkor (Original Mix)(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBCF7F0DAAE1C3350BD94943CA55AC63A361BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297263   (604827) от 21.04.2019
 
 VA - April Bassline Mastermix (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass>
@@ -545,212 +748,6 @@ VA - Песни далекого детства (2017) [MP3|320 Kbps] <Шанс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DC1D6F1C72248DE14B1C324A044E5D64367FC39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231730   (603764) от 20.06.2018
-
-VA - German Top 50 Party Schlager Charts 18.06.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Andreas Gabalier - Verdammt lang her
-04. Michelle - In 80 Küssen Um Die Welt(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA28DA6762C488DE6C8A360579FA9D80ECA85C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231841   (603696) от 20.06.2018
-
-VA - Vários 44 (2018) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603696.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-
-01. Shawn Mendes - In My Blood
-02. Justin Timberlake Feat. Chris Stapleton - Say Something(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:22:15
-
-01. Calvin Harris Feat. Dua Lipa - One Kiss
-02. Thirty Seconds To Mars - Dangerous Night(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665A7BBFFB54121584EC3180CFAE8C6F01C9D553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231807   (603672) от 20.06.2018
-
-VA - Trance Collection Vol.70 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abstract Vision & Emma Horan - Second Chance (Extended Mix)
-002. Aly & Fila with Emma Hewitt - You & I  (Extended Club Mix)
-003. Alan Morris & Enzo feat. Jess Morgan - Tapestry of Us  (Extended Mix)
-004. Alexander de Roy feat. Macy - Believe in Love Again (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 10:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58610FAD828DC0399ABCF1F5D56B19F84E2C34CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231806   (603669) от 20.06.2018
-
-VA - Deep House Collection Vol.175 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603669.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alesso, Anitta  -  Is That For Me  (Rumble Remix)
-002. Ahmet Kilic  &  Stoto  &  Adeba  - Stumblin' In (feat. Adeba) (Mr.MoudZ Remix)
-003. Ahmet Kilic  &  Stoto  &  Adeba  - Stumblin' In (feat. Adeba) (The Distance & Igi Remix)
-004. Alex Espo - Happiness (Original mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53BA2270F6ADB05FCAE70549E206CA35DAD28FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297557   (603604) от 23.04.2019
-
-VA - German Top 50 Party Schlager Charts 22.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Maite Kelly - Heute Nacht für immer
-03. Kerstin Ott - Regenbogenfarben
-04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC28B7BEDD6978941A6C20E069032AB019D92C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297553   (603597) от 23.04.2019
-
-VA - Options Remake Of Tracks April -B- (2019) [MP3|320 Kbps] <Tropical, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Izakaya Deployment - Speed
-02. Gmj & Matter & Universal Harmonics - Aphelion (Extended Mix)
-03. Emod - A Split Second
-04. Lokovski & David Folkebrant - No Pressure(   Читать дальше...   )Жанр: Tropical, Progressive, Future HouseПродолжительность: 06:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F8F705E73E5E48BD855F458121BE3EBEF0A977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148518   (603450) от 07.07.2017
-
-VA - Trance Masters 100 Greatest Hits Ever (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603450.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drival - Shooting Star
-002. The-Thirst For-Flight - The Shining Of The Stars
-003. Daniel Kandi & Dreamy - Match Made In Heaven
-004. Pan - Space Ride (Club Edit)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C86414B3081D411BE21B3B94D0911D8BBF9E71
 ```
 
 https://mybot314.ru/tekegram_catalog/

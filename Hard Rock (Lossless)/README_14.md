@@ -1,3 +1,61 @@
+###  Публикация: 1355252   (984871) от 25.01.2020
+
+Dirty Shirley - Dirty Shirley (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes the King
+02. Dirty Blues
+03. I Disappear
+04. The Dying(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD896F5D5CCD8BE67B990CB2712058BC26FE6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355399   (983618) от 26.01.2020
+
+Pay Pandora - Hunt the Prey (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain or Shine
+02. 3Let It Burn
+04. 5The Hunter and the Prey
+06. Take Off(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBB6CE9495DF02FD231C517662F811BB2BC7C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355408   (983454) от 26.01.2020
 
 Black Sabbath - 13 (2013) [FLAC|Lossless]<Hard Rock, Heavy Metal>
@@ -686,64 +744,6 @@ The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D359264E3DC126F087CF0CF15F49BCE3EC857A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363903   (941020) от 29.02.2020
-
-L.A. Guns - Golden Bullets (2003) [FLAC|Lossless|image + .cue] <Glam, Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slap In The Face (03:55)
-02. Sex Action (03:55)
-03. Ritual (03:54)
-04. Electric Gypsy (03:48)(   Читать дальше...   )Жанр: Glam, Hard'n'HeavyПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902396A7D86E194DDF66F14E1D2F95DD34AB8D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984365   (939622) от 08.02.2016
-
-Scorpions - Best Ballads (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Loving You (06:27)
- 02. You And I (06:19)
- 03. Lonely Nights (04:52)
- 04. When The Smoke Is Going Down (03:53)(   Читать дальше...   )Жанр: Hard Rock, BalladПродолжительность: 02:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DDB9D2DA345C9BDAD7F934381F82AC4D231AF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1392131   (769845) от 24.06.2020
+
+Carly Rae Jepsen - Dedicated Side B (2020) Japan Exclusive [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Love Isn't Crazy (03:53)
+02. Window (03:18)
+03. Felt This Way (03:37)
+04. Stay Away (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694991712B38887581B2DC18E3B7A0070C7FAF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017050   (769510) от 15.05.2016
+
+Бумбокс - Люди (2016) EP [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди
+02. Мала
+03. Выход
+04. Рок-н-рол(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAF3DE2DCBFB3D3B3B4C6265F3990E6CC20A500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016659   (769500) от 15.05.2016
+
+Bee Gees - In The Mood Of Love (2015) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Love Somebody (3:01)
+2. Massachusetts (2:24)
+3. Words (3:16)
+4. I've Gotta Get A Message To You (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock, DiscoПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690C646FB4EC07CD2049F96CE54CDCF8A86BC31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392420   (769232) от 26.06.2020
+
+VA - Wedding Party 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool & The Gang - Celebration (Album Version)
+02. Technotronic, FELLY - Pump Up The Jam (Edit)
+03. Black Eyed Peas - I Gotta Feeling (Album Version)
+04. Bryan Adams - Summer Of '69(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 01:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E8423E1BBFF3F77A88E3072D3C0DF0A714745E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124563   (768814) от 14.04.2017
 
 Johnny Mathis - The Real... Johnny Mathis (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -626,122 +742,6 @@ Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017751   (760778) от 17.05.2016
-
-Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760778.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фоне возросшего интереса к этой самобытной певице с Украины, думаю будет не безинтересно познакомиться с последним её альбомом. Мне показалось, что на Евровидении всеж её голос звучал значительно профессиональнее и лучше. Но это чисто ИМХО. А каждый может сложить своё мнение. Особенно рекомендую послушать Обещание - настоящий хит на все времена!01. Подих  (4:31)
-02. Чому саме тебе (You've got me)  (3:25)
-03. Шлях додому  (4:29)
-04. Бiльше (feat Marphom)  (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B0F6E1220A52E4ECE2DEDB38F78119B64DD5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215339   (759618) от 25.03.2018
-
-VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759618.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Rubettes - Sugar Baby Love [03:21]
-2. Santa Esmeralda - Don't Let Me Be Misunderstood [03:25]
-3. Mud - The Cat Crept In [04:07]
-4. Dillinger - Cocaine In My Brain [05:09](   Читать дальше...   )Жанр: Rock, Reggae, PopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780720   (759475) от 26.04.2014
-
-VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
-Продoлжитeльность: 01:14:49
- 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
-02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781226   (757757) от 27.04.2014
-
-VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757757.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:21] 01. Kylie Minogue - I Should Be So Lucky
-[04:01] 02. Jive Bunny & The Mastermixers - That's What I Like
-[03:29] 03. F.R. David - Words
-[05:45] 04. David Christie - Saddle Up(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
 ```
 
 https://mybot314.ru/tekegram_catalog/

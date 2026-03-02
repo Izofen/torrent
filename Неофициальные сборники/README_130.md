@@ -1,3 +1,206 @@
+###  Публикация: 1002150   (849107) от 31.03.2016
+
+VA - Trance Сollection vol.40 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 ABHISHEK Y2V-The Myst (Extended Mix) 05:21
+002 Abide-Perpetuity (Original Mix) 08:02
+003 Air Project-Memoirs (Original Mix) 06:51
+004 Alex Byrka & Jay Flora feat. Tanya Lindsgrey-Magic (Andrew Lang Remix) 06:23(   Читать дальше...   )Жанр: TranceПродолжительность: 10:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADC623E8AEBA28CF5B610833C87E53FD9203259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002237   (849001) от 31.03.2016
+
+VA - The Sound Of Soul Heaven Miami (2016) [MP3|320 кб/с] <House, Club House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound of Soul Heaven Miami 2016 Mix 1 (Continuous Mix) [70:43]
+02. The Sound of Soul Heaven Miami 2016 Mix 2 (Continuous Mix) [71:02]
+03. The Sound of Soul Heaven Miami 2016 Mix 3 - Classics Mix (Continuous Mix) [71:31]
+04. The DangerFeel Newbies - What Am I Here For? (Kai KZR Alcé Late Night Mix) [07:05](   Читать дальше...   )Жанр: House, Club House, Deep HouseПродолжительность: 08:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDF2A4E2D8D45CCC4F42CA0DF455113E91B26A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002463   (848998) от 31.03.2016
+
+VA - Romantic Deep and Future House Beedroom Music (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crew 7 - Luv 4 Luv - Club Edit
+02. Konstantin Maria - Take A Chance - Kim Morgan & Tobstar Remix Edit
+03. Carlos Room - Rocket
+04. Arom Side - Are You Ready(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E95482DEE82D3DF4653417FBDDC403848538CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002409   (848921) от 31.03.2016
+
+VA - Fitness House.Musical Energy (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Nico Otten-Sueno (Radio Cut) 04:02
+02 Sonny Vice vs. Antiheroes-Rock 'n' Rolla (Radio Cut) 03:35
+03 Sam Slim-Break Your Spell (Radio Cut) 03:51
+04 Ian Solano-Quadzilla (Radio Cut) 04:02(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C74F0394A599289B80930E63D48861DC26FE094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002244   (848900) от 31.03.2016
+
+VA - Pure 90s Time Garden (2016) [MP3|320 кб/с] <Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozzy Osbourne - I Just Want You 04:56
+02. The Wallflowers - Three Marlenas 04:59
+03. Nirvana - Heart Shaped Box 04:41
+04. Bon Jovi - Keep The Faith 05:44(   Читать дальше...   )Жанр: Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, CountryПродолжительность: 08:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F729B3570A0478AD1B4E09EB2CDC44EFDCFCE796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002220   (848894) от 31.03.2016
+
+VA - Healing Meditation Zone (2016) [MP3|320 кб/с] <Relax, Meditation, Downtempo>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848894.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aandra - Songs of the Sea (Feat. Soul Sista Shakti)
+002. Rebirth Yoga Music Academy - Deep Meditation (Morning Birds, Waterfall)
+003. Florito - Neiva
+004. Calming Music Sanctuary - Yoga Infinity Journey(   Читать дальше...   )Жанр: Relax, Meditation, DowntempoПродолжительность: 07:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A6A28DB8488FBDE85A8F17C490FC2FC80CC772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111326   (848854) от 05.03.2017
+
+VA - Козырная песня на Шансоне. Версия № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Куприк - Молва 4:06
+002. Алексей Брянцев - Тайна 4:10
+003. Дмитрий Романов - Пожалей Ты Меня 2:27
+004. Анатолий Мякушкин - Моя Звезда 4:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48F6C435657D244EB4E52E19055383C8CDDB246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111329   (848851) от 05.03.2017
 
 VA - Я слушаю шансон выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
@@ -542,209 +745,6 @@ VA - Promo Only Express Audio DFF February Week 02 (2021) [MP3|320 Kbps] <Hip-Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB41D223CFF24CA86C8DFD4CC12FFE10B8856762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378083   (847954) от 24.04.2020
-
-Ronnie James Dio - 100% Dio (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dio - I Speed At Night
-02. Dio - Rainbow In The Dark
-03. Black Sabbath - Falling off the Edge of the World
-04. Ronnie James Dio - Love Is All(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA27566A2B21A26922D3FB61B63A9A5F8F1061F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111376   (847753) от 05.03.2017
-
-VA - Дискотека 80-90 х По-Новому Зарубежный выпуск № 43 (2017) [MP3|320 Kbps] <Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847753.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lian Ross - Say You'll Never(DJ NIKOLAY-D Remix ) 6:31
-002. DANUTA - Touch My Heart (DJ NIKOLAY-D & DJ RONNY Remix ) 7:01
-003. HEAVEN 42 feat. DJ NIKOLAY-D - Just Tonight(SUPER LONG Remix ) 9:42
-004. Angle Gold - Eat You Up (DJ NIKOLAY-D, DJ OLGA-D & DJ RONNY Remix ) 8:14(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231DE5F4656708DE0C49FFCE3B995F3B8CB61A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111355   (847751) от 05.03.2017
-
-VA - Mega Дискотека 80-90-х В Современной Обработке (2017) [MP3|256-320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A - Ha - The Sun Always Shines On TV ('500 Channels & Nothing's On' Instrumental Dub Mix) 7:10
-002. Aaron Ambrose feat. Paulina - Moonlight Shadow (Scotty Remix) 4:11
-003. Boney M - Happy Song (Dj Ikonnikov E.x.c Version) 6:36
-004. Clan Dj Team - The Groove Has Change (Sergey Zar Radio Mix) 4:43(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03093347F355144E73D884738DFD7C1E7F14C36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498737   (847678) от 02.10.2021
-
-VA - I Can See Through You: 60s Psychedelic Rock & Garage Beat Rarities Vol.3 (2021) [MP3|320 Kbps] <Rock, Funk, Garage Rock, Soul>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazarus - In the Beginning
-02. The Geers - I Need You
-03. The Rugbys - Juditha Gina
-04. The Jerms - Green Door(   Читать дальше...   )Жанр: Rock, Funk, Garage Rock, SoulПродолжительность: 01:29:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF3ECCFF76A4A6B5A527CF0263B68290B8C0BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499646   (847598) от 02.10.2021
-
-VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847598.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. PlayingTheAngel feat. Rory - Доверяй Мне (02:52)
- 002. Adam Maniac & Melissa - Танцевать (03:04)
- 003. Aikko feat. ЮККИ - Лучше Всех (02:31)
- 004. AKVA - Аспирин (02:16)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF75BD33D633F5924BBE65CF83F3136A9F40E55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498597   (847466) от 02.10.2021
-
-VA - Masters Of Hardcore Chapter XLIII Magnum Opus (2CD) (2021) [MP3|320 Kbps] <Hardcore & Hardstyle, Speedcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847466.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Angerfist - What Happened
-02. Re-Style & Cammie Robinson - Kryptonite
-03. N-Vitral & Never Surrender - Wij Gaan Harder(   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 02:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8871E133C5AA89F36C2E0A53B8B8FFBF4A97AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499035   (847454) от 02.10.2021
-
-VA - Радио Рекорд Dance 2021 Выпуск 2 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Quba, Sandra K, IDA - Silence (2:30)
-02. Scott Forshaw, Alix Robson - But I Do (2:55)
-03. Marco Dalla Villa - Baltasound (2:26)
-04. Shaun Williams - I Got This Love (3:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A4272829427AF6F8B6EC4F7E97A8E86CA53F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

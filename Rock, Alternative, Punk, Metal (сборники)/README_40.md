@@ -1,3 +1,32 @@
+###  Публикация: 1427691   (181411) от 30.11.2020
+
+VA - Instrumental Rock Classic (2020) [MP3|192-320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sammy Boller - Dark Night Of The Soul
+002. Covet - Falkor
+003. Brave The Waters - Out Of Nowhere
+004. The Ascent - Secret Truth(   Читать дальше...   )Жанр: RockПродолжительность: 08:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455A3B9201EDFD823F3E471A6234B4CCAAF93CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428119   (180750) от 01.12.2020
 
 Brian Connolly - Do It Again (Compilation) (2020) [MP3|320 Kbps] <Rock, Glam Rock>
@@ -716,35 +745,6 @@ VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516086   (166572) от 10.12.2021
-
-VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part I:
-01. Pepe Ahlqvist And The Sunset Boulevard - Don't Leave Me Again (04:25)
- 02. Dr.Feelgood - Second Opinion (03:23)
- 03. Bobby Blue Bland - Sad Street (06:40)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C318A0B5F5B9D02B96D133B590D7CC8124C26D69
 ```
 
 https://mybot314.ru/tekegram_catalog/

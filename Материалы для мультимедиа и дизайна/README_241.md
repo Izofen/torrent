@@ -1,3 +1,29 @@
+###  Публикация: 720228   (379009) от 08.11.2013
+
+Векторный клипарт - Дизайн футболок 13 / T-Shirt Design 13 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн футболокФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1448EF01BCFDCE8BB270C9659F0EB138C8AC172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327138   (378489) от 23.09.2019
 
 Boom Library - MONSTERS & BEASTS [WAV]
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C56621408057F7AF1D3788F6678330642BC679C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327409   (373996) от 25.09.2019
-
-VideoHive, GraphicRiver, AudioJungle - Envato Bundle 2012 - 50 Premium Items Collection (Re-Up) [AEP, PSD, MOV, MP3, WAV, ATN, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373996.jpg" />
-</div>
-
-
-###  Подробнее
-
-этот сборник поможет веб-дизайнерам и графическим дизайнерам создать свои проекты в, Photoshop, After Effects, Background, Flyers, Facebook Covers и т. дФормат: AEP, PSD, MOV, MP3, WAV, ATN, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E3A65E65CA6AC9B54725E8027305E3EBBEF4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

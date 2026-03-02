@@ -1,3 +1,61 @@
+###  Публикация: 980958   (954596) от 30.01.2016
+
+VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Throne - Bring Me the Horizon
+02. Shinedown - Cut the Cord
+03. Fall Out Boy - Uma Thurman
+04. Royal Blood - Litte Monster(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4E78AFEB8A03F15A2E63F97ECF41228584ECD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981129   (953047) от 31.01.2016
+
+TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engine 04:38
+02. Refugee 04:21
+03. Ship In the Night 04:02
+04. Take It Like a Man - Woman! 03:03(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7701ADBC6C9AA1110988260BD9A119A1944624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981090   (952607) от 31.01.2016
 
 VA - Ultimate Rock - 4CDs of great rock music (2015) [MP3|320 кб/с] <Hard Rock, Metal, Classic Rock>
@@ -689,64 +747,6 @@ Utopia - Oops! Wrong Planet (1977) Remastered, 1995, Mobile Fidelity Sound Lab [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0015859709235DC362C38EED22A489BB2FA46666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861868   (931951) от 22.01.2015
-
-VA - Riders On The Stoorm: 16 Psychedelic Rock Nuggets (2014) [MP3|320 кб/с]<Psyhedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931951.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bungalow Bums - Liar (PZDBL) (3:48)
-2. Casper Blanca - Camp Neverland (4:20)
-3. Coma Serfs - Serfin' Arizona (2:40)
-4. Interstellar Overdrive - Best Thing (2:50)(   Читать дальше...   )Жанр: Psyhedelic RockПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEA7AC434157B232948B1B53FF5471BF4AA8D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094517   (929385) от 18.01.2017
-
-Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coolin'
-2. Best Woman, Best Friend
-3. Live Your Love A Lie
-4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
 ```
 
 https://mybot314.ru/tekegram_catalog/

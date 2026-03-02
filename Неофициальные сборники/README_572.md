@@ -1,3 +1,206 @@
+###  Публикация: 1514796   (213910) от 05.12.2021
+
+VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хардстайл - это настоящий рай для ушей. Мелодично, эпатажно, быстро, безумно, красиво и тяжело, ведь не каждый может выдержать напор ритма в 150 ударов. Но тем не менее, поклонников этого жанра меньше не становиться. С того момента, как в 2000-х в результате экспериментов, возник этот стиль ряды фанатов этой музыки только множатся.001. Angerfist - Face My Style
+002. Benaddikt - Nothing Can Ruin Us
+003. Creeds - Le Piano
+004. Calvin Clark - Frostbite(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 07:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514922   (213877) от 05.12.2021
+
+VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. GAYLE - abcdefu
+04. Acraze - Do It To It (feat. Cherish)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344093   (213758) от 09.12.2019
+
+VA - The Official UK Top 40 Singles Chart 06.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Lewis Capaldi - Before You Go
+03. Stormzy - Own It (feat. Ed Sheeran & Burna Boy)
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D548E75E1923258AED6F625D93C729A9FA4894E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344130   (213606) от 09.12.2019
+
+VA - World of Electronic Music Vol.3 (2019) [MP3|320 Kbps] <Synthpop, Futurepop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213606.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Final Selection - Nomads
+002. a-ha - Butterfly, Butterfly (The Last Hurrah)
+003. 8KHz Mono - Suspect
+004. Colony 5 - Colony 5(   Читать дальше...   )Жанр: Synthpop, Futurepop, ElectropopПродолжительность: 11:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FD189C0D692BE0D0A25DAB250AD2B0E7AEDA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344251   (213580) от 09.12.2019
+
+VA - World of Electronic Music Vol.4 (2019) [MP3|320 Kbps] <Synthpop, Futurepop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blume - Bright Light
+002. Camouflage - Heaven (I Want You)
+003. Neuroticfish - I Don't Care
+004. State Of The Union - Dancing In The Dark(   Читать дальше...   )Жанр: Synthpop, Futurepop, ElectropopПродолжительность: 10:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE48059A599305948919406791E34033E8DFC92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832094   (213483) от 30.10.2025
+
+Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight Ashes
+ 02 - Midnight Blues Serenade
+ 03 - Midnight Bourbon Blues
+ 04 - Midnight Glass(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D57338D7F9AA758524D1E7FEFD55CA966BF2094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832090   (213482) от 30.10.2025
+
+ReteoX - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silent Hearts
+ 02 - Without a Goodbye
+ 03 - Silent Love
+ 04 - Whisper My Name(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EAF822578938624D1C1C32814CB18739351BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559085   (213129) от 23.06.2022
 
 VA - Русский Рок 2 (2022) [MP3|320 Kbps] <Rock>
@@ -542,209 +745,6 @@ MyTones - Hot & Sexy Ringtones (2023) [MP3|320 Kbps] <Other, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EAF6698269E1EF4DFB3D82F8663330014C39F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639653   (211411) от 15.06.2023
-
-VA - Best Of Aly & Fila (Compiled & Mixed by Divine) (2023) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila feat. Jass - Breeze (DNS Project Remix) [7:46]
-02. Aly & Fila feat. Sue McLaren - I Can Hear You (Original Mix) [6:42]
-03. Aly & Fila feat. Josie - Listening (Philippe El Sisi Remix) [8:54]
-04. Aly & Fila and Ana Criado - All Heaven (Extended Mix) [7:07](   Читать дальше...   )Жанр: TranceПродолжительность: 04:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDC232BF442AF246519469574403CF30B2568AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639990   (211379) от 15.06.2023
-
-VA - Hardstyle Workout 2023 playlist [MP3|320 Kbps] <Hardstyle, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombic - Blue Night Sky (3:30)
-02. Warface - Come With Me (2:57)
-03. VINAI - The Sinner (3:29)
-04. TNT - I Like Bass (4:29)(   Читать дальше...   )Жанр: Hardstyle, DanceПродолжительность: 03:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBAD392860FC0002DEB2CE885B02D26B99B97AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640499   (211207) от 18.06.2023
-
-VA - On The Radio - 00s (2023) [MP3|320 Kbps] <Synthpop, R&B, Rhythm & Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gym Class Heroes - Cupid’s Chokehold / Breakfast in America
-02. Coldplay - Viva La Vida
-03. Jason Mraz - I’m Yours
-04. Linkin Park - In the End(   Читать дальше...   )Жанр: Synthpop, R&B, Rhythm & Blues, RockПродолжительность: 03:47:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC076C8A5ADEECBCAD1C33BF867F014CA9E0330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640542   (211183) от 18.06.2023
-
-VA - Record Super Chart 17.06.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Kungs - Substitution (3:01)
-02. Playmen & Hadley - Luv You (2:45)
-03. Loreen - Tattoo (3:03)
-04. Tove Lo - Borderline (3:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4943FCD819C542AA61BC94CB266C850A22E1E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640806   (211071) от 19.06.2023
-
-VA - Music News vol.270 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daria Yanina - Самый Чистый (02:58)
- 002. 5sta Family - Один Шанс (02:43)
- 003. 21PIONEERS - Закроемся (03:07)
- 004. 78 Градусов feat. CloudEyes - Хобби (02:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D93CB317A425287595C210BB5EC2FA7039B9AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640150   (211027) от 19.06.2023
-
-VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rock Heroes - Iron Man [00:30]
-02. Jizzy Pearl, Tracii Guns, Gilby Clarke - Sweet Child O' Mine [00:30]
-03. Robert Trujillo, Eric A.K. - Battery [00:30]
-04. L.A. Guns - Pour Some Sugar On Me [00:30](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414A6F9E552D9E9060A7FE8BBA2717E95571BFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640763   (211009) от 19.06.2023
-
-MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Black (Originally Performed by AC/DC) [00:29]
-02. For Those About To Rock (Originally Performed by AC/DC) [00:29]
-03. Heatseeker (Tribute in the Style of AC/DC) [00:29]
-04. Hell's Bells (Originally Performed by AC/DC) [00:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F135A63809375E7CE61C9696D22CE012CA4FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

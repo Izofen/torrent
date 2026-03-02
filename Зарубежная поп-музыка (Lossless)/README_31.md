@@ -1,3 +1,119 @@
+###  Публикация: 1527704   (735862) от 30.01.2022
+
+Marc Lavoine - Adulte jamais (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le train (3:10)
+ 02. Cœur d’occasion (3:34)
+ 03. Nuages blancs (3:34)
+ 04. Adulte jamais (3:22)(   Читать дальше...   )Жанр: Pop, Chanson, French MusicПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB43921A9811A5667617D65AD703D5D80393ADD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527643   (735861) от 30.01.2022
+
+Cats On Trees - Cats On Trees (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn (3:00)
+ 02. Sirens Call (3:44)
+ 03. Jimmy (3:12)
+ 04. Full Colours (2:58)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEB0D6D0C6A49166B74FA7FEFE443F50A6E08AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527656   (735860) от 30.01.2022
+
+Cats on Trees - Alie (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Please Please (4:11)
+ 02. Wake Up (2:59)
+ 03. Dad On The Moon (4:04)
+ 04. Alie (2:54)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4F35E34806D8655A5DF9EF5C51ACC397AB59EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527939   (735850) от 30.01.2022
+
+VA - Festival di Sanremo - le canzoni famose (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Måneskin - Zitti E Buoni (3:12)
+02. Colapesce - Musica Leggerissima (3:56)
+03. Francesca Michielin - Chiamami Per Nome (3:42)
+04. Pinguini Tattici Nucleari - Ringo Starr (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 03:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672F1083694FF5971533C38933214499E893D45C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398589   (735661) от 26.07.2020
 
 VA - NRJ Dance Hits (2020) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -629,122 +745,6 @@ Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022773   (727361) от 03.06.2016
-
-Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Dontcha?
- 02. It Just Happens
- 03. Good Karma
- 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898A3D86BC92C20FA32A8DF68D11DBF22EBC536A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022755   (727243) от 03.06.2016
-
-Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Don'tcha? (2:45)
-02. It Just Happens (3:46)
-03. Good Karma (3:19)
-04. This One (3:11)(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4441E12694DF9D2DDD9017C8EDB892E1AE4220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023392   (726701) от 04.06.2016
-
-Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You (3:52)
-02. A Little Bit of Pain (2:55)
-03. Mess Around (3:52)
-04. Make You Love (4:26)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E806772A3CE08FEE1A1BD8D8BF6AA29747299D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284650   (726542) от 23.02.2019
-
-Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotions
-02. If It's Over
-03. Someday
-04. Vision Of Love(   Читать дальше...   )Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1281075   (755085) от 06.02.2019
+
+Тінь Сонця - Зачарований світ (2018) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755085.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:12] 01. Закохані вогні
+[04:10] 02. Останні ночі без тебе
+[03:10] 03. Добрий ангел
+[03:30] 04. В долонях ніч(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701ACA0F2328FF908BB89CF330B7F8288061853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215836   (754773) от 28.03.2018
+
+Rick Parfitt (Status Quo) - Over And Out (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twinkletoes
+02. Lonesome Road
+03. Over and Out
+04. When I Was Fallin' in Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33BCCE6C6BF85BE09F389D4BA164F052F474A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395598   (753831) от 11.07.2020
 
 Silver Scrolls - Music for Walks (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
@@ -684,64 +742,6 @@ Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283057   (741054) от 15.02.2019
-
-Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Head Games (Live)
-2. Feels Like the First Time (Live)
-3. Cold as Ice (Live)
-4. Hot Blooded (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021516   (740990) от 29.05.2016
-
-Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trailer    03:17
-02. Dreams of Flying    03:58
-03. Beautiful Blue    06:36
-04. Beautiful World    03:08(   Читать дальше...   )Жанр: Rock, Country Rock, Folk RockПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F012C5AFC0534CD1E60A560504010233B94C3AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

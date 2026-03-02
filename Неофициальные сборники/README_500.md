@@ -1,3 +1,212 @@
+###  Публикация: 1331589   (322941) от 16.10.2019
+
+VA - EDM House Essentials Hit (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322941.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alessio Modrian - Kuratt
+002. Naem - Shambo (Original Mix)
+003. Alexis - This This (The Beat Remix)
+004. Ultravizion - Decam (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 14:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5591627FABE28F2CB6BBF3894087D68458AED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581266   (322909) от 28.11.2012
+
+VA - Electro House Pro V.7 (2012) [MP3|320 кб/с]<Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cicada, Holly Miranda - Over and Over (Denzal Park Remix)
+02. Angger Dimas feat. MC Ambush - Booster (Original Mix)
+03. Richard Beynon & Yanik Coen - Metronome (Original Mix)
+04. PeaceTreaty feat. Anabel Englund - In Time (Avallo Remix)
+05. David Guetta feat. Taped Rai - Just One Last Time (Deniz Koyu Remix)
+06. Arno Cost - Lifetime (Original Mix)
+07. Robin G & Stereo Blaster feat. Margo Gontar - Rescue Me (Original Mix)
+08. Loud Disco Machine - Resist (Original Mix)
+09. Banvox - Instinct Dazzling Starlight (Original Mix)
+10. Sharam Jey & Dirty Disco Youth - Till We Drop (Dave Winnel Remix)Жанр: Electro HouseПродолжительность: 04:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF2FC1035EDD314D864A87F14020330BA354CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331530   (322504) от 16.10.2019
+
+VA - Рэп для тренировки (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322504.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Asap Ferg feat. Future - New Level (4:26)
+2.A$AP Rocky, A$AP Rocky feat. Skrillex & Birdy Nam - Wild for the Night (3:29)
+3.Bas feat. JID - Fried Rice (2:55)
+4.Beastie Boys - Brass Monkey (2:37)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4D025DB01E12E2F4CB073FAFCE92DE9A2E8D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331588   (322371) от 16.10.2019
+
+VA - Mushrooms Of Psychedelic Vol.01 (2019) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CCC - Barbie (Original Mix)
+002. Jirah & Random - A Maze
+003. Hypnocoustics - Transformational Structures (Ital Remix)
+004. Sidekicks - Mechanism(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95E4A933F15169B4C434EFB1E785807D5EB525B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421043   (322307) от 03.11.2020
+
+VA - Dub House Exotic Session (2020) [MP3|320 Kbps] <Dub House, Club, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savin - Steel Drum
+02. Delow - Consequence
+03. Imvd - Muddle
+04. Hvmza - La Critica (Extended Mix)(   Читать дальше...   )Жанр: Dub House, Club, Electro HouseПродолжительность: 05:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2A55C4D0F5D153D510C357347D68A3F39C05B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421042   (322220) от 03.11.2020
+
+VA - Deep House Flower Party (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322220.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jin Tonique - You Know
+002. Rennie Foster - Belladonna
+003. Denace 2 Society - La Xanga
+004. Acido Domingo - Never Look Back(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F244ED38191D9E3BE5EF116D5C4D42C25952C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421047   (322216) от 03.11.2020
+
+VA - HGM: Best New Electro House (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322216.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Holt 88 - Synchrony
+002. Ken N & Delvino - Losing Control
+003. Selva Basaran - Joy Love Happiness
+004. The Fingers - Chicago(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 11:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABFBE96DCE4BAA6CCBF7D77D110783D02FA5CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421046   (322206) от 03.11.2020
 
 VA - Eurobeat Pop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance, Electro Pop>
@@ -542,211 +751,6 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 020 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625F44438213B727670FB3A19BFA3268B47C24A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844153   (321483) от 24.11.2014
-
-VA - The Official UK Top 40 Singles Chart (23-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь или под спойлером NEW.
-Во все треки вшиты обложки альбомов.01. Band Aid 30 - Do They Know It's Christmas? (2014)  (3:49)
-02. Clean Bandit & Jess Glynne - Real Love  (3:40)
-03. Olly Murs Feat Travie McCoy - Wrapped Up  (3:06)
-04. Ed Sheeran - Thinking Out Loud  (4:42)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E30E6C3B9A2B9BB00387FAF91D0FD9F34B4403E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181589   (321444) от 08.11.2017
-
-Павел Воля - Лучшее от ALEXnROCK (2017) [MP3|320 Kbps] <Поп, Рэп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люблю творчество этого парня и то что он делает и в юморе и в музыке. В сборник вошли лучшие треки артиста. Филосовские и смысловые текста наполненные позитивным юмором, и крутые аранжировки. Да прибудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Новое
-02 Наша Russia
-03 Мама, мы все стареем (& Город 312)
-04 Радужная песня(   Читать дальше...   )Жанр: Поп, РэпПродолжительность: 01:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECBB04757484C499780C76E9169FCB1A308A0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420953   (321419) от 03.11.2020
-
-VA - Громкие новинки Ноября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Мы переживём всё (3:17)
-02. 2517 - Снег (4:10)
-03. 5sta family - Эгоистка (3:04)
-04. Al Fakher - Девочка VIP (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8778FCCF86278CD042683EE1BC4A03F5BF8C32CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259368   (321387) от 03.11.2018
-
-VA - The Official UK Top 40 Singles Chart 02.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga & Bradley Cooper - Shallow
-02. Little Mix - Woman Like Me (feat. Nicki Minaj)
-03. Calvin Harris & Sam Smith - Promises
-04. Dave, Fredo - Funky Friday(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D7809DC8D5B89E55545D208D8362F244D40AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075394   (321294) от 22.11.2016
-
-VA - State Of House Club Mix (2016) [MP3|320 Kbps] <Club House, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321294.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kahwe - Patterns
-002. Simon Hardy - Mambo
-003. Mambo Brothers - Momento
-004. Illyus & Barrientos - Strings(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 09:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80984DA2B6FB79829F02A8AE1102755FE80E55CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259330   (321267) от 03.11.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 02.11.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Natural 3:09
-02. KAZKA - Плакала 3:45
-03. Dynoro & Gigi D'Agostino - In My Mind 3:05
-04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC60856CCA602A12CC2FBB62022D22B9E542EE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075301   (321163) от 22.11.2016
-
-VA - Record Super Chart  #463 (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R3HAB - Icarus (Original Mix) 3:12
-02. KSHMR & Tigerlily - Invisible Children (Extended Mix) 3:45
-03. David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You (Extended Mix) 4:48
-04. Martin Garrix vs. Matisse Sadko - Together 3:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C0B7A96ADD6361C8F2018834860D6861DFD267
 ```
 
 https://mybot314.ru/tekegram_catalog/

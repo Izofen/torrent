@@ -1,3 +1,61 @@
+###  Публикация: 1570403   (438475) от 19.08.2022
+
+Stoned Void - Throbbing Rhythm of the Doldrums (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Portals
+02 Lonely Mountain
+03 Fucking Love
+04 Winds of Spring(   Читать дальше...   )Жанр: Heavy Psych, Stoner, DoomПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81AA2450EC91D8B265916DDFB1D58B0DAF4E5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570896   (438183) от 19.08.2022
+
+Deep Purple - Bombay Calling (Live in 95) (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I'm a Leo (Live in 95)
+02. Black Night (Live in 95)
+03. The Battle Rages On (Live in 95)
+04. Woman from Tokyo (Live in 95)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18514208FD94E3774B77C3DBC1FAA8D2262F2A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323365   (437358) от 03.09.2019
 
 Pink Floyd The Wall Rebuilt - Mojo Magazine 30th (Tribute) (2009) 2CD [MP3|320 Kbps] <Progressive Rock>
@@ -695,69 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EE5C711ABE0835D35D644425BE76A6CA22DBAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411996   (423166) от 27.09.2020
-
-Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Ain't Necessarily So (2020 Remaster) (03:22)
- 02. From The Bottom Of My Heart (I Love You) (2020 Remaster) (03:27)
- 03. How Can We Hang On To A Dream (Remake 2020 Remaster) (02:22)
- 04. I Wish We Could Fly (2020 Remaster) (05:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9E2675161B65E1AD74774D1DDF9DCA0ABD6519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146153   (422855) от 15.10.2009
-
-Kasabian - West Ryder Pauper Lunatic Asylum (2009) [MP3|320 kb/s]<Indie Rock / Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Underdog (4:37)
-02.  Where Did All The Love Go (4:17)
-03.  Swarfiga (2:18)
-04.  Fast Fuse (4:10)
-05.  Take Aim (5:24)
-06.  Thick As Thieves (3:06)
-07.  West Ryder Silver Bullet (5:15)
-08.  Vlad The Impaler (4:44)
-09.  Ladies And GentlemenЖанр: Indie Rock / BritpopПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

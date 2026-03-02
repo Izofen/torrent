@@ -1,3 +1,32 @@
+###  Публикация: 1796474   (18415) от 13.05.2025
+
+Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indie rock, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharks (Imagine Dragons-Live In Vegas | 2023)
+02. Natural (Origins | 2018)
+03. My Life (Mercury-Acts 1 & 2 | 2022)
+04. Radioactive (Night Visions | 2012)(   Читать дальше...   )Жанр: Alternative rock, Indie rock, Pop rockПродолжительность: 03:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0030ED341368BD9881B7674069395EE7B70316B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796372   (18318) от 14.05.2025
 
 KISS - Compilation (2025) [MP3|320 Kbps] <Rock, Glam>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6413FCCED78F05AB0DB90B848D000C79526CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813666   (6785) от 20.08.2025
-
-David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard rock, Glam metal, Blues rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 40 Below (A Little Ain't Enough | 1991)
-02. Black Sand (DLR Band | 1998)
-03. Just Like Paradise (Skyscraper | 1988)
-04. You're Breathin' It (& Urban NYC) (Your Filthy Little Mouth | 1994)(   Читать дальше...   )Жанр: Hard rock, Glam metal, Blues rockПродолжительность: 03:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE4264FE12103A06A693C2035853CF81C67DCFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

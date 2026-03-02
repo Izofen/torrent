@@ -1,3 +1,120 @@
+###  Публикация: 1008191   (817590) от 17.04.2016
+
+VA - Nostalgie - The Summer Feeling (2015) 5CD [FLAC|Lossless|tracks] <Pop, Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaoma - Lambada    03:25
+02. Gusttavo Lima - Balada    03:23
+03. Paradisio - Bailando    03:47
+04. Righeira - Vamos A La Playa    03:37(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 06:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC50D3EECFFE276F1E886835B8722030E782ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882819   (817222) от 29.03.2015
+
+VA - Pure... Summer (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Dance, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не так уж много осталось до летних, жарких денёчков. Самое время вспомнить про музыкальное сопровождение летних дней.
+Смело врубайте этот бокссет и наслаждайтесь.CD1:
+01. Shakira featuring Wyclef Jean - Hips Don't Lie  (3:39)
+02. Gipsy Kings - Bamboleo  (3:24)
+03. Los Del Rio - Macarena  (3:52)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493CD75EAD08BB85B35227B99F10D0D53C841E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197074   (815681) от 07.01.2018
+
+VA - Glam Rock Party Supermix (1998) [FLAC|Lossless|image + .cue] <Glam, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hello Hello, I'm Back Again? / I'm the Leader of the Gang / Glisten Yeah / Rock and Roll / I Didn't Know I Loved You / Do You Wanna Touch Me / I Love You Love Me
+02.Blockbuster! / Teenage Rampage / Wig-Wam Bam / The Ballroom Blitz / Hell Raiser / Fox on the Run
+03.Daytona Demon / Can the Can / Devil Gate Drive / 48 Crash
+04.You, You,You / Red Dress / My Coo Ca (   Читать дальше...   )Жанр: Glam, Cover versionПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4814C5188E5CFE840283918901FD64397924BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843484   (815108) от 07.01.2018
+
+Adriano Celentano - Golden Hits (2013) 3CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buonasera Signorina (2:47)
+02. Non Esiste L'Amor (2:14)
+03. Blue Jeans Rock (2:24)
+04. Ciao Ti Diro (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4005E4ECC95F6FB8404CDF117335501FEF5D56E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072608   (815021) от 07.01.2018
 
 MinaCelentano (Mina & Adriano Celentano) - Le migliori (2016) Deluxe [FLAC|Lossless|tracks + .cue] <Pop, Italo Pop, Pop Rock>
@@ -631,122 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010113   (803954) от 24.04.2016
-
-Dami Im - Classic Carpenters (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (They Long to Be) Close to You    03:43
-02. There's a Kind of Hush (All Over the World)    03:04
-03. Yesterday Once More    04:02
-04. Superstar    03:14(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3A5937221E02BAD0F6830F6C130ED4511EDE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120441   (803446) от 30.03.2017
-
-Nelly Furtado - The Ride (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Hard Truth (2:54)
- 02. Flatline (3:22)
- 03. Carnival Games (4:18)
- 04. Live (4:04)(   Читать дальше...   )Жанр: Pop, R'n'BПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F0AB7259E3C6683EF786D25608EBFD39384244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505605   (802834) от 28.10.2021
-
-Elton John - The Lockdown Sessions (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802834.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Lockdown Sessions - четвертый совместный альбом английского певца и автора песен Elton John. Он был выпущен на лейблах EMI и Mercury Records (Interscope Records в США) 22 октября 2021 года. Альбом был записан во время пандемии COVID-19 после того, как Elton был вынужден приостановить свой тур Farewell Yellow Brick Road из-за пандемии. В альбом вошли три сингла: (   Читать дальше...   )01. Cold Heart (PNAU Remix) (with Dua Lipa) (03:22)
-02. Always Love You (with Young Thug and Nicki Minaj) (04:17)
-03. Learn To Fly (with Surfaces) (03:31)
-04. After All (with Charlie Puth) (03:28)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58052941865018C16C2D97C14D4DB72BCC10A01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010741   (802544) от 25.04.2016
-
-Lena Anderssen - Eagle In The Sky (2015) [FLAC|Lossless|tracks] <Pop, Alternative, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Sweet Home    03:14
-02. Eagle In The Sky    04:49
-03. Sorry That I Made You Cry    04:05
-04. Oh Brother With The Broken Wing    04:43(   Читать дальше...   )Жанр: Pop, Alternative, FolkПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03410EE691B1B0B95CA58C937C83FA5790FCF606
 ```
 
 https://mybot314.ru/tekegram_catalog/

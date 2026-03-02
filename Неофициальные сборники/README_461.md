@@ -1,3 +1,206 @@
+###  Публикация: 1414508   (383408) от 09.10.2020
+
+VA - Background Instrumental Smooth Jazz (2020) [MP3|320 Kbps] <Jazz, Jazz Smooth, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383408.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miles Davis Quartet - It Never Entered My Mind
+002. Clan Greco - Tilt
+003. Riccardo Arrighini - Autumn Leaves
+004. Tenderlonious - Almost Time(   Читать дальше...   )Жанр: Jazz, Jazz Smooth, InstrumentalПродолжительность: 07:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2635D1BE618289C65937A518FB7F281988D7B702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326561   (383386) от 21.09.2019
+
+VA - In My Feelings: Lyric Rnb Compilation (2019) [MP3|320 Kbps] <Rhythm And Blues, Lyric, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383386.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gabrielle Lynn - Kissing You
+002. Steven A. Clark - Feel This Way
+003. Drax Project - All This Time
+004. Pj Morton - Yearning For Your Love(   Читать дальше...   )Жанр: Rhythm And Blues, Lyric, SoulПродолжительность: 08:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D56C502B3B212DF65E63B0896C03DB6FF27FFC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326414   (383378) от 21.09.2019
+
+VA - Space Patrol: Synth Electronic Compilation (2019) [MP3|320 Kbps] <Synthpop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ixen - Lonely Robot In Space
+002. Mats Forsell - Flying Low
+003. Spacehawk - Universe
+004. Sonicforce - Sandstorm(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 08:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210818A852E5935B87CBB2A284A8FE3EADB5BCB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326582   (383375) от 21.09.2019
+
+VA - Empire Records - Acapella (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juan Wauters - El Hombre de la Calle
+02. Natasha Barnes - Dollar Signs
+03. Zigmaester - Zombie Luv
+04. James Blake - Mulholland(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501AE5C410042B97A62CE448BAC9A508794F9994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414518   (383301) от 09.10.2020
+
+VA - Hammond Organ Heroes (2020) [MP3|320 Kbps] <Instrumental Jazz, Hammond>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embryo - Radio Marrakesch / Orient Express
+02. Emerson, Lake & Palmer - Hoedown (Live)
+03. Bernard Estardy - Ala mia thra
+04. Jimmy McGriff - 'Round Midnight(   Читать дальше...   )Жанр: Instrumental Jazz, HammondПродолжительность: 06:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1053D03CF6E77DD89511CC271CA862D913886B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414533   (383297) от 09.10.2020
+
+VA - Кроссфит 2 (2020) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rise Against - Savior (4:02)
+02 - The Romantics - What I Like About You (2:55)
+03 - Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up) (3:06)
+04 - Rick Springfield - Jessie's Girl (3:14)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, OtherПродолжительность: 03:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929674FCD887875909F821AF10714173EBC02387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326546   (383247) от 21.09.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 20.09.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shawn Mendes & Camila Cabello - Senorita 3:11
+02. Halsey - Nightmare 3:52
+03. Billie Eilish - Bad Guy 3:14
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE54EA1C9F2F6B6A21464ED687CA3482764141E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574757   (383156) от 06.09.2022
 
 VA - Summer Melodies Vol. 8 (2022) [MP3|320 Kbps] <Electronic, House, Progressive House, Trance>
@@ -548,238 +751,6 @@ VA - 20 Лучших блатных песен (2002-2003) [MP3|320 kbps] 14 CD 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C3765D315FCBEFD4D60F5098297DBC5271E9FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068168   (382081) от 31.10.2016
-
-VA - 70 Sax Classic Jazz (2016) [MP3|320 Kbps] <Sax, Instrumental, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Parker Quartet - Now's the Time
-02. John Coltrane Quartet - A Love Supreme, Pt. 1: Acknowledgement
-03. Charlie Parker - Just Friends
-04. Sonny Rollins - Sonnymoon for Two (Evening)(   Читать дальше...   )Жанр: Sax, Instrumental, JazzПродолжительность: 06:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739B4640314C36F552836B0E355C7371B9265456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573194   (381751) от 10.11.2012
-
-VA - Sense Of Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - We Are Here To Make Some Noise (Judge Jules Remix)
-002. Eluna - Severence (Markus Schulz vs. Elevation Remix)
-003. Abstract Vision & Elite Electronic - Kinetic
-004. Alexander Popov - Elegia (Original Mix)
-005. Ashley Wallbridge - Mumbai Traffic (Club Mix)
-006. Chris Schweizer - Ultra (Original Mix)
-007. Dave Silcox feat. Amy Pearson - This Is Love
-008. Dima Krasnik - Corsair (Original Mix)
-009. Faruk Sabanci & Mark Sixma - Starburst (Original Mix)
-010. Garry Heaney & Tristan D - Island Of Dreams (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, TranceПродолжительность: 04:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEA4C08E325A2F8ECEF92DF563266B5CF5FEEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573367   (381747) от 10.11.2012
-
-VA - Club Dubstep - №14 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Mirror (Original Mix) (04:36)
-02. Serenade (Roughmath Remix) (06:16)
-03. Pressure (feat. KT Forrester)Жанр: DubstepПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB000240360C60C5B11EB0CCD19AE08F5FA0267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573007   (381745) от 10.11.2012
-
-VA - Trance Eve Volume 44 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Faruk Sabanci - Oriental Sentiment (Nurettin Colak Remix)
-002. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Original Mix)
-003. Indecent Noise feat. Ridgewalkers - Full Moon Fever (Power Dub)
-004. Julian Vincent & Shannon Hurley - Lost In Space (Eximinds Remix)
-005. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Mike Saint Jules Remix)
-006. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-007. Neev Kennedy - The Unknown (DNS Project Mix)
-008. Norin & Rad - Zion (Original Mix)
-009. Progressiver - Searching For The Truth (Den Rize pres. Rizen Remix)
-010. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ACA5B864E66F69DF609903DE179861FFCF0DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572850   (381681) от 10.11.2012
-
-VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кристина Межинская - До рассвета
-02. Алёна Копылова - Осень
-03. Zedd feat. Matthew Koma - Spectrum (Radio Mix)
-04. Kato & John - Turn The Lights Off (Sasha Semenov Remix)
-05. Mc Zali & Trinity - Певица Из Села (Dmitriy Rs Radio Remix)
-06. Ирина Дубцова - Ешь, молись, люби
-07. Ocean Drive - Revolution (Radio Edit)
-08. Moodorama - Wondering Why
-09. Marc Korn feat. Miani - Elena (Radio Mix)
-10. Ирина Тараканова - Где же ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E66EB3854E48BEB180831DFE6E67AF7951CC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573395   (381670) от 10.11.2012
-
-VA - Club Dubstep - №16 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miracle (Aleksey Sky Bootleg Remix) (05:15)
-02. Faceless (xKore Remix) (05:00)
-03. Hologram (04:48)
-04. Salt Water (Mt Eden Dubstep Remix) (04:07)
-05. Don't Blame The Party (Culture Code Remix) (04:27)
-06. You're Still Lonely (Feat. Studio-X, Sabine Snaps & Marton Veress) (05:22)
-07. Pavement (Original Mix) (04:12)
-08. Boom Bam (05:08)
-09. Galaxies & Stars feat Ce-Cile (Original Mix) (03:54)
-10. Ready To Blow (05:12)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484DCA6869613A218BA74EFA3F40896F88EAC6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573389   (381668) от 10.11.2012
-
-VA - Club Dubstep - №15 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Digital World (05:25)
-02. La Bastille  (Ганджу rmx) (04:06)
-03. Work Hard (Cosmic Dreams Remix) (04:27)
-04. Nights In The Future ft Jonny Cole (Original Mix) (04:30)
-05. Don't Lose It (05:02)
-06. In The Darkness (Affecting Noise Remix) (04:44)
-07. Get It Now (04:35)
-08. Stay (Original Mix) (04:54)
-09. Turtle Face (Original Mix) (05:32)
-10. Take Me There (Original Mix) (04:11)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17542D77582BCF2D92881A6D2CB488BBA6BD20CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

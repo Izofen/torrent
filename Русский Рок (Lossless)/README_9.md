@@ -1,3 +1,61 @@
+###  Публикация: 1362052   (951022) от 22.02.2020
+
+VA - Молодая гвардия - New Generation (2005) [FLAC|Lossless|tracks + .cue]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моральный Кодекс, Олег Меньшиков и оркестр О. Лундстрема -
+- В Москве наступает полночь
+02. Александр Маршал - Снежный вальс
+03. Алёна Свиридова - Розовый фламинго(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7944A3BCF3834C8306A9C5D2ED7ADE2715FACB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362503   (949688) от 23.02.2020
+
+HELENGARD - Firebird (2017) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:12)
+02. Fall Rue (6:27)
+03. Oktostitch I (0:41)
+04. Brumal Mud (8:23)(   Читать дальше...   )Производство: kauanmusicЖанр: Folk Metal, Black Metal, Post RockПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6045866E92AB2F8E34D565272401B2B1535D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362533   (949681) от 23.02.2020
 
 HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
@@ -684,67 +742,6 @@ Asmund - До неба поминальный рог (2020) EP [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B69AE05D8FF099E85824ABE7EA78D4C9AC940D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 35180   (926610) от 09.03.2020
-
-Океан Ельзи (Океан Эльзы) + Проекты (Esthetic Education, Гуд:мов) - 15 альбомов (1998-2007) [WavPack|Lossless] <Rock>
-
->>След.
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-1998 - Там, де нас нема
-2000 - Янанебiбув
-2001 - Модель(   Читать дальше...   )01. Будем разом (02:51)
-02. Зв'язок (диско) (03:38)
-03. Сумую (03:44)
-04. Баста (03:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A71B275CEFE5CBF7E791753707E64B8FCB48E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366163   (925758) от 10.03.2020
-
-Смута - Время беды (2018) [FLAC|Lossless|image + .cue] <Pagan-Metal, Folk-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Русский бунт (The Russian Riot)
-02	Река (The River)
-03	В сумерках (In The Dusk)
-04	Дойти (To Wade Through)(   Читать дальше...   )Жанр: Pagan-Metal, Folk-MetalПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF8409F7268A0DD5CCC1F9B3BFCA9F99F2ADC09
 ```
 
 https://mybot314.ru/tekegram_catalog/

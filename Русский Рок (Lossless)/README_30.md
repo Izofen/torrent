@@ -1,3 +1,61 @@
+###  Публикация: 827894   (444704) от 04.10.2014
+
+КняZz - Магия Калиостро (2014) [FLAC|Lossless]<Rock/Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сэр Уильям (пролог) (1:21)
+02. Чернокнижник (2:58)
+03. Дом Манекенов (3:03)
+04. Граф Калиостро (3:45)(   Читать дальше...   )Жанр: Rock/PunkПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0442FE96DB1719D7CD734A2AD45C29FA790931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827879   (444359) от 04.10.2014
+
+Алиса - Цирк (2014) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цирк (4:09)
+02. Кайф и истерика (4:39)
+03. Ток шок рок (3:39)
+04. Такие дела, хозяин (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0261A80EE7C41306095A47FAB3CB59FF9510C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062273   (441971) от 13.10.2016
 
 VA - Свободная культура. Звуки Северной столицы (1995) [FLAC|Lossless|image + .cue] <Rock>
@@ -695,64 +753,6 @@ BY CRY - BY CRY (2015) [FLAC|Lossless|tracks + .cue] <Folk, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9CF1C6B2D56943B339A787FF6DD035E0A35D129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412475   (417919) от 29.09.2020
-
-Аквариум - Песни Джорджа (2020) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пой, Пой Лира
-2. Хорал
-3. 15 Голых Баб
-4. Менуэт Земледельцу(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634D1BFEE473933D760D6FAB1808CAD33CFE7A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710521   (416095) от 14.10.2013
-
-Мара - Почувствуй разницу (2013) 2CD [FLAC|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro   (0:58)
-02.  Новое время   (2:51)
-03.  Angel Schlesser   (4:07)
-04.  Невзаимная любовь   (3:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E2DCCBC34ADA9CEB3346FFC18CF3480213368F
 ```
 
 https://mybot314.ru/tekegram_catalog/

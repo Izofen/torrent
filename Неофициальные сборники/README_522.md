@@ -1,3 +1,206 @@
+###  Публикация: 1080934   (286696) от 08.12.2016
+
+VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juliya Philippova - Out Of The Darkness (original mix) (06:17)
+02. DJ Yuri Button - Ghost In The Town (original mix) (06:01)
+03. Jean Luvia - Remembrance (extended mix) (06:55)
+04. James Fiby - History Love (feat Anna Miracles - vocal mix) (08:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D535DAEDB3F27AEA4AD66689072CCE65DCFFA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080968   (286689) от 08.12.2016
+
+VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaal - Wander To Hell (Locked Groove Remix) 06:27
+02. Charles Fenckler - Stellar Acid (Original Mix) 07:11
+03. Monoloc - Muted 07:14
+04. Rampa - Necessity (Original Mix) 07:49(   Читать дальше...   )Жанр: Microhouse, Chicago, Dub Techno, Tribal, Nu Disco, Electronic, Tech HouseПродолжительность: 06:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C515F3A98FA5A855B333677341E56804970CD5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080945   (286647) от 08.12.2016
+
+VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Larichev - Smile Me (Original Mix) 7:27
+002. Beat Service & Susana - Reach The Sun (Original Mix) 7:42
+003. Lee Osborne - Omission (Original Mix) 7:17
+004. Chris Cockerill & Red Sky - Closing In (Original Mix) 7:31(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782DA475382EB7B87266D10F4B6FA6BB9938BFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080674   (286646) от 08.12.2016
+
+VA - Попсовая соточка от Хит fm 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286646.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Maroon 5 Feat. Kendrick Lamar - Don’t Wanna Know 3:35
+002.Леона Аврелина - Наркотик 3:56
+003.Kat Graham - Baby 4:00
+004.Шахзода - Sirdoshim 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A5D051F4DE618C551DAD8CBE2DE6C178047936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080675   (286644) от 08.12.2016
+
+VA - Музыкальные новинки mp3. Часть 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Олег Майами - Останься 3:31
+002.Gta Feat. Karina - In My Nature 4:01
+003.Инесса Михно - На Десять Минут 3:59
+004.Kevin Hart Feat. Trey Songz - Push It On Me 3:54(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F56500BBCA936FD8176C35B5F17A3166619C77A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080694   (286638) от 08.12.2016
+
+VA - Масть крестовая. Зима на радио Шансон. Выпуск 5 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Сборная Союза - Джага Танец Любви 4:17
+002.Юрашъ - Кокетка 3:15
+003.Валерий Новиков - Тюлени 3:35
+004.Карабас Барабас - Фонари 3:58(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B655FF594BB6416180AA278AA52136402B21026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080789   (286637) от 08.12.2016
+
+VA - Club Hits (2016) [MP3|204-320 Kbps] <Club, Vocal, Commercial, Progressive, Hands Up, Funky>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dhany ft. DJ Simon Weeks - New York City (D@Niele Tek Mix) 05:08
+02. John Saylor Feat. Yanki - Not So Far Away (Extended) 05:23
+03. Max Gabani Feat. Harmon - Coming To Find U (Extended) 05:09
+04. Spring-Rush - Summernight (Extended Mix) 04:40(   Читать дальше...   )Жанр: Club, Vocal, Commercial, Progressive, Hands Up, FunkyПродолжительность: 09:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C3B71CC9253277A12E83D4A15CF9E9AE46FDE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080692   (286636) от 08.12.2016
 
 VA - Радио Шансон. Высшая Лига Хитов Версия №8 (2016) [MP3|256 Kbps] <Шансон>
@@ -542,209 +745,6 @@ VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Brea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77E9F0E1A13A6AFF170F09A50F64A6616F568F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186530   (285858) от 25.11.2017
-
-VA - По волне моей памяти 2: Том10 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Машина Времени  -  Наш Дом 3:37
-02.  Воскресение  -  Я сам из тех 3:13
-03.  Цветы  -  Честно 3:49
-04.  Форум  -  Встречайте новый год (дуэт с М.Капуро) 3:50(   Читать дальше...   )Жанр: Поп, Ретро, РокПродолжительность: 02:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D64218D28E9B8C95CC017135AE088D10982FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691916   (285820) от 10.12.2014
-
-VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285820.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dennis Sheperd & Talla 2xlc - Two Worlds (Original Mix)
-002. Markus Schulz vs. Ferry Corsten - Loops & Tings (Extended Mix)
-003. Chris Schweizer - Ultra (Original Mix)
-004. W&W - Invasion (Asot 550 Anthem) (Club Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 41:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6113D70AC84C7D1D98BA1C8D9EB1543C85D494A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963857   (285781) от 09.12.2015
-
-VA - Sweet Soul Music (2015) [MP3|320 кб/с]<Soul, Rnb, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285781.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BobWomack - How Could You Break My Heart
-002. Jacksoul - Still Believe in Love
-003. The Jacksons - Can You Feel It (Single Version)
-004. John Legend - She Don't Have to Know(   Читать дальше...   )Жанр: Soul, Rnb, FunkПродолжительность: 09:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5C5860C338C0EFA57A2C7846676879A7AC5A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080942   (285718) от 08.12.2016
-
-VA - Blues Forever vol.65 - vol.68 (2016) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joey Gilmore Band - Night Time Is The Right Time
-02. Rossington - Shame On Me
-03. Karise Eden - Back To Black
-04. Patric Williams - Little Wing(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A834E8A0793D5A8C683D6E74D2DE501B5A91C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963749   (285474) от 09.12.2015
-
-VA - Сборник Шансона: Вавилон Обетованный (2015) [MP3|192-320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Куренков - Ангел мой
-002. М. и И. Круг - Тебе моя последняя любовь
-003. Павел Павлецов - Крылья
-004. Аркадий Дар - Женщина моя(   Читать дальше...   )Жанр: ШансонПродолжительность: 10:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95261CD93B72B3601C6844DEAFC51B6F090CFE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263646   (285431) от 20.11.2018
-
-VA - Deep House Collection Vol.190 (2018) [MP3|~ 256 - 320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285431.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 22 Weeks  - Stop Kidding  (Original Mix)
-002. 84Bit - Noe (Original Mix)
-003. A.M.R - Silver Lining  (Intro Mix)
-004. A.M.R - Silver Lining  (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2A0E236BB4E88F9E4CCF653579D33A185B45E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080754   (285395) от 08.12.2016
-
-VA - Record Russian Mix Top 100 December (07.12.) (2016) [MP3|256-320 Kbps] <Club House, Pop-Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.2NICA & Maxx Play ft Aristina - Shake It (Diaz & Taspin Remix) 4:49
-002.2NICA & Maxx Play ft Aristina - Shake It (Original) 5:57
-003.4bel vs Croatia Squad - No Love (DJ Tol-Life Radio Mash-Up) 3:13
-004.50 Cent x Anton Liss - Holy Technology (Alex Milano & Yastreb Mashup) 3:39(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro HouseПродолжительность: 07:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC54D7E6E1FA62545A9181EB31D894EA3F398ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

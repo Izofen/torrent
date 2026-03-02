@@ -1,3 +1,119 @@
+###  Публикация: 1010113   (803954) от 24.04.2016
+
+Dami Im - Classic Carpenters (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (They Long to Be) Close to You    03:43
+02. There's a Kind of Hush (All Over the World)    03:04
+03. Yesterday Once More    04:02
+04. Superstar    03:14(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3A5937221E02BAD0F6830F6C130ED4511EDE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120441   (803446) от 30.03.2017
+
+Nelly Furtado - The Ride (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Hard Truth (2:54)
+ 02. Flatline (3:22)
+ 03. Carnival Games (4:18)
+ 04. Live (4:04)(   Читать дальше...   )Жанр: Pop, R'n'BПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F0AB7259E3C6683EF786D25608EBFD39384244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505605   (802834) от 28.10.2021
+
+Elton John - The Lockdown Sessions (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802834.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Lockdown Sessions - четвертый совместный альбом английского певца и автора песен Elton John. Он был выпущен на лейблах EMI и Mercury Records (Interscope Records в США) 22 октября 2021 года. Альбом был записан во время пандемии COVID-19 после того, как Elton был вынужден приостановить свой тур Farewell Yellow Brick Road из-за пандемии. В альбом вошли три сингла: (   Читать дальше...   )01. Cold Heart (PNAU Remix) (with Dua Lipa) (03:22)
+02. Always Love You (with Young Thug and Nicki Minaj) (04:17)
+03. Learn To Fly (with Surfaces) (03:31)
+04. After All (with Charlie Puth) (03:28)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58052941865018C16C2D97C14D4DB72BCC10A01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010741   (802544) от 25.04.2016
+
+Lena Anderssen - Eagle In The Sky (2015) [FLAC|Lossless|tracks] <Pop, Alternative, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Sweet Home    03:14
+02. Eagle In The Sky    04:49
+03. Sorry That I Made You Cry    04:05
+04. Oh Brother With The Broken Wing    04:43(   Читать дальше...   )Жанр: Pop, Alternative, FolkПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03410EE691B1B0B95CA58C937C83FA5790FCF606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010738   (802161) от 25.04.2016
 
 Roxette - It Just Happens (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop Rock>
@@ -628,122 +744,6 @@ MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200101   (796972) от 19.01.2018
-
-Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths, Pt. I (02:50)
-02. Persephone (04:33)
-03. December (03:55)
-04. Half Hour (03:39)(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Indie Pop, Synth PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F449DC556E25F2723B6D63317C04C53D20B46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200129   (796946) от 19.01.2018
-
-Charlotte Gainsbourg - IRM (2009) Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master's Hand (2:49)
- 02. Irm (2:35)
- 04. In The End (2:00)
- 05. Heaven Can Wait (2:41)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CC754DD081866DD8C24A44597AFFDE111AA1AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508634   (796859) от 09.11.2021
-
-Nik Kershaw - The Works (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Step Ahead
-02. Elisabeth's Eyes
-03. Take My Place
-04. Wounded Knee(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4219C17C4441EF350106B2D1011E01D51035626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508717   (796804) от 09.11.2021
-
-Adriano Celentano - 24.000 Baci (1987) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24.000 Baci	2:15
-02. Nata Per Me	2:46
-03. Non Esiste L'Amor 2:12
-04. Il Ribelle 2:20(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298D29640D059DCA851B66A85764B5D562B1FFBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

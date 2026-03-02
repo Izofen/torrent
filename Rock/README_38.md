@@ -1,3 +1,58 @@
+###  Публикация: 1035344   (628034) от 16.07.2016
+
+Pink Floyd - Echoes - The Best Of Pink Floyd (2001) Remastered, 2016, Parlophone Records Ltd. / PFR20 [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock | Parlophone Records Ltd. / PFR20Продолжительность: 02:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE4C488578FC679CA2E6EDB49368C110E10E633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144381   (627600) от 22.06.2017
+
+Brownsville Station - Air Special (1978) Remastered, 2006, Wounded Bird Records [MP3|320 Kbps] <Rock, Hard Rock, Rock & Roll, Boogie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627600.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Taste Of Your Love
+2. Waitin' For The Weekend
+3. Who Do You Love
+4. Tears Of A Fool(   Читать дальше...   )Жанр: Rock, Hard Rock, Rock & Roll, BoogieПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C740CB57A5BD9C38FAEA22D504D20603C3A7F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144305   (627016) от 22.06.2017
 
 Imagine Dragons - Evolve (2017) Deluxe Edition [MP3|320 Kbps] <Rock>
@@ -699,64 +754,6 @@ VA - Jim Beam Authentic Rock - 50 Pub Jukebox Anthems (2012) [MP3|320 кб/с]<R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B559AC3CD2340735F37BB7FB26CE87B779104560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230047   (618893) от 10.06.2018
-
-VA - 90s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Eye Blind – Semi-Charmed Life
-02. Barenaked Ladies – One Week
-03. Jane’s Addiction – Been Caught Stealing
-04. Better Than Ezra – Good(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A12B6DEA4B6ECF68E7F0CAB24FBD7770CB6989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295537   (618595) от 13.04.2019
-
-VA - 100 Greatest Classic Rock Songs (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Van Halen - Jump (2015 Remaster) 4:02
-002. ZZ Top - La Grange 3:51
-003. Alice Cooper - School's Out 3:29
-004. Whitesnake - Here I Go Again (USA Remix) 3:53(   Читать дальше...   )Жанр: RockПродолжительность: 06:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1AFA8D9D9CED68D0C803DAEF13D63B155B9128
 ```
 
 https://mybot314.ru/tekegram_catalog/

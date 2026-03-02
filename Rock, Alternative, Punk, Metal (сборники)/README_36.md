@@ -1,3 +1,32 @@
+###  Публикация: 1191010   (265764) от 11.12.2017
+
+VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265764.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. King Diamond - At the Graves (1989) (8:58)
+02. Innerwish - Spacerunner (1998) (4:31)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 07:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46DEB293AF28435FF365F821FD3D9B6107FB231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191045   (265093) от 12.12.2017
 
 VA - Maximum Alternative (2017) [MP3|320 Kbps] <Rock Alternative>
@@ -752,35 +781,6 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60F2DECF11CF0D401C0E4D4C77F54749B531B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299595   (241512) от 15.04.2022
-
-Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starstruck
-02. Catch The Rainbow
-03. L.A. Connection
-04. Fool For The Night(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

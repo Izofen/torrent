@@ -1,3 +1,206 @@
+###  Публикация: 1492127   (902368) от 30.08.2021
+
+VA - Soft Chaos: Electronic Set (2021) [MP3|320 Kbps] <Synthetic, Electronic, Experimental, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blood Wine Or Honey - Mystery Operator
+002. Ihf - It Wasn't Enough
+003. Tal Fussman - Tell Me All About It
+004. Squarepusher - Squarepusher Theme(   Читать дальше...   )Жанр: Synthetic, Electronic, Experimental, SynthwaveПродолжительность: 12:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8E1A9E193C7DAF02E216A5768811B9EE23B4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492091   (902352) от 30.08.2021
+
+VA - Ambient Budda Groove Party (2021) [MP3|320 Kbps] <Ambient, New Age, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902352.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Magenta Room - Air Tomorrow
+002. Night Sky Pulse - Luminescence
+003. Cephas Teom - The Kingdom Of Heaven
+004. Intelligent Life - Lost In Translation(   Читать дальше...   )Жанр: Ambient, New Age, MeditationПродолжительность: 10:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D25ABCDB3B4593A82A3A53EEECC0795AC95AA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492158   (902348) от 30.08.2021
+
+VA - Deep & Electro House Vol.2 (2021) [MP3|256 Kbps] <Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alex Twin - Pandora
+02 Anagramma - I Don't Mind
+03 DJ Jedy - I Remember (Original Mix)
+04 A-Mase - Melancholy (Radio Mix)(   Читать дальше...   )Жанр: Deep House, Electro HouseПродолжительность: 05:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F73D6AAE26BE64B89746199DAE64F2BF2C5EB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492576   (902337) от 30.08.2021
+
+VA - Music News vol.127 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Asking Alexandria - Alone Again (03:49)
+ 002. Aisha - Классно (02:51)
+ 003. Anne-Marie & Little Mix feat. Becky Hill & Raye & Stefflon Don - Kiss My (Uh Oh) (Girl Power Remix) (04:37)
+ 004. ARCHI - Газуй Малой (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E27B26BFF1E7BC067F9D1856E57F25DA947939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492092   (902333) от 30.08.2021
+
+VA - Dream Popping Dance (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902333.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alessia Cara - Wild Things
+002. Little Mix - A Mess
+003. David Guetta - This One's For You
+004. Masked Wolf - Astronaut In The Ocean(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0172F6C5BA770A08228647847F6A9D0F1BD131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492498   (902331) от 30.08.2021
+
+VA - Привет Уходящему Лету (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902331.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris, Tom Grennan - By Your Side (3:09)
+002. Travis Scott, HVME - Goosebumps - Remix (2:42)
+003. Riton, Nightcrawlers, Mufasa & Hypeman, Dopamine - Friday - Dopamine Re-Edit (2:49)
+004. Regard, Troye Sivan, Tate McRae - You (3:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9BD090535BE1239DAE9251C800DC0A766CA546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492156   (902315) от 30.08.2021
+
+VA - Deep & Electro House Vol.1 (2021) [MP3|256 Kbps] <Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 KeyPlayer - Illusion (Original Mix)
+02 Anil Altinay - Come To Me
+03 Anagramma - I Don't Mind
+04 Fade Off - Republic(   Читать дальше...   )Жанр: Deep House, Electro HouseПродолжительность: 04:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7624B413F842BD05CC79A7F2712AE916040D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492272   (902298) от 30.08.2021
 
 VA - 30(7) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,212 +745,6 @@ VA - Space And Time (2017) vol.3 [MP3|320 Kbps] <Disco, Electonic, Space-rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80414B507B1174CFDE6D9F72604518BAA39C8895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369667   (901285) от 24.03.2020
-
-Pink Floyd - 100% Pink Floyd (2020) 2CD [MP3|320 Kbps] <Progressive Rock, Psychedelic Rock, Art Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side 3, Pt. 3: Night Light
-02. Side 3, Pt. 4: Allons-y (1)
-03. Side 3, Pt. 5: Autumn '68
-04. Side 3, Pt. 6: Allons-y (2)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Art RockПродолжительность: 09:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10031DBC654B2B4812905CEE24174DB1D8A7546B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369754   (901273) от 24.03.2020
-
-Metallica - 100% Metallica (2020) [MP3|320 Kbps] <Metal, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Sandman
-02. Master Of Puppets
-03. For Whom The Bell Tolls
-04. Seek & Destroy(   Читать дальше...   )Жанр: Metal, Trash Metal, Speed MetalПродолжительность: 03:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2218BEDCBEA0C4C98719C0F54319B4F62CAE6FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099900   (901229) от 03.02.2017
-
-VA - Hits of My Soul Vol. 23 (2016) [MP3|320 кб/с]<Dubstep, Progressive House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. A.C.N. & Double Amp ft. Veel - I'm A Liar (Nick Bounce Remix) (05:08)
-02. Knife Party - Bonfire (Original Mix) (04:32)
-03. Mind Vortex - Alive (03:34)
-04. Dimitri Vangelis  Wyman - Survivor (Original Mix) (06:05)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, Electro House, Progressive House, TrapПродолжительность: 03:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC6F25E56FA7A1B460FE26F77E37085D1114DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100299   (901194) от 03.02.2017
-
-VA - Фитнес - Хит (2017) [MP3|217-320 Kbps] <Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vlad Janela - Stream Silence (Original Mix)
-02. R&M - Holiday (Instrumental Version)
-03. Nicco & Chris Deelay - Remember (Pulsedriver Bounce Mix)
-04. Usai, Julia Elle - Falling Down (PARSIFAL Remix)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 08:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAE532CE9CA76280EBC15C44DB7562C24E72E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992406   (901058) от 02.03.2016
-
-VA - Тонна шансона 2 (2016) [MP3|256 кб/с] <Шансон, Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - В Архаре
-002. Станислав Перелыгин - Любоваться
-003. Евгений Воробьев - Русая Коса
-004. Алиса Савинская - Журавли(   Читать дальше...   )Жанр: Шансон, Авторская песняПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E81C7584F5AEBF8CEFD81E7989A5C0F648182F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992608   (901019) от 02.03.2016
-
-VA - Traces Of Serenity: Longe Episode (2016) [MP3|320 кб/с] <Longe, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901019.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karon Koury - Cultivated
-002. Roxano de Santiago - Amazing Helper 04:24
-003. Oscar Rogers - Magic Moments 04:24
-004. TRILLIAN - Colour Me Sexy 06:33(   Читать дальше...   )Жанр: Longe, Downtempo, ChilloutПродолжительность: 12:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1E5B1B00685CA93AA0441082070F727C488DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992416   (901002) от 02.03.2016
-
-VA - Water Oblivion: Chillout Deep Session (2016) [MP3|320 кб/с] <Chillout, Longe, Downtempo, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901002.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Gorda Project - Do That Again
-002. Stephane Lumiere - Together
-003. Kai French - Electronic Bird
-004. Mauro Rizzo - I Will Find My Path Again (No Gravity Version)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep HouseПродолжительность: 08:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952EE0E4493B8388E3BA652207D2C7779A48BEFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

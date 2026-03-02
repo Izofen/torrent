@@ -1,3 +1,32 @@
+###  Публикация: 1235110   (564074) от 09.07.2018
+
+Rheingold - Im Lauf der Zeit (2017) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kraut
+02. Im Lauf der Zeit
+03. Sehnsucht
+04. Stromaufwarts(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAB1D054E9457255F03E9AEBCFD0A5CFDD5F73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045181   (561393) от 22.08.2016
 
 The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Pop-Rock>
@@ -716,35 +745,6 @@ Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD1C215A2CAAEB693E5E7C158A9F6B006D536A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936216   (493859) от 12.09.2015
-
-Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper Gods (feat. Mr Hudson)
-02. Last Night In The City (feat. Kiesza)
-03. You Kill Me With Silence
-04. Pressure Off (feat. Janelle Monáe & Nile Rodgers)(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7888DECD9D05E0B6D29A0BE5866ED2A67AC9103D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,295 +1,27 @@
-###  Публикация: 1353674   (990601) от 19.01.2020
+###  Публикация: 431804   (991394) от 05.01.2012
 
-Opti Drive Control 1.80 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opti Drive Control — утилита для тестирования производительности оптических приводов. Поддерживает все известные на сегодня типы дисков, в том числе CD, DVD и Blu-Ray. С помощью этой программы возможно произвести тестирование скорости чтения и записи дисков, создавать тестовые диски и проверять качество записи, а также получать детальную информацию о дисках и приводах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6642D169A61C1BE2DDC0419F37B1F24B69B72982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353835   (990600) от 19.01.2020
-
-Книжная серия | «Сказки народов мира» [6 книг] (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из шести книг «Сказки народов мира» приглашает вас окунуться в волшебные истории Англии, Румынии, Италии, Эстонии, Норвегии и Дании, проиллюстрированные современными художниками. Ознакомившись с невероятными историями и увлекательными приключениями, вы сможете лучше понять культуру народов представленных в книгах стран.Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3E49947901CE3012278D24D1AD285B6FE5D853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353839   (990599) от 19.01.2020
-
-Алекс Каменев | Приход Теней (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хозяину Замка Бури не удается почивать на лаврах. Чтобы основать город, необходимо привлечь поселенцев, но вокруг хозяйничают Вольные баронства. Бароны при поддержке Магического Совета захватывают свободных крестьян. Клинок Заката готов вступить в схватку с магами четырех стихий, которые целенаправленно уничтожают представителей Древней Знати – ансаларцев. В это (   Читать дальше...   )Жанр: Боевое фэнтезиПродолжительность: 08:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC1CE1DE045E78DBDF7771F636E80526C7FCB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353714   (990598) от 19.01.2020
-
-Обои - Desktop Wallpapers Full HD. Part (555) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593BA315A5FC480A1D8FD8BB086394E8D2802741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353866   (990597) от 19.01.2020
-
-Lynda.com | JavaScript: Шаблоны / JavaScript: Patterns (2018) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990597.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом учебном курсе Эммануэль Анри объясняет, как шаблоны проектирования сочетаются с JavaScript. Он раскрывает назначение некоторых из наиболее распространённых шаблонов, попутно предоставляя примеры кода. Вы узнаете о ключевых шаблонах для креативного, структурного и поведенческого проектирования, а также о том, как применить каждый из них в своём коде JavaScript.Производство: Lynda.comЖанр: Программирование, JavaScript, ECMAScript 6Перевод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C9493D6E27F7E15E7B2F37A643086C7596EED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353679   (990596) от 19.01.2020
-
-Числа. 5 чисел, которые изменили мир / Numbers. Five Numbers That Changed the World (2012) WEB-DLRip [H.264/720p-LQ] (Серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели документального фильма «Числа» сосредоточились на пяти цифрах, которые не просто привели ученых к новым открытиям в области математики, но и смогли продвинуть вперед всю историю цивилизации. Числа «Пи», «бесконечность», «x», «0», «i» были изобретены благодаря усилиям ученых в их погоне за новыми знаниями. Это не просто символы, а блестящие достижения человеческого (   Читать дальше...   )Производство: Южная Корея / Educational Broadcasting SystemЖанр: Документально-постановочный, познавательныйРежиссер: Kim Hyung-joonПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 5 x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9572E8448EF56A969B5CB5091678B91C492DC4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333743   (990595) от 19.01.2020
-
-Книжная серия | "Торчвуд" [13 книг] (2012 - 2020) [FB2] [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Густые чёрные тучи затягивают небо над Кардиффом. Когда двадцать четыре дюйма осадков выпадают за двадцать четыре часа, дренажная система в центре города выходит из строя. Столичных бродяг убивают, их изуродованные тела остаются лежать на мокрых улицах в окрестностях ядерной установки «Blaidd Drwg».
-Преследуемый Торчвудом, убийца спокойно падает с высоты в восемь (   Читать дальше...   )Жанр: Фантастика, ФэнтезиПеревод: Feyza, Джон Паяльник, Snake Gagarin, и др.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587C9B8926A378720FC3AABA9C6BF35B09880617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353798   (990594) от 19.01.2020
-
-Путешествие муравья (1983) WEBRip [H.264/1080p-LQ] [PR]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990594.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма положена сказка В. Бианки «Как муравьишка домой спешил». В нем рассказывается о злоключениях хвастливого муравьишки, унесенного ветром в лес, и о том, как гусеница, кузнечик, водомер и майский жук помогли ему до захода солнца попасть домой.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, комедия, рисованная анимация, семейныйРежиссер: Эдуард НазаровСубтитры: ОтсутствуютПродолжительность: 00:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7466835EBD2A1418BFAA097D8A3EDF4EE409C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608314   (990590) от 29.01.2013
-
-VA - Club Dubstep №26 - Club Dubstep №26 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassnectar feat. Tina Malia -Nothing Has Been Broken (05:48)
-02. Butch Clancy -Lonely (05:12)
-03. Cross Them Out -Disorientated (04:10)
-04. Dabin -Wildfire (Original Mix) (04:52)
-05. DOCTOR P feat JENNA G -Neon (Mizuki remix) (04:41)
-06. Filthzilla -Atlantis (Original mix) (04:33)Жанр: DubstepПродолжительность: 02:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF371F64A32F15AF1A74A635DC629A5C2F643445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610612   (990588) от 29.01.2013
-
-At The Dawn - From Dawn to Dusk (2013) [MP3|320 кб/с]<Power Metal>
+System of a Down - Kill rock'n'roll greatest hits (2008) [FLAC|Lossless]<Ню-метал, Alternative>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990588.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Prelude
-02 At the Dawn
-03 Red Baron's Kiss
-04 Winter Storm
-05 Balthazar
-06 Post Fata Resurgo
-07 Countdown to Infinity
-08 Louder to Heaven
-09 Sunset Rider
-10 Wake Up At Dusk(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC389B949194B0DCB1335EDF71D3E8AFFB471B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610615   (990585) от 29.01.2013
-
-Beckwith - Craymal EP (2012) [FLAC|Lossless]<Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craymal (Original Mix) (7:51)
-02. Birds (Original Mix) (7:08)
-03. All I Need (Original Mix) (6:37)Жанр: Deep HouseПродолжительность: 00:21:36
+CD1:
+ 01. Attack
+ 02. Innervision
+ 03. Revenga
+ 04. Boom!
+ 05. Hypnotize
+ 06. Highway song
+ 07. Chop suey!
+ 08. B.Y.O.B.
+ 09. Stealing society(   Читать дальше...   )2008Жанр: Ню-метал, AlternativeПродолжительность: 02:39:22
 
 ## Скачать торент
 ```bash
@@ -301,25 +33,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609151   (990584) от 29.01.2013
+###  Публикация: 431538   (991390) от 05.01.2012
 
-Фотография - Фотограф Hartmut Norenberg [JPEG]
+Отличный Новый Год! Концерт Дискотека 80-х (2011) SATRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Театр и Музыкальное видео
+>>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990584.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотограф Hartmut NorenbergРазрешение файлов: 600x700 ~3000x3895Формат: JPEG
+"Дискотека 80-х" - золотые хиты, любимые мелодии, которые всегда молоды.1. Юрий Шатунов "Белые розы"
+2. Юрий Шатунов "Седая ночь"
+3. Ottawam "Hands Up"
+4. Ottawan "D.I.S.C.O."(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:24:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CEB43F2FB2BD4B2BD8C7BCE167A2CA127AC287E
+magnet:?xt=urn:btih:93FFCB93138757F9E2CC001344F636D9B83E0669
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,49 +62,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610411   (990582) от 29.01.2013
+###  Публикация: 432118   (991387) от 05.01.2012
 
-Фотография - Фотограф Ellen von Unwerth [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотограф Ellen von UnwerthРазрешение файлов: 424х600 - 1400х644Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9A8317A0FD4C25FC85A529F2E484AFD953FDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610163   (990581) от 29.01.2013
-
-PDFCool Studio 3.32 Build 130128 [Английский]
+Bee Icons 3.1 [Мультиязычный (русский присутствует)]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990581.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDFCool Studio - это очень удобная программа, которая служит для быстрого создания, редактирования, кодирования и преобразования PDF-документов. Утилиту можно использовать для редактирования существующих PDF-файлов или для создания новых PDF-файлов из различных печатных документов, в том числе фотографии, документы MS Office, веб-страниц и многих других.
+Вероятно, каждый пользователь персонального компьютера старается настроить вид операционной системы под себя. Стандартные средства Windows позволяет не так уж много: заменить обои, настроить меню «Пуск», заменить стандартные звуковые сигналы.
 
-Продукт поддерживает более 30 видов форматирвоания, которые позволяют вставлять водяные знаки, объединять PDF файлы, поворот страниц, вставки пользовательских верхних и нижних колонтитулов, импортировать или создать цифровые идентификаторы для подписи документов, извлечения и преобразование страниц, удалять выбранные страницы и многое другое.Название программы: PDFCool StudioЯзык интерфейса: Английский
+Программа Bee Icons поможет вам сделать свою операционную систему еще белее уникальной и непохожей на друге.
+
+Bee Icons позволяет заменить стандартные иконки системы на те, которые действительно вам нравятся. Вы сможете поменять иконки рабочего стола, меню «Пуск», папок, дисков, драйверов и прочих зарегистрированных типов файлов.
+
+Используя Bee Icons, вы сможете заменить как несколько иконок, так и все, используя множество доступных в программе тем. Вы сможете создавать даже собственные уникальные темы.Название программы: Bee IconsЯзык интерфейса: Мультиязычный (русский присутствует)
 
 ## Скачать торент
 ```bash
@@ -381,34 +94,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610746   (990578) от 29.01.2013
+###  Публикация: 431838   (991378) от 05.01.2012
 
-VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
+Как помочь малышу красиво говорить (4-6 лет) (2008) DVDRip
 
->>Electronic
->>Trance
+>>Видео, Кино и Сериалы для детей и родителей
+>>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990578.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sergey Romashkin - The Neighbors - Vadim Miner Intro Remix
-02. Vasiliy GooDKov - Feel - Original Mix
-03. 3rd Planet - UFO Here - Original Mix
-04. S.Y.N.E.R.G.Y. - Invisible Flight - Original Mix
-05. Mixail - Mysterious Window - Original Mix
-06. John Dubs - Why We Hurry - 1Touch Remix
-07. Eugene Diveev - Sometimes Music Stops - Original Mix
-08. Fashion Beat - Time So Slow - JMV Club Mix
-09. Teana and Tiida - Coral Reef - Original Mix
-10. Eximinds featuring Aelyn - Fairy Tale - Chance Jumpers pres. nu Okkerville Remix(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:23:42
+Пользуясь этим фильмом как методическим пособием, вы сможете в увлекательной форме заниматься со своим ребенком – дошкольником развитием речи.
+Фильм рассказывает не только об основных этапах становления детской речи, но и о направлениях работы над ее развитием, которыми успешно пользуются логопеды.
+Эти направления даны в здесь в виде таких блоков: Развиваем связную (   Читать дальше...   )Жанр: Обучающее видео для детей и родителей, ДокументальныйРежиссер: Игорь ПелинскийПродолжительность: 01:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52E52BF0AAB996B902B979920D22697D156131D9
+magnet:?xt=urn:btih:D4DDE52EE9AAB434061479EA5F00C03CB5192055
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,30 +122,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610472   (990576) от 29.01.2013
+###  Публикация: 125880   (991375) от 05.01.2012
 
-Ancient Ceremony - 2CD (1997 - 2002) [WavPack|Lossless]<Symphonic Black/Gothic Metal>
+Единственная дорога (1974) DVDRip
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990576.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ex Insula Angelorum [01:25]
-02. Al Shaitan Mahrid [04:12]
-03. Litanies In Blood [05:02]
-04. Seed Of Evil [05:28]
-05. A Black Requiem [06:20]
-06. With Mephistophelic Egotheism [04:22]
-07. The Ultimate Nemesis [04:47]
-08. On Khaos Wings [05:07]
-09. Salute O Satana [03:05]
-10. Under Astral Tyranny [05:13](   Читать дальше...   )Жанр: Symphonic Black/Gothic MetalПродолжительность: 00:50:07
+События, о которых рассказывает фильм, длились три дня с 23 по 25 апреля 1944 года в Словении.
+
+На обочине застыли немецкие танки и бронетранспортёры. Кончилось горючее. Немецкое командование подготовило автоколону с горючим, которое нужно доставить к бронетехнике. Большая часть дороги, по которой должна пройти автоколона, контролируется югославскими партизанами. (   Читать дальше...   )Жанр: ВоенныйРежиссер: Владимир ПавловичАктеры: Анатолий Кузнецов, Душан Яничеевич, Лев Дуров, Глеб Стриженов, Владимир Высоцкий , Ирина Мирошниченко.Продолжительность: 1:31:19
 
 ## Скачать торент
 ```bash
@@ -451,34 +150,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 609947   (990575) от 29.01.2013
+###  Публикация: 329416   (991356) от 05.01.2012
 
-VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
+Подборка журналов | Сервисный центр [2010-2011] [DJVU]
 
->>Other Styles
->>New Age/Meditative/Relax
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990575.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(3:50) 01. Gary Stadler & Stephannie - Garden of Dreams
-(4:32) 02. Alquimia - She Moved Through the Faire
-(4:45) 03. Stella Maris - To the Promised Land
-(4:24) 04. Sharon Kight - May Morning Dew
-(4:10) 05. Gary Stadler & Singh Gaur - Laura's Hill
-(6:51) 06. David Gordon - Beneath the Misty Fell
-(3:13) 07. Achillea - The Monks of Lindisfarne
-(8:27) 08. Everstar - Departure from the Shire
-(5:48) 09. Artemsia - The Fairie Muse
-(4:41) 10. Steve Gordon - Banks of the Avonmore(   Читать дальше...   )Жанр: New age, CelticПродолжительность: 01:02:38
+"Сервисный центр" - профессиональный технический журнал по диагностированию и ремонту сложной вычислительной техники и оргтехники. Компьютеры, сетевые технологии, диагностика и ремонт, программные средства, копировальная техника.Формат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:803DE539DD392EEB4F4B3DDF7BA435F084FB50C4
+magnet:?xt=urn:btih:EB59FAFAFAF309E7EF956A42D4D013C952F5CDDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,34 +176,213 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 610447   (990574) от 29.01.2013
+###  Публикация: 430540   (991355) от 05.01.2012
 
-VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+Чужой / Alien (1979) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем возвращающийся на Землю грузовой космический корабль перехватывает исходящий с неизвестной планеты слабый сигнал SOS. Экипаж принимает решение совершить посадку и разобраться, в чем дело. Оказавшись на планете, астронавты повсюду обнаруживают неопознанные предметы, по виду напоминающие гигантские коконы…Производство: Великобритания, США / Brandywine Productions Ltd., Twentieth Century-Fox Productions Ltd.Жанр: Ужасы, ФантастикаРежиссер: Ридли СкоттАктеры: Сигурни Уивер, Том Скеррит, Вероника Картрайт , Гарри Дин Стэнтон, Джон Хёрт, Иэн Холм, Яфет Котто, Боладжи Бадеджо, Хелен Хортон, Эдди ПауэллПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969283D04B5240FFDDD51E98676A12CBE7921377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 98196   (991353) от 05.01.2012
+
+Фауст / Урок Фауста / Faust (1994) VHSRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Драма, Фантастика, УжасыРежиссер: Jan Svankmajer (Ян Шванкмайер)Актеры: Petr Cepek, Jan Karus, Vladimir Kudla, Antonin Zacpal, Jiri SuchyПеревод: Одноголосый закадровыйПродолжительность: 01:32:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432035   (991344) от 05.01.2012
+
+Девушка напротив / The Girl Next Door (2007) [H.264/720p-LQ] BDRip
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 1958 г. двенадцатилетний Дэвид развлекается с соседскими мальчишками, как типичные подростки, играя в прятки и дразня местных девочек. Однажды к соседским мальчикам приезжает красивая кузина и ее младшая искалеченная сестра, недавно осиротевшие в страшной автомобильной катастрофе. Дэвид по-дружески относится к старшей из девочек и начинает чувствовать приступы (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Грегори УилсонАктеры: Блайт Оффарт, Дэниэл Манче, Бланш Бэйкер, Грант Шоу, Грэхэм Патрик Мартин, Бенжамин Росс Каплан, Остин Уильямс, Уильям Этертон, Кевин Чэмберлин, Дин ФолкенберриПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B44BDB24305905512C18B957C2FB717333F5EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431897   (991341) от 05.01.2012
+
+Чёрные волки (2011) [H.264] DVDRip (серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Ярославле в пятидесятых годах прошлого века. Главный герой, бывший следователь УГРО Павел Хромов, был осужден на восемь лет за преступление, которого не совершал. Освободившись, Павел узнает, что его сестру убили «Чёрные волки», – так провинциальные жители назвали организованную группировку, которая держит в страхе весь город. На месте (   Читать дальше...   )Жанр: Криминал, Детектив, ДрамаРежиссер: Дмитрий КонстантиновАктеры: Сергей Безруков, Александр Коршунов, Дарья Мороз, Владимир Юматов, Владимир Капустин, Александр Голубев, Дмитрий Мухамадеев, Анатолий Кот, Евгений Серов, Евгений Антропов, Алена Хмельницкая, Кристина Бабушкина, Анна Уколова, Олег Соколов, Анатолий Гущин, Юлия Свежакова, Сергей Журавель, Андрей Барило, Денис Беспалый, Юлия Рувинская, Олег Заболотный, Петр Томашевский, (   Читать дальше...   )Продолжительность: 8x ~00:49:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431874   (991338) от 05.01.2012
+
+Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) 2xDVD9 (серии 1-12 из 12)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишка Японец — не просто обычный налетчик с одесским колоритом. Стать королем воров, держать в страхе весь город, и одновременно быть народным любимцем мог только человек неординарный. Его популярность колоссальна — в нем видят «Робин Гуда», который радеет за народ, он утверждает свой «кодекс налетчика» — бедняков не грабить, не трогать врачей, юристов, артистов. (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Сергей ГинзбургАктеры: Евгений Ткачук, Елена Шамова, Валентин Гафт, Римма Маркова, Всеволод Шиловский, Владимир Долинский, Алексей Филимонов, Вадим Норштейн, Илья Лыков, Игорь Арташонов, Артем Ткаченко, Александр Лазарев (младший), Игорь Савочкин, Сергей Марин (II), Олег Школьник, Ирина Токарчук, Валерий Бассэль, Екатерина Копанова, Яна Поплавская, Андрей Ургант, Александр Ильин, Павел (   Читать дальше...   )Продолжительность: 12 x ~ 00:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431998   (991334) от 05.01.2012
+
+Tomb Raider: Underworld [Ru/En] (RePack/1.1) 2008 | R.G. Element Arts
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991334.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении веков жители Скандинавии рассказывали древние истории о могущественном оружии великого бога Тора. Одним взмахом могучего молота он мог превращать высокие горы в долины, а при желании – даже сразить других богов! Тысячу лет эти предания были мифом, пока один человек не нашел доказательства существования этого оружия в глубинах Средиземного моря. Девушка, (   Читать дальше...   )Тип издания: RePackРазработчик: Crystal DynamicsЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD4CDA95DD3EE9E570E26ECE0211BDB2502B92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609354   (991307) от 28.01.2013
+
+Jaytech - 3 Singles (2008, 2011, 2012) [FLAC|Lossless]<Progressive House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlantic (7:19)
+02. Synergy (7:27)Жанр: Progressive House, HouseПродолжительность: 00:14:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608313   (991306) от 28.01.2013
+
+VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990574.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shapeshifter - Twin Galaxies (The Upbeats Remix)
-02. Awakening State - Out There (Subsonik VIP Mix)
-03. Edward Oberon, Blade, Sopheye - Butterflies (Original Mix)
-04. Sunny Crimea - Ain't No Game (Original Mix)
-05. Hammock - I Can Almost See You (Need a Name Tribute)
-06. Switch Technique - Rude Soul
-07. mSdoS - Dimensions (LM1 Remix)
-08. PostML - It's Time
-09. Skyweep - Sweet Sunday (Original Mix)
-10. Paul SG - Do It But Do It Right (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:39:11
+01. Benga Feat. Katy B -Katy On A Mission (Trainrek Remix) (04:15)
+02. Boy Kid Cloud -How It Looks (Doctor P VIP) (03:52)
+03. Delta Heavy -Overkill (Zifra vs Fi-Chek Remix) (04:48)
+04. Devin Martin -The Armory (Original Mix) (03:51)
+05. Document One, Tigerlight -Already LostTIT4 (06:10)
+06. DotEXE -38 Degrees (04:18)Жанр: DubstepПродолжительность: 01:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9E9F2C0F07684300FCDB025EF66E9C7194CF5E3
+magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,25 +390,348 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 432006   (990570) от 06.01.2012
+###  Публикация: 610298   (991304) от 28.01.2013
 
-Вой: Перерождение / The Howling: Reborn (2011) DVD9
+VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TyDi feat. Sarah Howells - When I Go (Arnej Remix)
+02. Sabrina Terence - About You (Mito & Moe Aly Edit)
+03. Soarsweep - If There Was Love (Original Mix)
+04. Teknova - Mistik (Stephan F Remix Edit)
+05. Stephan F - Majestic (Club Mix)
+06. Will Bailey and Poisound - In The Echo (Original Mix)
+07. Santerna - Parallax (Andrew Riqueza Bootleg)
+08. Steve Brian & Cressida - Casablanca (Radio Edit)
+09. Mark Van Dale with Enrico - Water Verve (Leon Bolier Remix)
+10. Mika V. - Biography (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FFD4816FB78C5D6954447A5904D7B77CAE4B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608293   (991295) от 28.01.2013
+
+VA - In Da Club Vol.69 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Proud - As One (Original Mix)
+002. Gai Barone - Astronave (original mix)
+003. Inge Lemon - Starchild (Gofman & Tsukermann Remix)
+004. DNS Project - Second Chapter (Original Mix)
+005. Arnej - For The People (original mix)
+006. Fabio XB feat. Simona Barbieri - Flash Of Life (Cressida Remix)
+007. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi Remix)
+008. Klauss Goulart - Let Your Scars Dance (Original Mix)
+009. Armin van Buuren feat. Jennifer Rene - Fine Without You
+010. Eximinds - Afterlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D35957E94114BE82AD0C52F269423A9371B7CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609372   (991293) от 28.01.2013
+
+VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 12th Planet - The End Is Near, Pt. 1 (Felguk Remix)
+2. Avicii feat. Nicky Romero - I Could Be the One (Dirty Dutch Visionaire Remix)
+3. Avicii feat. Nicky Romero - I Could Be The One (Seif Remix)
+4. Bruno Mars - Locked Out Of Heaven (Sultan feat. Ned Shepard Remix)
+5. Dada Life - So Young So High (Andybody Remix)
+6 .Deorro - Hands Up
+7. Direct - Zombie
+8. Hot Mouth feat. Chris James - Totally Worth It (Peacetreaty Remix)
+9. Jean Elan feat. Cosmo Klein - All About Us (Pyero Remix)
+10. Joe Luthor- Sad Memories (Clonation Remix)(   Читать дальше...   )Жанр: Electro House, House, ElectroПродолжительность: 02:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7FEAE8AEAC7B13EC6E631BFC3B3CDB6EB1C909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608309   (991292) от 28.01.2013
+
+VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  1 501 - Chasing Stars (04:43)
+02.  2 501 - Headrush (feat. Belle Humble) (04:31)
+03.  3 Ain't No Love - Shine (03:43)
+04.  4 ak9 - Everything Matters (Original Mix) (04:45)
+05.  5 Ben Kumar, Roy Merchant, Grainne O'Neill - Street Lights (03:54)Жанр: DubstepПродолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9BD559831A937ABE3A86AD4A1B8C15296FE004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609497   (991291) от 28.01.2013
+
+VA - Cahaya Dari Jiva (2012) [MP3|320 кб/с]<Chillout, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sonnie Mishki - Lost Planet (Mushroom Lab Touch)
+2. By The Rain - Mystical Water
+3. Wavespell - White Wispers Dub
+4. Tymek - Transgalactic Jazz
+5. Heliopatis - Recognition Of Emptiness
+6. Dream Stalker - Under Moon
+7. Astronaut Ape - Your Personal Sun
+8. Faura - Keep On Going
+9. Tarac - ComakinoЖанр: Chillout, Ambient, DowntempoПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2374C63110FD1482376D9C4A41D245BE9149C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608303   (991289) от 28.01.2013
+
+VA - Club Dubstep №23 - ERROR (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savant -Welcome To Death (03:05)
+02. Ascendance, The Nineties, Cori Pena, Drop Goblin -Come Find Me (Drop Goblin Remix) (05:36)
+03. Bassnectar & DC Breaks -Breathless feat. Mimi Page (05:27)
+04. Booty Luv -Say It (Nero Remix) (05:30)
+05. Cassius -I Love You So (Schoolboy Remix) (04:20)
+06. Cutline -Die For You (JMajik And Wickaman Remix) (05:37)
+07. Cypress X Rusko -Lez Go (FRNKNSTYN Remix) (03:42)Жанр: DubstepПродолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD42B04A5659809FBF4247203CAB6FDF3639AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609999   (991288) от 28.01.2013
+
+VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.P.Y - You
+02. D.M.T, Sensa - I'm Holding On (Original Mix)
+03. Ruffhouse - The Foot (Original Mix)
+04. Keosz & Trilo - Pride (Orignal Mix)
+05. D-Pression - 3rd Trimester (Original Mix)
+06. Smote feat. Flautistar - I Believe You Do (Original Mix)
+07. Muzzy - Pegasus ft. Roniit
+08. Dementia & Basses Intentions - Shocking Eruption
+09. Halosphere - Run Away (Aurosonic Remix)
+10. Modest Intentions - Look Around You (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA730F09DC7DF37299875C6B4710A8EAE66F806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610073   (991286) от 28.01.2013
+
+Журнал | Здоровье [Россия] №2 (февраль 2013) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, antiage, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCFA60B516FD076A455907FEAE210123FB5EEBA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608673   (991285) от 28.01.2013
+
+Johnny Burnette - The Ballads Of (2010) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamin'
+02. Clown Shoes
+03. My Special Angel
+04. Please Help Me I'm Falling
+05. Shattered Dreams
+06. I'll Never Love Again
+07. Love Me
+08. You're Sixteen
+09. I Just Found Out
+10. Settin' The Woods On Fire(   Читать дальше...   )Жанр: popПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685E395360AA4774FA28C3F5FCFE2E2CF0F18C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610050   (991278) от 28.01.2013
+
+Газета | Сезон у дачи №2 (январь 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD63F4C434984F9A22583A4001E7F171EFD9666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609285   (991277) от 28.01.2013
+
+Коалиция / The Coalition (2013) BDRip [EN]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990570.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Накануне окончания средней школы обыкновенному парню Уиллу Кидману все-таки удается обратить на себя внимание красавицы Элины Уинтер. Молодые люди счастливы, но внезапно открывается страшная тайна прошлого Уилла — близится час, когда ему предстоит стать оборотнем. Не желая смириться с судьбой, молодые люди нарушают древний мистический цикл и теперь за ними начинает (   Читать дальше...   )Производство: СШАЖанр: Ужасы, ТриллерРежиссер: Джо НимзикиАктеры: Лэндон Либуарон, Ивана Миличевич, Линдси Шоу, Нильс Шнайдер, Эрин Симс, Эрин Агостино, Kristian Hodko, Шон МеркадоПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:28:21
+История о четырех молодых женщинах, которые объединяются. чтобы отомстить четверке перспективных спортсменов за предательство и публичные оскорбления...Жанр: Комедия, МелодрамаРежиссер: Моника МингоАктеры: Адриенн Белон, Джеке Гарри и Х.Р. РамиресПеревод: ОтсутствуетПродолжительность: 01:40:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:111AEDD2DD97E087B7F3988DE768EFFCF1524E5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,192 +739,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 138921   (990568) от 06.01.2012
+###  Публикация: 610111   (991276) от 28.01.2013
 
-Парикмахер Биллу / Billu Barber (2009) DVDRip
+Сборная СССР | Буклет к ЧМ 1986 года. [1986] [PDF]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Разное (категория книг)
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990568.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простой человек, брадобрей Билас Рао Пардеси преспокойно живёт с женой Биндия и двумя детьми в селе Будбуда (штат Уттар Прадеш). У него из всего инструментария только тупые ножницы и щербатая расчёска. У него нет даже денег, чтобы купить новую расчёску и помазок. Он не может оплатить счёт за учёбу детей. Его жена занимает у соседей масло для светильника, так как в доме за неуплату отключено электричество. И тем не менее, Биллу мечтает о вращающемся кресле и модных стрижках. Но вот однажды в село на съёмки приезжает суперзвезда Сахир Кхан. По деревне поползли слухи, что Биллу и Сахир дружат ещё с детских лет. И теперь все в селе стремятся заручиться поддержкой парикмахера, что бы тот при случае замолвил за них словечко перед большим человеком из города. Биллу же не горит желанием встречаться со своим старым другом, которого когда-то он выручил из беды. Биллу кажется, что Сахиру неинтересны воспоминания прошлой жизни, но Сахир - не такой человек...Жанр: КомедияРежиссер: ПридаршанАктеры: Ирфан Кхан, Шахрукх Кхан, Лара Датта, Ом Пури, Карина Капур, Дипика Падуконе, Приянка ЧопраПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 02:17:00
+Сборная СССР по футболу.
+Буклет к ЧМ 1986 года.Формат: PDF
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432596   (990559) от 06.01.2012
-
-Самый маленький ангел / The Littlest Angel (2011) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990559.jpg" />
-</div>
-
-
-###  Подробнее
-
-На основании детского бестселлера  всех времен, Самый маленький ангел рассказывает историю мальчика, который прибывает на небеса до своего времени.Жанр: АнимацияРежиссер: Дэйв КимАктеры: Рон Перлман, Нина Кирхер, Эд Келли, Калеб Вульф, Клэрити ПеттонПеревод: Любительский (двухголосый закадровый)Продолжительность: 01:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFEE180D34EA6E61876053D4DE44A29AAF25720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431667   (990557) от 06.01.2012
-
-VA - HIM. Сайд проекты, трибьюты, каверы (1997 - 2011) [mp3|64 kbps - 320 kbps] <Gothic Rock, Love Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euroshaman [3:15]
-02. Flatlined [3:44]
-03. Saturnalia [1:01] 
-04. Neolithic Way [4:47]
-05. I Saw Myself [4:46]
-06. The Mentat [4:23]
-07. I Have Never Wanted To Be Number One [3:51] 
-08. Who Turned The Lights Out [3:31]
-09. Kiss Of The Cannibal [5:01]Жанр: Rock, Country, Orchestra, Black Metal, Electronic ||Продолжительность: 10:42:09
-
-Финская англоязычная группа HIM. Музыка, сочетающая в себе лирические мелодии с мощными гитарными рифами. Данная раздача включает в себя сайд-проекты участников HIM, а так же трибьюты и каверы на HIM других исполнителей.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B4F2652881319C5EF1B6E85006DC57BD9A1F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353915   (990553) от 19.01.2020
-
-Экшены - GraphicRiver - Gif Animated Meteor Shower Rain Light Photoshop Action - 24712030 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gif анимированный метеоритный дождь.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28D49946F7A9B63505FAA4BF42F41571085D697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353557   (990552) от 19.01.2020
-
-Наследники (2008) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990552.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повести югорского писателя Сергея Козлова "Мальчик без шпаги".
-В таежном сибирском поселке проживает обыкновенная семья, каких тысячи. Отец – буровик, мать – медсестра. Их сын успешно учится в начальной школе. Каждое лето они ездят к бабушке в Крым. Вся эта идиллия рушится из-за неприятностей на работе у отца. Он начинает пить и втягивает в это и свою (   Читать дальше...   )Производство: Россия / "Прессинг"Жанр: ДрамаРежиссер: Константин ОдеговАктеры: Павел Юрченко, Екатерина Редникова, Денис Карасёв, Владимир Толоконников, Александр Голубков, Юлия Галкина, Леонид Куравлёв, Константин Одегов, Евгения Лапова, Александр БашировСубтитры: ОтсутствуютПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D0971360F6FF85E839CB9B712AFCCBBAC6E24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353715   (990551) от 19.01.2020
-
-Обои - Desktop Wallpapers Full HD. Part (556) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC039807F07EA07801373E09AB60232E94A5623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353907   (990550) от 19.01.2020
-
-Хэйли Бёрч | Химия. 50 идей, о которых нужно знать (2016) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Химия – это сама наша повседневность. Как работают кремниевые чипы? Как заставить природные вещества бороться с людскими болезнями? И можно ли создать искусственные мышцы? На эти и многие другие вопросы отвечает ваш проводник в мире современного химического знания – «Химия. 50 идей, о которых нужно знать». От молекул, с которых началась жизнь на нашей планете, до (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Научно-популярная литература, Общая химияПеревод: Шаши МартыноваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3626E8786EC69AAF6C71BE67D53FCFB0BCAB35
+magnet:?xt=urn:btih:BAC66B1DB721B69146BD558E12705C6242C46E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

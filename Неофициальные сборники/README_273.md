@@ -1,3 +1,206 @@
+###  Публикация: 1030260   (674700) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 7 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сталкер - Новости Из Первых Рук ( 1988 )
+02. Мальвина - Ждать Не Буду ( 1990 )
+03. Шоколад - Твое Отражение ( 1989 )
+04. Фристайл - Мы Разные ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D571B425B4086BF81C2693429C11B75003FEA0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030231   (674578) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 2 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сталкер ( Андрей Державин ) - Ночной Город ( 1988 )
+02. Маленкий Принц - Я Не Знаю, Зачем Мне Ты ( 1989 )
+03. Комбинация - Ход Конем ( 1988 )
+04. Фристайл - Прощай Навеки, Последняя Любовь ( 1989)(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39B176E08596F93BB2E6A7BC2080CD04793F63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030246   (674575) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 5 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мираж - Я Не Хочу ( 1988 )
+02. Твой День ( Виктор Попов ) - Влюбленный Май ( 1989 )
+03. Каролина - Тебя Я Не Прощу ( 1991 )
+04. Звезды & Кармен - Китай ( 1991 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF6317FFD7D970865B59B992EC9BE5B2C9CACFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030234   (674574) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 3 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ролик Студии Мастер ( 1992 )
+02. Тридевятое Царство ( Игорь Гулевич ) - Далекий Город ( 1989 )
+03. Альфа ( Кидэ Эдуард ) - Здравствуй ( 1990 )
+04. 1-е апреля - Делай Раз, Делай Два ( 1990 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36C82D3FF8740653D44BA2983D4A68D1592ED65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030255   (674573) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 6 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рок-Острова - Ой, Мороз, Мороз ( 1991 )
+02. Санкт-Петербург - Очарована, Околдована ( 1996 )
+03. Кальянов Александр - Карабас-Барабас ( 1986 )
+04. Белоусов Евгений - Девчонка-Девчоночка ( 1988 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77D2547769BF86EAB1D9306C2F9CCA2F6F53F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030266   (674426) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 9 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кар-Мэн - Прощай, Лондон ( 1990 )
+02. Мираж - Где Я ( 1988 )
+03. Каир - Снежная Королева ( 1991 )
+04. Бисквит - Наша Любовь ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233ACFA4A3B4E36138883B68341B6ED3F9BF3E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030269   (674412) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 10 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Волков & Дискотека Альянс ( 1992 )
+02. Принцесса Nova - Дом Зеленых Глаз ( 1994 )
+03. Рок-Острова - Стежки ( 1991 )
+04. Фея ( Светлана Разина ) - Забытая Песня ( 1990 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08943D580BD9E7CC3D9531BF90394579DF1A16E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030212   (674409) от 30.06.2016
 
 VA - Зарубежная Дискотека ХХ Века - 35 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -539,209 +742,6 @@ VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93B511ADE139DD2154A11A9606548C429C47095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223347   (673410) от 05.05.2018
-
-VA - Cocktail new music №33 (2018) [MP3|320 Kbps] <Dance, Club, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673410.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akcent feat. Reea - Stole My_Heart
-002. Burak Yeter - French Kiss
-003. Camila Cabello feat. Kane Brown - Never Be The Same
-004. Dan Balan feat. Matteo - Allegro Ventigo(   Читать дальше...   )Жанр: Dance, Club, R&BПродолжительность: 06:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136680   (673238) от 23.05.2017
-
-VA - Dangerous Dance Vol 2 (2017) [MP3|320 Kbps] <Funky, Tech House, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Lorenz - Acropolis (Strich Acht Remix) 05:48
-02. Sinan Kaya - White Burst (Aleja Sanchez Remix) 07:22
-03. The Greengo - Deep Flight 07:20
-04. Sean M - His Weakness In Chicago 06:58(   Читать дальше...   )Жанр: Funky, Tech House, MinimalПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AB241B449FB7C8874A9A813830D6628EBCF810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136500   (673231) от 23.05.2017
-
-VA - Club Dance Ambience Vol.109 (2017) [MP3|320 Kbps] <Club House , Vocal House , House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673231.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Heimann - Freed From Desire 2017 (Extended Mix) 5:30
-002. Ami - Ma omoara (Vadim Adamov & DMC Remix) (Radio Edit) 3:44
-003. Andrey Exx, Sharapov, Dave Baron, Chris Montana - I Feel Your Voice (Chris Montana Remix) 5:05
-004. Artik & Asti - Неделимы (DJ Konstantin Vertigo Radio Edit) 2:43(   Читать дальше...   )Жанр: Club House , Vocal House , HouseПродолжительность: 07:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2470B36DC125BA9352398DC1084DEA8700572706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136523   (673230) от 23.05.2017
-
-VA - Весенний хитовичок молодежный выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. U3u - Ток  Бьет 3:00
-002. Александр Кэтлин - Монстр 4:40
-003. Дидо Каримов - Раз И Навсегда 4:39
-004. Надежда Грановская - Беги От Меня 3:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1132F70D2950A5572D6233BFDA66163731787CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136518   (673132) от 23.05.2017
-
-VA - Горячая весенняя танцплощадка. Версия № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ольга Крымская - Давай Не Поверим Им 4:14
-002. Даша Данилова - Останься В Прошлом 4:15
-003. Тимур Спб - Лучшая Подруга 3:27
-004. Mainstream One - Последний Поцелуй 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535EC3D77870F235B4EE46DB70F96C8278AF4C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136494   (673130) от 23.05.2017
-
-VA - LUXEmusic - Dance Super Chart Vol.118 (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam Lambert - Another Lonely Night (No Hopes & Misha Klein Remix) 4:55
-002. Adele - Hello (DJ Denis Rublev Remix) 4:25
-003. Artik & Asti, Kolya Dark x DJ Kolya Funk & DJ Eduardo Versace - Никому Не Отдам (Alex Cyber Mash Up) 4:57
-004. Anton Liss feat. Гейдар Багиров - Океаны (Radio Edit) 3:44(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8109D2FFDF1CD6F7576DDDA29C23094BFD233272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136514   (673129) от 23.05.2017
-
-VA - Syndrome Butterfly: Techno Party (2017) [MP3|320 Kbps] <Techno, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Depth Perception - Movement (Original Mix) (Original Mix) 6:53
-002. Tech Duo - Few Hearts But Techno 5:56
-003. Dual Me - Celestial (Original Mix) 7:13
-004. Mitekss - Synthetic (Original Mix) 7:12(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 12:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C803F323C043FA5139AD31983AED1BF98D25E584
 ```
 
 https://mybot314.ru/tekegram_catalog/

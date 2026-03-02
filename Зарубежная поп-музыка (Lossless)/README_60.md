@@ -1,3 +1,118 @@
+###  Публикация: 1318516   (374501) от 25.09.2019
+
+Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374501.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Fur and Gold
+2009 - Two Suns (Special Edition)
+2012 - The Haunted Man
+2016 - The BrideЖанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 05:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F33085E69001598FABD6F314DD330CF65E4A312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069415   (373976) от 04.11.2016
+
+Innocence - Natural Thing (1989) Maxi-Single, 1990, Chrysalis [FLAC|Lossless|image + .cue] <Electronic, Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373976.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Natural Thing (7 Inch) 4:05
+2. Natural Thing (Elevation) 10:03
+3. Natural Thing (Original) 4:15Жанр: Electronic, Pop, Funk, SoulПродолжительность: 00:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F006843CF644E2D5B5FDD729DDB81CA97477FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950096   (372929) от 25.10.2015
+
+The Beloved - X (1996) [FLAC|image+.cue]<House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliver Me (3:59)
+ 02. Satellite (4:15)
+ 03. Ease The Pressure (4:21)
+ 04. A Dream Within A Dream (7:23)(   Читать дальше...   )Жанр: House, PopПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F287EBF142F39336B049FBBCD29452A45C6ACA1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069623   (371290) от 05.11.2016
+
+Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Lovers 03:31
+ 02. Deep Waters 03:46
+ 03. I'm Yours 03:08
+ 04. Helpless 03:14(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93DACE3C0BDDCD88E4258C978F739235FCF5903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950521   (370250) от 26.10.2015
 
 One Direction - Four • The Ultimate Edition (2014) [FLAC|image + .cue]<Pop>
@@ -635,122 +750,6 @@ Pink (P!nk) - Beautiful Trauma (2017) Japan [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D48CFA83313F3E4E531FD1EBB6C35B90982DC89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952729   (353181) от 02.11.2015
-
-VA - NRJ Music Awards 2015 (2015) [FLAC|tracks +.cue]<Pop Compilation, Pop, Dance, R&B, French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - What Do You Mean? (3:23)
-02. David Guetta & Showtek feat. MAGIC! & Sonny Wilson - Sun Goes Down (3:31)
-03. Rihanna - Bitch Better Have My Money (3:37)
-04. Nicky Jam & Enrique Iglesias - El perdón (3:26)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Dance, Electronic, R&B, Hip Hop, House, Funk, Soul, Pop Rock, Ballad, French PopПродолжительность: 02:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6D05EECE69257F7B2BA105008E78D03B09227A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329491   (352375) от 05.10.2019
-
-Tegan and Sara - Hey, I'm Just Like You (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold My Breath Until I Die (03:42)
-02. Hey, I'm Just Like You (03:08)
-03. I'll Be Back Someday (03:12)
-04. Don't Believe the Things They Tell You (They Lie) (03:05)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7B4D47B29CFD79D2DB1CE6C7ABD6798EB1D1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256757   (351877) от 23.10.2018
-
-ABBA - Gracias Por La Musica (1980) Japanese Edition (1986) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracias Por La Música
-02. Reina Danzante
-03. Al Andar
-04. ¡Dame, Dame, Dame!(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D5EFB7BA583B1487F5AC2F28EA0FDBD6F9F132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953083   (351695) от 03.11.2015
-
-Marc Lavoine - L Heure d ete (2005) [FLAC|image+.cue]<Pop,Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toi Mon Amour (03:35)
- 02. Je Me Sens Si Seul (03:06)
- 03. Tu M'as Renverse (02:32)
- 04. La Melancolie (03:16)(   Читать дальше...   )Жанр: Pop,ChansonПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265045FAD3ACDFD46DA7A102AD7AB6A7ECA80A97
 ```
 
 https://mybot314.ru/tekegram_catalog/

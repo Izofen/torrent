@@ -1,3 +1,90 @@
+###  Публикация: 257665   (1030590) от 18.02.2021
+
+VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Cumparasita - Julio Cortazon Orchestra 	(03:20)
+02. Adios Muchachos - Julio Cortazon Orchestra 	(01:39)
+03. El Choclo - Alle Gould Orchestra 		(02:18)
+04. Rio De La Plata - Armand Frydman & Deni Hekimian 		(02:20)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354958   (1030589) от 18.02.2021
+
+Валерий Приказчиков - 2 альбома (2004, 2008) [FLAC|Lossless|image + .cue, tracks] <Surf, Beat>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебют квартета «Электрон» состоялся в 1963 году в эфире популярной в то время радиостанции «Юность». Участники «Электрона» в разное время учились в музыкальных школах, В. Приказчиков и Е. Гусев занимались в музыкальном училище при Московской консерватории по классу гитары. Но настоящую школу они получили в художественной самодеятельности, в ансамбле гитаристов, которым (   Читать дальше...   )01. Электрон - Вернись 			  (1965) (02:33)
+02. Электрон - Мелодия из к-ф 'Бум' 	  (1965) (02:37)
+03. Электрон - Солнечные часы 		  (1966) (02:35)
+04. Электрон - Веселые туристы 		  (1966) (02:02)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 295442   (1030584) от 18.02.2021
+
+Оркестр Вермишель - 5 альбомов (1996 - 2010) [FLAC|Lossless|tracks + .cue, image + .cue] <Instrumental, Ethno-Art-Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030584.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Оркестр Вермишель» («Vermicelli Orchestra») — российский инструментальный ансамбль, этно-арт-рок проект. Основатель коллектива и основной автор музыки — Сергей Щураков. Группа образована в 1996 году, состав группы менялся несколько раз и окончательно сформировался к 2000 году. В составе группы играли Илья Порхунов, Виталий Семенов, Наиль Кадыров, Всеволод Гаккель, (   Читать дальше...   )Список альбомов:
+1996 (2001) - Anabasis
+1999 - Византия
+2005 - Марк Аврелий(   Читать дальше...   )Жанр: Instrumental, Ethno-Art-RockПродолжительность: 03:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199315   (1030581) от 18.02.2021
 
 VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image + .cue] <Neo Tango>
@@ -658,93 +745,6 @@ Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314199   (1030129) от 20.02.2021
-
-VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John, Osbourne - Blue Eyes 		(03:28)
-02. Leiber, Stoller, King - Stand by Me (02:55)
-03. Masser, Creed - The Greatest Love of All (04:43)
-04. Bahler - She's Out of My Life 	(03:26)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252875   (1030118) от 20.02.2021
-
-Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tango Des Fleurs	    (03:46)
- 02.  Tango Star		    (02:25)
- 03.  Tango Magique	    (02:26)
- 04.  Valse Blonde	    (02:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209363   (1030107) от 20.02.2021
-
-Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
-01. Angels (4:39)
-02. Babylon (4:08)
-03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
 ```
 
 https://mybot314.ru/tekegram_catalog/

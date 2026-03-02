@@ -1,3 +1,30 @@
+###  Публикация: 1081728   (278178) от 12.12.2016
+
+Пресеты - VST3 Presets MediaBay для Cubase [VSTPRESET]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это коллекция VST3 пресетов для MediaBay Cubase 5 и Nuendo 4.
+Всего, коллекция содержит более 26 тыс. VST3-пресетов.Формат: VSTPRESET
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE066C1888DAAADB392C66A7520DC5C6A52A394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264756   (277711) от 25.11.2018
 
 Растровый клипарт - Fotolia - Beautiful woman with long smooth hair [JPG]
@@ -665,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB10C2D03D83E31B98FC610274BE1FABF83CD495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188920   (273232) от 03.12.2017
-
-Растровый клипарт - Fotolia - Girl in dress the Christmas tree [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка в платье елка с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2818x4000-5424x5316
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08D6420928F99A647E3C11FC9A31990BC66EF33
 ```
 
 https://mybot314.ru/tekegram_catalog/

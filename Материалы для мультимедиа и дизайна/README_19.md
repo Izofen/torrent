@@ -1,3 +1,30 @@
+###  Публикация: 1468941   (1016711) от 10.05.2021
+
+NNM Club Sound Cleaner's - Arabic (Ramadan) Clean Music Tracks by andgelo12 [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных треков очищенных от "голосовых вставок" ("watermarks").
+Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE42C2D96A5B1A8AE329650CF31EF6AE67FEF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469483   (1016366) от 12.05.2021
 
 Звуковые библиотеки - Paramount Motion - Odeon Cinematic Sound Effects Pack [WAV, MP3]
@@ -657,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25991D049A92373B624A3C87D0C9F2CD5B0CFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472530   (1014337) от 25.05.2021
-
-Векторный клипарт - Different people at work and leisure modern design illustration 2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Люди
-11 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3588534A6804923772FB26C8E67517FF79957046
 ```
 
 https://mybot314.ru/tekegram_catalog/

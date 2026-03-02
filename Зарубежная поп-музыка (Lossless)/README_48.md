@@ -1,3 +1,120 @@
+###  Публикация: 1311009   (544276) от 27.06.2019
+
+Madonna - Madame X (2019) Japanese Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medellin with Maluma (4:58)
+02. Dark Ballet (4:15)
+03. God Control (6:19)
+04. Future ft. Quavo (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C969713A847ACC2FAE29C753077F909530667763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049058   (544249) от 04.09.2016
+
+VA - 12 Inch Dance: 80s Pop (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Spandau Ballet - Gold (12'' Mix) [07:15]
+02 Duran Duran - The Reflex   [06:34]
+03 Soft Cell - Torch   [08:27]
+04 Tears For Fears - Shout   [08:01](   Читать дальше...   )Жанр: PopПродолжительность: 03:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A08045A00E694BDEBAC76A9C34690534A331D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311090   (544211) от 27.06.2019
+
+VA - Top Of The Pops '1983 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаемся к продолжению путешествия по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского (   Читать дальше...   )CD1
+01. Duran Duran - Is There Something I Should Know  (4:11)
+02. Kajagoogoo - Too Shy  (3:45)
+03. The Human League - (Keep Feeling) Fascination  (3:44)(   Читать дальше...   )Жанр: 1980s, Pop, RockПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC13BEA75AC6E46F003FFDC932804272D690E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238899   (543834) от 02.08.2018
+
+Nedelle Torrisi - Only For You (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love to the Limit
+02. Rich Kids World
+03. Discipline
+04. Complicated(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080A6A250B9CE5E5BF8C061DB2826987820ADC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238997   (543766) от 02.08.2018
 
 VA - Sounds Of The Eighties The Rolling Stone Collection 1982-1983 (1995) Time Life Music [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
@@ -636,122 +753,6 @@ Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F76508D32DF10786411FDCB5FE349EFDE1233E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311652   (536310) от 02.07.2019
-
-VA - Sláger Rádió - Sláger Slágerek. Vol 2 (1999) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536310.jpg" />
-</div>
-
-
-###  Подробнее
-
-A 60-as 70-es évek legnagyobb slágerei  
-
-01. Hofi Géza - Próbálj meg lazítani (3:23)
-02. Kovács Kati - Úgy szeretném meghálálni (3:22)(   Читать дальше...   )Жанр: Pop Rock, Disco, RetroПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49435B77F307D11C829EF74CC5301A9D2FB54D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050747   (536198) от 09.09.2016
-
-Imany - The Wrong Kind Of War (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Folk, Singer-Songwriter>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Our Soul (3:28)
-02. No Reason, No Rhyme (4:45)
-03. You Don't Belong To Me (3:37)
-04. I Long For You (3:18)(   Читать дальше...   )Жанр: Pop, Soul, Folk, Singer-SongwriterПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EF3A54BEEF1143CCC7B53D0D417C3A30DCFE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312306   (534494) от 03.07.2019
-
-Sure Sure - What's It Like? (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends from the Past                                                  [0:13]
-02. Good Thing                                                             [3:05]
-03. What's It Like?                                                        [3:15]
-04. Lie Lie Lie                                                            [2:32](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58503627532D4EFCC684115F39ED4B42DB204EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558183   (533765) от 19.06.2022
-
-Egil Eldoen - Welcome Into My Heart (1985) Remastered, Repress, 2021, Norske Albumklassikere [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watching Eyes (2:43)
-02. Stand By Me (3:26)
-03. Welcome Into My Heart (4:19)
-04. Desire (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA2FE6ECAB2FB8A041EDE58B6E41EC8431DA9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

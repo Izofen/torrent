@@ -1,3 +1,61 @@
+###  Публикация: 1380125   (836383) от 01.05.2020
+
+The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Apples In Stereo - американская рок-группа, связанная с Elephant Six Collective. Группа в значительной степени является продуктом ведущего вокалиста/гитариста/продюсера Роберта Шнайдера, который пишет большинство музыки и текстов группы. Звучание группы сравнивают с психоделическим роком от The Beatles и The Beach Boys в 1960-е годы, а также таких групп как Electric (   Читать дальше...   )Список альбомов:
+1995 - Fun Trick Noisemaker
+1997 - Tone Soul Evolution
+1999 - Her Wallpaper Reverie(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 04:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004692   (836161) от 07.04.2016
+
+Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 кб/с] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Blue Sky
+02. Evil Woman
+03. Don't Bring Me Down
+04. Sweet Talkin' Woman(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501608   (835246) от 10.10.2021
 
 Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
@@ -685,64 +743,6 @@ Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502738   (824728) от 16.10.2021
-
-The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Across The Universe (1970 Glyn Johns Mix) [00:03:31]
-02. I Me Mine (1970 Glyn Johns Mix) [00:01:45]
-03. Don’t Let Me Down (Single Version / 2021 Mix) [00:04:08]
-04. Let It Be (Single Version / 2021 Mix) [00:03:52]Жанр: RockПродолжительность: 5CD, 02:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F41B40CCD3EB6156C9688233916A861FEE2453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996786   (824211) от 19.03.2017
-
-Chuck Berry - Gold (2005) 2CD, Compilation [MP3|320 кб/с]<Rock and Roll, Rhythm and Blues, Chicago Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824211.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:22] 01. Maybellene
-[03:05] 02. Wee Wee Hours
-[02:24] 03. Thirty Days
-[02:45] 04. You Can't Catch Me(   Читать дальше...   )Жанр: Rock and Roll, Rhythm and Blues, Chicago BluesПродолжительность: 02:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFE0BEBFD59D977B192970E9584DB2AFC982E73
 ```
 
 https://mybot314.ru/tekegram_catalog/

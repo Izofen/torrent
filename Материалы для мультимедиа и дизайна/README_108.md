@@ -1,3 +1,29 @@
+###  Публикация: 1212019   (776463) от 10.03.2018
+
+Растровый клипарт - Fotolia - The girl on the background with hearts [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка на фоне сердца с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2771x4150-4300x2944
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FAEEBE39D001AE4421A4898C8ADFE6D0336536A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212032   (776426) от 10.03.2018
 
 Векторный клипарт - Fotolia - Pixel icon sign vector web design element picture [EPS]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F9C211708B7C9D60A744367D5771E0FCE1AEC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212071   (775653) от 12.03.2018
-
-Пресеты - VideoHive - CINEPUNCH Video Creator Bundle v6.0 - 20601772 [FFX, CUBE, 3DL, LOOK, AEP, WAV]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромная библиотека дизайна движения инструментов для всех ваших потребностей в редактировании видео. UPDATE v6.0 добавляет BRAND NEW SUITE-CINEDUST PACK - CINECLOUD - ANAMORPHIC CREAMS R3D. CinePunch был создан, чтобы дать цифровым художникам множество инструментов и средств управления, чтобы улучшить окончательный вид проекта. Упрощенные панели управления и обширная (   Читать дальше...   )Формат: FFX, CUBE, 3DL, LOOK, AEP, WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC390FE7BF258902C20DE14D5D25936509E2FAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

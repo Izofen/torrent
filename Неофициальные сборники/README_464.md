@@ -1,3 +1,218 @@
+###  Публикация: 948883   (379470) от 22.10.2015
+
+VA - Vocal Deep House Vol.2 (Compiled by Zebyte) Russian Version (2015) [MP3|256-320 кб/с]<House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jama - Spring (Sergey Franc & Dmitriy Brain Remix) [04:24]
+02. Катя Лель - Долетай (Low Deep Mix) [04:09]
+03. D.I.P. - Время Ню (Mastadont Deep Mix) [06:34]
+04. Мохито - Я Не Могу Без Тебя (Tvkiller Radio Edit) [03:30](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE94F8A9DBEC12D91AF325DF921F48F33FD143D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253755   (379446) от 11.10.2018
+
+VA - Hip Hop Raised Me (2018) [MP3|320 Kbps] <Hip Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Centric - A Hero's Theme (Intro)
+002. Lil Xan - Who I Am
+003. Les Anticipateurs - Bateaux Colombiens
+004. Mega. - Type Of Way(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 07:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7F8A6ED113A82B59B940013CBD3016E9EFC177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253764   (379310) от 11.10.2018
+
+VA - Tried And True: Blues Music (2018) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379310.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Johnson - Please Don’t Go
+002. Ben Harper, Ben Harper - When I Go
+003. Duke Robillard - From Monday On
+004. Banda Do Sul - Freed From Desire(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B19A8127520A03B9E4A0310BBB5E55F0D88422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720472   (379164) от 08.11.2013
+
+Yello - 25 Best Songs (2012) [MP3|~245 кб/с (V0)]<Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expert 2009
+02. The Race 1988
+03. Fat Cry 1994
+04. Dialectical Kid 2010(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCB955A1DA86AD61E9113693E19E1860F1E4A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949078   (379146) от 22.10.2015
+
+VA - Волшебные Инструментальные Мелодии (2015) [MP3|320 кб/с]<Instrumental, Pop>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fausto Papetti - Strangers In The Night
+002. Gipsy Kings - Michael
+003. Acoustic Alchemy - Jamaica Heart Beat
+004. Francis Goya - Exodus(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 09:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141692780049CEA21AF928BC720E0E5D8C482514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573906   (379126) от 11.11.2012
+
+VA - Новая коллекция 71 (2012) [MP3 |256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379126.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инь-Ян - Oh, Yeah!
+002. Полина Гагарина - Нет
+003. Олег Винник - Па-па
+004. Дима Билан и Ева - Малыш
+005. David - Я Люблю Тебя За Это
+006. Ольга Литвиненко - Листья
+007. Митя Фомин - Наглый Ангел
+008. Ани Лорак - Зажигай Сердце
+009. Валерий Меладзе feat. Вахтанг - Свет уходящего солнца
+010. Анна Семенович - Любовь Под Облаками(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E31D8CB59AADF9303D24F8B168B832FE55619FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573904   (379123) от 11.11.2012
+
+VA - Русский Улетный Hit-Прорыв (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Винтаж feat. Bobina - На На На (Mariya Malyakina & Stanislav Shik BMM Radio Remix)
+02. Катя Чехова - По Буквам Слова
+03. Блестящие - Зеленые Глаза
+04. 140 ударов в минуту - Надышаться тобой
+05. Алабама - Отпускаю
+06. Егор Сесарев - Громче Музыка (Space4 Official Remix)
+07. Вера Каретникова - Vera
+08. Достучаться До Небес - Все Это Временно
+09. Iowa - Ищу Мужа
+10. Анна Семенович - Любовь под облаками(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA29636CD824BA2D442C128553D9675D3B0D993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573660   (379122) от 11.11.2012
 
 VA - Trancern 38.1: Official Compilation (November 2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
@@ -623,209 +838,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5F4D2A90854F0C1C800EDB4A5A955F82EAA724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068843   (378451) от 02.11.2016
-
-VA - Dance Bigroom House (2016) [MP3|256-320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Freakbreak - Midnight Rain
-002. Luke Meyers - Play House (Vocal Edit)
-003. Mike Candys Feat. Clyde Taylor - Make It Home (Gino G Remix)
-004. Brothers - My Battle (Trvpers Mix) (feat. Ranieri)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 12:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCC6B3573FBE841AAED0CC4EA314DAC4C9AB7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068806   (378447) от 02.11.2016
-
-VA - Sidney Nights -The Deep House Beats Vol.1 (2016) [MP3|192-320 Kbps] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramiro Mirgardo - Super Tubos
-02. Southbeat - Feeling so Strong
-03. DJ-Chart - Waiting for You
-04. Lee & Sun - Ain't Nobody(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E42FF0F7E0E838E8E6048EDBC2968DDDB29378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068898   (378442) от 02.11.2016
-
-VA - Музыкальный Адреналин. Top Hits 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378442.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danya - Проснуться Вдвоем
-002. Molella Feat. Airtones - Bring Back The Love
-003. Turan - Континенты
-004. Ronan Keating - Shine Like Gold(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0523863F6F9A89BC7990377583872DEAFE24A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068892   (378439) от 02.11.2016
-
-VA - Осенняя Дискотека По-Русски (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378439.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Liz-Project & Dj Vishin - Вирус Любви
-002. Дмитрий Несветайло - Сны Неверные
-003. Сергей Грейс - Любить Тебя Любить
-004. Dj Jedy Feat. Олеся Май - Сказка(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE5DDC32C45DFF2B41F75DFCBC4558D72F911C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068912   (378310) от 02.11.2016
-
-VA - Happy Tracks Play Sound (2016) [MP3|256-320 Kbps] <Pop, Gospel, Hip Hop, Electro, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Simons - Lose Control (Radio Edit) 03:13
-02. Emeli Sande Ft Jay Electronica - Garden (Extended) Dirty) 04:02
-03. Frances - Under Our Feet (Radio Edit) 04:50
-04. Icona Pop - Brightside (Radio Edit) 02:51(   Читать дальше...   )Жанр: Pop, Gospel, Hip Hop, Electro, Deep HouseПродолжительность: 04:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B215496A21BAF19C6898286E4C7AE0C5671035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068847   (378301) от 02.11.2016
-
-VA - Top 100 Downloads October (2016) [MP3|320 Kbps] <Nu Disco, Big Room, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cari Golden, Reinier Zonneveld - Things We Might Have Said (Original Mix) 07:55
-02. Solardo - Tribesmen (Original Mix) 07:17
-03. Groove Armada - Superstylin' (Riva Starr Edit) 06:10
-04. Rufus - Innerbloom (Sasha Remix) 10:49(   Читать дальше...   )Жанр: Nu Disco, Big Room, Future HouseПродолжительность: 10:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AA979F5E3346974E1F66260BACFC5E220C498D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175244   (378176) от 18.10.2017
-
-Олег Винник - Музыкальная коллекция (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я не устану (03:28)
-02. Не ты (03:19)
-03. Разве можно (03:33)
-04. Прощай навеки (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC95297A5B9163760A4629940F09457B5621BF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

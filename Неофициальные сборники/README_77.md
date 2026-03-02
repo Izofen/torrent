@@ -1,3 +1,206 @@
+###  Публикация: 1094061   (930864) от 17.01.2017
+
+VA - Top 100 шансон зимний (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930864.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Прянов & Наталья Сколубович - Всякое Бывает 3:33
+002. Александр Казанцев (Сотник) - Сибирячка 3:31
+003. Ян Марти - Женщина С Ангельским Именем 3:28
+004. Татьяна Козловская - Какая Меня Муха Укусила 5:14(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7556DE817EACA5C3BAE72DC2CD490D819F5360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094080   (930858) от 17.01.2017
+
+VA - The Planetary Influence: Territory Of Dubstep (2017) [MP3|320 Kbps] <Dubstep, Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930858.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wonderland Avenue - White Horse (Alexander Holsten Trap Remix) 3:10
+002. Wilkinson, P Money & Arlissa - Heartbeat (Calyx & Teebee Remix) 3:53
+003. Vato Gonzalez, Lady Bee - The World Is Mine (Original Mix) 4:18
+004. Under This - Dancing Right (Original Mix) 6:58(   Читать дальше...   )Жанр: Dubstep, Drum And BassПродолжительность: 10:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A394B017B8D8E6C07400FD6549A0E5289E1D6C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094333   (930852) от 17.01.2017
+
+VA - Полный отрыв. Зимние хиты. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930852.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steven A. Clark & Ape Drums - Can't Have 3:37
+002. Shami Feat. Арни Saveolla - Танцуем 5:13
+003. Сати Казанова - Happiness Hey 3:19
+004. Shapeshifter Feat. Anika Moa - Blazer 5:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CB5C1D1222060E020505BDF73B78A2F4D42014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094050   (930844) от 17.01.2017
+
+VA - Шансон года. Лучшие блатные хиты Часть № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930844.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Калина - Остаться Собой 3:49
+002. Ирина Рибейро - Кофе В Постель 3:26
+003. Елена Ваенга - Намасте 4:03
+004. Александр Курган - Твое Хочу 3:34(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5BC0FB8D6EEA85A2FD0A5DEB8900F5460A6549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094055   (930750) от 17.01.2017
+
+VA - Эх, Разгуляй! Новогодний выпуск радио Шансон Часть № 8 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алена Шарапова - Танго 3:42
+002. Централ - Доченька 3:56
+003. Сергей Палычъ - Туман 3:49
+004. Евгений Бакшиев - Город Девушек 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85FFCBF852C275E17D56ED73EEE01E10A496C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986272   (930707) от 14.02.2016
+
+VA - Live For Today: Classic Rock 9 (2016) [MP3|320 кб/с] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giant - Stay 04:49
+002. Suicidal Tendencies - Send Me Your Money 03:25
+003. The Gun - Race With The Devil 03:37
+004. Lita Ford - Kiss Me Deadly 04:04(   Читать дальше...   )Жанр: Classic RockПродолжительность: 06:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D584A4633384A00E1CFBE74D99A2C103E5CA075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094101   (930595) от 17.01.2017
+
+VA - Best Chillout Vol.24 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adventure Club ft Yuna - Gold (CAYA Remix) 4:05
+002. Alan Walker - Faded (Yuriy Pilin Remix) (Instrumental) 5:11
+003. Alexander Volosnikov - Lost Chapter (Original mix) 2:58
+004. Antent - Drifting Away (Original Mix) 4:01(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9464E541491D3D9D5E88481DC95E24B8B613FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094046   (930583) от 17.01.2017
 
 VA - Душевная музыка на радио Шансон. Сборник № 7 (2017) [MP3|256 Kbps] <Шансон>
@@ -546,210 +749,6 @@ VA - Classic Dance (2016) [MP3|320 кб/с] <Dance, Pop, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79221C1013CF55542724AC4B6333E359C4B36DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986970   (929155) от 15.02.2016
-
-VA - Wings Of Melody: Butterfly Party (2016) [MP3|320 кб/с] <Chillout, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929155.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sombra Modos - Natal em Natal 05:55
-002. Aqualuna - Fall In Love (Vocal Chill Mix) 06:01
-003. Ganga - Blessed 04:48
-004. Living Room - Love in the Sunlight 04:34(   Читать дальше...   )Жанр: Chillout, Downtempo, RelaxПродолжительность: 12:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4A5CC90B70173AD1EE138A3EC696D7FCEE8C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094545   (929079) от 18.01.2017
-
-VA - 100 Running Hits Quick Level (2017) [MP3|320 Kbps] <Latin, Old School, Reggaeton, Urban, Electro, Trap, Moombahton, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust - Music Sounds Better With You (We Are Dice Remix) (Clean) (Extended) 06:30
-02. Sub Focus - Love Divine (Clean) (Short Edit) 02:27
-03. Niall Horan - This Town (Cheat Codes Remix) (Clean) (Radio Edit) 03:18
-04. Zara Larsson - I Would Like (Mcgrego & Danny B Remix) (Clean) (Extended) 04:42(   Читать дальше...   )Жанр: Latin, Old School, Reggaeton, Urban, Electro, Trap, Moombahton, Future HouseПродолжительность: 06:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38B3BE18E521BB5E207DEB9A3773F126181FD55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986876   (929058) от 15.02.2016
-
-VA - Beatport Top 100 14.02.2016 [MP3|320 kbps] <House, Electro, Progressive, Deep House, Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afrojack & Hardwell - Hollywood (Extended Mix)
-002. DJ Le Roi ft. Roland Clark - I Get DeepЖанр: House, Electro, Progressive, Deep House, Tech House, TechnoПродолжительность: 09:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6CDEF6CD0FDC06BDA7B4A7521925C42E6908DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365749   (928903) от 08.03.2020
-
-VA - Rock Drive 9  (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Chisel - Drive
-02. Eclipse - Never Gonna Be Like You
-03. Beth Hart - Bad Woman Blues
-04. CoreLeoni - Mountain Mama(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12E41680353986BF360D1A1421F94DF85CC4D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862714   (928720) от 24.01.2015
-
-VA - Winter Music 2015 (2015) [MP3|320 кб/с]<Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Prayer in C  (3:09)
-02. Nico & Vinz - Am I Wrong  (4:08)
-03. Джиган & Юлия Савичева - Любить больше нечем  (3:24)
-04. ZHU - Faded (Radio Edit)  (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD396685A8D46394E10262BF88D1C6C02BF8592B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365679   (928573) от 08.03.2020
-
-VA - 101 Power Ballads (2020) [MP3|320 Kbps] <Pop, Rock, Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - I Want It All
-002. Nickelback - Rockstar
-003. Anastacia - Left Outside Alone
-004. Tina Turner - The Best(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 07:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E38DE72F9AA81537D651936E406C201FA9318DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932925   (928440) от 15.02.2016
-
-VA - Новый РусРок. То, что не купишь в магазине [40 выпусков] (2008-2016)[MP3|32-320 кб/с]<Русский Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часть 1
-
-01 - Milena - К весне   00:03:29
-02 - Ё - Балтийское счастье  00:06:14(   Читать дальше...   )Жанр: Русский РокПродолжительность: 00:38:36
-
-01 - Как Я провел Лето - Лето...я провел в суете [00:04:10]
-02 - SCULL SHAKER - Сомнение в себе, как точка отсчета [00:04:45](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B95EDEC84A8E7B693A233D77F2E77656A4CB16
 ```
 
 https://mybot314.ru/tekegram_catalog/

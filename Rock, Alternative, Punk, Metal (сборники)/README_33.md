@@ -1,3 +1,32 @@
+###  Публикация: 1577731   (350018) от 21.09.2022
+
+Motley Crue & Vince Neil - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motley Crue это целая эпоха в мире музыки. В сборник вошли лучшие песни группы. Некоторые альбомы сохранил полностью, из каких то, что то вырезал. Так что, любители ранних полноценных альбомов проходите с камнями мимо. Начиная с 94 года, как и многие рокеры того времени, команда отравилась альтернативой и слушать их стало пыткой. Очухались ребята только к 2000 году. (   Читать дальше...   )01. Motley Crue - Wild Side
+02. Motley Crue - Girls, Girls, Girls
+03. Motley Crue - Dancing On Glass
+04. Motley Crue - Bad Boy Boogie(   Читать дальше...   )Жанр: RockПродолжительность: 05:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578228   (347753) от 22.09.2022
 
 VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
@@ -718,35 +747,6 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421970   (315437) от 06.11.2020
-
-VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hillview - No One Else To Blame
-002. Kolossus Däächt - Fallen Piece
-003. Holly Would Surrender - What Do We Do Now
-004. Mcrackins - Happy Hour(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 07:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
 ```
 
 https://mybot314.ru/tekegram_catalog/

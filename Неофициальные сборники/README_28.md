@@ -1,3 +1,206 @@
+###  Публикация: 1462378   (1021136) от 14.04.2021
+
+VA - Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nana - Lonely 2021 (Fernando X T-Boy 2K21 Edit) (3:52)
+02. High Flex - Martini Orange (Extended Mix) (6:44)
+03. Ваня Дмитриенко - Венера-Юпитер (Ramirez Remix) (3:40)
+04. Enur ft. Natasja - Calabria (Atalay Tuncali Bootleg) (3:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE21389EE42A2BFBDE377B1CA02B536FD544A9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462543   (1021126) от 14.04.2021
+
+Ron Tompson - History Of The World Blues (2021) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ron Thompson (родился 5 июля 1953 года) является американским электроблюзом и блюзовым рок-гитаристом, певцом и поэтом-песенником. Томпсон выпустил семь сольных альбомов, начиная с 1983 года, на различных лейблах, включая "Blind Pig". Он работал с такими музыкантами, как Little Joe Blue, John Lee Hooker, Lowell Fulson, Etta James и Big Mama Thornton. Вот (   Читать дальше...   )01. Bring Me My Shotgun (Live)
+02. 99 Highway
+03. Tin Pan Alley (Live)
+04. Im Just Falling(   Читать дальше...   )Жанр: BluesПродолжительность: 03:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4BAC2A0ACDE610AAF27B4D059704F33ED375DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462525   (1021041) от 15.04.2021
+
+VA - Immersion: Psy Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник психоделического транса "Immersion" порадует наличием в нём действительно актуальных и коммерчески «раскрученных» работ – именно такое звучание привлекает слушателей, интересной компиляцией, небанальными и продуманными поворотами сюжета, общим интригующим настроением, поддерживаемым на протяжении всего лонгплея и не позволяющим отвлекаться на что-то (   Читать дальше...   )001. Doctor Spook - Spiral Trax Psychedelic Trance
+002. Life Extension - The Invaders Pt.2
+003. The Concept Nemesis - Survival
+004. Champa - Mozamboogy(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 13:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A69CA31EBDF7A9EA4175E8060AB3DC7F9A43134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462636   (1020978) от 15.04.2021
+
+VA - Deep House Relax 1 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020978.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ZOYA, Anagramma - In My Mind (Anagramma Remix) (5:22)
+002. Andain, Dapa Deep - Beautiful Things (Dapa Deep Remix) (5:26)
+003. Imany, Filatov, Karas - Don’t Be So Shy (Filatov & Karas Remix) (3:10)
+004. LVD, Martin Stark - In the Air Tonight (Far out Mix) (4:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F44ABB8BE5187254B416F12D52090D4B604F274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462588   (1020971) от 15.04.2021
+
+VA - Rock Music 2 (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вадим Спирихин - Все мосты сожжены (4:51)
+02. ДМЦ feat. Йорш - Прости Не Помню (2:48)
+03. Zayde Wolf - Back At It (3:16)
+04. Наконечный & Растич - Сердце (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75857C9F889DBDF5436CC9A5E74374548CFE7A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462548   (1020944) от 15.04.2021
+
+Fеntоn Rоbinsоn - History Of The World Blues (2021) [MP3|320 Kbps] <Blues, Lyric, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский блюзовый певец и гитарист, один из основоположников чикагской блюз сцены - Фентон Робинсон. Его музыкальная карьера началась еще в 11-ти летнем возрасте, когда он смастерил свою первую гитару из коробки из под сигарет.01. Crazy, Crazy Lovin'
+02. Little Red Rooster
+03. Mellow Fellow
+04. She's A Wiggler(   Читать дальше...   )Жанр: Blues, Lyric, Rock BluesПродолжительность: 04:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8D1614A6AE43B707BD85CC279E21749676E045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462744   (1020926) от 15.04.2021
+
+VA - Сегодня на радио хиты FM Vol.11 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 24kGoldn - Love Or Lust (2:56)
+002. Alan Walker, Isak - Sorry (2:45)
+003. ARTIK pres.ASTI - Девочка, танцуй (4:21)
+004. ARTIK pres.ASTI - Истеричка (3:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470270D6A0FD64A9ADE70C5DAB6B3DF4944DC725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462486   (1020890) от 15.04.2021
 
 VA - Новинки Русских Ремиксов (2021) [MP3|256-320 Kbps] <Remix, Dance, Electro>
@@ -542,209 +745,6 @@ VA - NYE: Electro Dance Music Session (2021) [MP3|320 Kbps] <EDM, House, Techno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30BFDE588C5D62ABFEC5D8B11B192F60F4F7D4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464290   (1019783) от 22.04.2021
-
-VA - Nu Disco: New Generation And The Remixes (2021) [MP3|320 Kbps] <Nu Disco, Funky, Dance, Disco House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрывная энергетика, яркие образы, аутентичный вокал и дух старого доброго диско в сборнике "Nu Disco: New Generation And The Remixes". Само название лонгплея уже говорит, что здесь Вы услышите не заезженные ретро хита, а новые композиции в стиле диско от наших современников.001. Aldous - Birthday
-002. Probably Shouldnt - Canon
-003. The Beat Broker - Hold Your Horses
-004. Erdinc Erdogdu - Skin(   Читать дальше...   )Жанр: Nu Disco, Funky, Dance, Disco HouseПродолжительность: 09:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E3D510422E14214720738268EB74DFE672665D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464368   (1019771) от 22.04.2021
-
-VA - Disco Is Alive 2 (2021) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afric Simone - Casanova Africano (1978) (3:15)
-02. Arabesque - Once In A Blue Moon (1980) (3:19)
-03. Azoto - Anytime Or Place (1980) (6:15)
-04. Black Devil - No Regrets (1978) (5:07)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 05:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A904259D601E2BC58DF7D83B6537134C5A5FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464501   (1019761) от 22.04.2021
-
-VA - National Pop Dance Music (Vol.15/1) (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, которая всегда будет неотъемлемой частью жизни каждого человека, в большей степени или в меньшей. А если эта музыка еще и отличного качества и понравившегося Вам стиля, то Ваше настроение всегда будет на высоте. Представляет вам сборник из 155 популярных песен со всех концов света, в компании с которыми жизнь покажется гораздо веселее!001. Jonas Blue - Something Stupid
-002. Smith & Thell - Radioactive Rain
-003. Dash Berlin - No Regrets
-004. Benny Benass - Lovelife(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5284BFB3BC0B865A6C24D2BE6F2DF9E637E25D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464423   (1019747) от 22.04.2021
-
-VA - Deep House Relax 3 (2021) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Mayer - Feel (3:29)
-02. Dophamean - Sunrise (4:36)
-03. VetLove - Storm - Original Mix (4:44)
-04. Nando Fortunato, Housenick - Never Go (Housenick Remix) (6:12)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174E64836AB7F751B68CF4D7DCFE72847D7C084C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464503   (1019733) от 22.04.2021
-
-VA - The Stars In The Night Sky (2021) [MP3|320 Kbps] <Jazz, Instrumental, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целая сотня композиций джаз музыки, чтобы понять и полюбить его навсегда! Удовольствие от джаза в том, чтобы следить за импровизацией, которая течет, как река или разговор двух близких друзей не видевшихся целую вечность.001. Jazz At Lincoln Center Orchestra - Be Present
-002. Jarez - Love Like This
-003. Dave Koz - Put The Top Down
-004. Franco Chiari - Quick Samba(   Читать дальше...   )Жанр: Jazz, Instrumental, LyricПродолжительность: 09:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25BE438670B85016EDD3B0C9200EF8F013DD736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464284   (1019722) от 22.04.2021
-
-VA - Best Classic Blues & Soul (2021) [MP3|320 Kbps] <Blues, Soul, R&R>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник "Best Classic Blues & Soul" для тех, кто знает толк или просто находит удовольствие в ретро музыке, где вокал исполнителя далеко не на последнем месте. Здесь Вы услышите самые яркие и непредсказуемые импровизации как "новой волны" мирового вокала, так и шедевры прошедших лет.001. Blues on the Loose - A Bad Influence
-002. Ike & Tina Turner - A Fool For You
-003. Dr  Wu and Friends - The Devil in Me
-004. Peter Martinsson Group - Why So Sad(   Читать дальше...   )Жанр: Blues, Soul, R&RПродолжительность: 10:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C2B2E66D2804C5EE0853B10927A57153172331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464735   (1019622) от 23.04.2021
-
-VA - Workout Motivation  1 (2021) [MP3|320 Kbps] <Dance, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilkan Gunuc, Emrah Turken - Polkka (2:16)
-02. Siedah Garrett, Eden Prince - Do You Want It Right Now (2:41)
-03. JUDICI, Molinoir, Bright Lights - Pump It Up (2:33)
-04. Poylow, CPX, Britt Lari - Blinding Lights (2:07)(   Читать дальше...   )Жанр: Dance, House, OtherПродолжительность: 03:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A2A651413FB0D9FE150603B586A3BBB8ECDFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 996516   (878869) от 14.03.2016
+
+VA - Самые Лучшие. Медленные Песни Vol.2 (2016) [MP3|320 кб/с] <Pop, Ballads, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello
+02. Michael Jackson - Give In To Me
+03. Laura Pausini - It's Not Good-Bye
+04. Pink - Bridge of Light(   Читать дальше...   )Жанр: Pop, Ballads, RockПродолжительность: 10:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5ACD3FA9B7B66A97110606CC2F513AA549CAE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495640   (878816) от 13.09.2021
+
+VA - Get a Rock! (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мураками - Говори (4:12)
+02. Гарик Сукачев - О, Море В Гаграх (4:17)
+03. Земфира - Мелодрама (4:03)
+04. ФЛИП - Не Умрём (3:02)(   Читать дальше...   )Жанр: RockПродолжительность: 04:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373477   (878542) от 07.04.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #46 (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878542.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Breathead - Pot & Psychedelics
+002. Elenski - Go Down To Hell
+003. Abigail Noises - Shadow Profile
+004. Alex Starsound - Made From Biohazard(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEE01F1841D1F8B0A15D7A6AE4A9F5FB41C0554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373700   (878511) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.13 (3CD) (2019) [MP3|320 Kbps] <Power, Symphonic, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878511.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Beast In Black - Die By The Blade (2019)(3:15)
+02. Free From Sin - Faces Of Christ (2018)(5:19)
+03. Serenity - United (2017)(5:34)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425A83F74B6611B0D0DFB16BFAD3F92CE05D5AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373697   (878489) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.15 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878489.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Beyond The Black - Songs Of Love And Death (2015) (4:18)
+02. Iron Savior - Roaring Thunder (2019) (4:23)
+03. Turilli - Lione Rhapsody - Zero Gravity (2019) (5:53)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373706   (878465) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.16 (3CD +1CD LIVE) (2020) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Nozomu Wakai's Destinia - Rain (2018) (4:53)
+02. Dream Child - Under The Wire (2018) (5:43)
+03. Last Days Of Eden - Dead Man's Tale (2018) (4:24)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373711   (878443) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.14 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878443.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Burning Witches - Lords Of War (2018) (3:38)
+02. Phantom - Baptised (2017) (4:15)
+03. Queensryche - 46 North (2019) (3:33)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373668   (878425) от 07.04.2020
 
 Kenny G - 100% Kenny G (2020) [MP3|320 Kbps] <Pop, Jazz, Rock>
@@ -537,209 +740,6 @@ VA - Дискотека Dance Club. The Best (2017) [MP3|64-320 Kbps] <Pop , Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40918027823C709A4B34726DA2E8704D0BFB181F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996818   (877425) от 15.03.2016
-
-VA - Sentimental Piano: Most Romantic Piano Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessio De Franzoni - Ad Elena - Pianoforte
-02. Edwards Stephen - Bach Prelude in C
-03. Ivano Icardi, Corrado Magnino - Nine More Months
-04. Steve E. Williams - Celtic Fields(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F567D458556E760702DDDE07C8356BECAEFEB595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996687   (877197) от 15.03.2016
-
-VA - Сборник от CJ.Koka v.01 (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aisha - Поцелуи[03:13]
-002. Alekseev - Пьяное Солнце (Dj Konstantin Ozeroff & Dj Sky Radio Edit)[03:01]
-003. Artik & Asti - Тебе Все Можно (Remphil Radio Remix)[04:05]
-004. C-Block - So Strung Out (The Distance & Riddick Edit)[06:41](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBD4BAE6B3658118BF0489F179BED4785925ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996997   (877084) от 15.03.2016
-
-VA - Now That's What I Call Power Ballads: Hits (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - I'll Be There For You
-02. Skid Row - I Remember You
-03. Warrant - Heaven
-04. Slaughter - Fly To The Angels(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373901   (876933) от 08.04.2020
-
-VA - The Surfing Happiness (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876933.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ace Miller - Arena (Original Mix)
-002. Miserable Faith - Morning Espresso
-003. Lessons - Alcyone
-004. Monkeyman - Baboon(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 08:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD9DF247804A0FFE428A11759F49C4913BC0269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373899   (876819) от 08.04.2020
-
-VA - Beatport Electro House: Electro Sound Pack #48 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876819.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roberto Surace - Joys (Offaiah Club Mix)
-002. Mark Sherry - The End Is The Beginning
-003. Delano - Haciendo El Amor (Original Mix)
-004. Dj Combo - Jumping Bounce(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 10:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9804AA335DE9471BC54C9859FA76F1F963713B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105312   (876740) от 17.02.2017
-
-VA - Снежный популярный отрыв выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876740.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Бужинская - Просила Бога 3:49
-002. Тимси - Медленный Рассвет 4:04
-003. Алиса Вокс & Феликс Бондарев - Зал Ожидания 3:22
-004. Kristina Dux - По Сценарию 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C8EF65D69FA3E84A690DB0D56FE9284BEEDED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373896   (876718) от 08.04.2020
-
-VA - Beatport Disco House: Electro Sound Pack #51 (2020) [MP3|320 Kbps] <Disco, Funky House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Gee - Say Yeah (Original Mix)
-02. Re Tide Feat Steff - Time Is Movin
-03. Musique Boutique - La Vida Es Un Carnaval
-04. Steve Silk Hurley - The Glow Of Love(   Читать дальше...   )Жанр: Disco, Funky House, DanceПродолжительность: 07:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2D13264ECE187F1E17170EB2F5CD37C3665EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

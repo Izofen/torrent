@@ -1,3 +1,206 @@
+###  Публикация: 1344314   (170328) от 10.12.2019
+
+VA - Reverse Echoes: Ambient Music (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rinat Kaas - Children Of The Metropolis
+002. Alphaxone - Reverse Echoes
+003. Suduaya - Journey Of Aquila
+004. Grinzato - Look(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 12:28:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8019E38B1683E98BF78D5A92AAEE4F821ED351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596308   (170301) от 09.12.2022
+
+VA - Music News vol.230 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amirchik - Love Is (02:23)
+ 002. 52Ghz - Город Наукоград (02:32)
+ 003. A Boogie Wit Da Hoodie feat. Kodak Black - Water (Drowning Pt. 2) (03:27)
+ 004. A'DI - Красками Город (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184D2D5CA13A7E6A567D6CCE42958B30422915A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515318   (170269) от 06.12.2021
+
+VA - Music News vol.154 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dakooka - Заклинание (03:08)
+ 002. Aitana feat. Nicki Nicole - Formentera (03:27)
+ 003. Akris & Teddy - Сансет (03:07)
+ 004. Alex Mica - Ceas (03:07)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9559462249E810329417F8F9985A4E75F4064A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672054   (170256) от 27.10.2023
+
+VA - Jazz Improvisational Collection (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Dorsey - Wasn T It You [03:13]
+02. Wutrio - Lament [05:29]
+03. Wutrio - Hitchhiker's Guide [04:50]
+04. An Pierle Quartet - Saturn [05:21](   Читать дальше...   )Жанр: Jazz, Smooth Jazz, InstrumentalПродолжительность: 05:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF8B8361F957225EEB8B09EE6EE5F032FC6D440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672057   (170205) от 27.10.2023
+
+VA - Party Night (2023) [MP3|320 Kbps] <ElectroPop, Future House, Groove, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta - Baby Don’t Hurt Me
+002. Tones and I - Dance Monkey
+003. Ava Max - Kings & Queens
+004. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: ElectroPop, Future House, Groove, ProgressiveПродолжительность: 06:10:06 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1E18A41AD8D6F466F71DEE4875986F2115E113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672153   (170060) от 27.10.2023
+
+VA - Music News vol.310 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carla - J'en Veux Pas (02:27)
+ 002. Aarne feat. ALBLAK 52 & Баста - Там Где Я (02:32)
+ 003. Aarne feat. FEDUK & Scally Milano - Мечты (01:50)
+ 004. Aarne feat. MAYOT & Huzzy Buzzy - С Ума (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC8A6D69D7679C373629BA603A884ADE1BD42BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672061   (169940) от 27.10.2023
+
+VA - Top 100 DJs Chart 20 October (2023) [MP3|320 Kbps] <ElectroPop, Techno, Groove, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169940.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta, Bebe Rexha - I'm Good (Blue)
+002. The Him, OCEANS - Fool Me
+003. David Guetta, Anne-Marie, Coi Leray - Baby Don't Hurt Me
+004. Dualhi - Chase My Dreams(   Читать дальше...   )Жанр: ElectroPop, Techno, Groove, ProgressiveПродолжительность: 04:37:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7E4F3382326EC9846B9F8B4B172A007F9EBA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515120   (169923) от 06.12.2021
 
 VA - Shazam & Apple Music Chart (Россия Топ 100 Ноябрь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - 100 In Atmospheric Trance (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:363BBBA1AC0B51B787E63543B29889162EFAB522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430954   (168799) от 12.12.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 11.12.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surf Mesa feat. Emilee - ily (I Love You Baby) (2:56)
-02. twocolors - Lovefool (3:10)
-03. Pascal Letoublon & Leony - Friendships (3:02)
-04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965C30D6EB43EEA569C21B5FCFBCA4D8C269A70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672474   (168798) от 28.10.2023
-
-VA - Beatport Synthwave: Pack #635 (2023) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168798.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tony Gray - Gundam
-002. Mogwaa - 11Khz
-003. The Spy - Acid Night
-004. Fringe Society - Alexithymia(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 10:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BAAF881444158C7271D17277A2DA3DDC359CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344661   (168753) от 12.12.2019
-
-VA - Top Grade Disco Hits (2020) [MP3|320 Kbps] <Electronic, Funk Soul, Pop Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168753.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boney M. - Let It All Be Music (1979) (4:55)
-002. Pappy'ion - 1001 Nights (Ali Baba) (1979) (3:51)
-003. Barrabas - (Be Me) Rebel (1982) (6:32)
-004. Claudja Barry - (Boogie Woogie) Dancin' Shoes (1978) (5:01)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Pop Rock, DiscoПродолжительность: 14:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D26122CCA3B0BBB0E4A3E0696AB2EEF9173607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431057   (168683) от 12.12.2020
-
-VA - Сегодня на радио хиты FM Vol.10 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ally Brooke - No Good (3:11)
-02. Amba Shepherd, R3hab - Smells Like Teen Spirit (2:33)
-03. Antip - Незнакомка (2:56)
-04. AronChupa, Little Sis Nora - The Woodchuck Song (2:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45351492F75B1FA8AC51C832EED3E01A4701655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344751   (168513) от 12.12.2019
-
-VA - Velvet Sunset: Chillout Balearic (2019) [MP3|320 Kbps] <Chillout, Balearic, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168513.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marga Sol - Hold Me (Original Mix)
-002. Ascent & Argus - Eros (Original Mix)
-003. Nale - Wizards Of The Sonic
-004. Chad - Highlighted (Filter Main)(   Читать дальше...   )Жанр: Chillout, Balearic, Downtempo, RelaxПродолжительность: 12:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04682D066682241D210DA63C8D5D948DE7DE638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344735   (168455) от 12.12.2019
-
-VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моральный кодекс - Москва новогодняя 8:02
-02. Мумий Тролль - С Новым годом, крошка! 5:05
-03. Григорий Лепс - Новый год 4:34
-04. Emin - Первый снег 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0808A15A02CC6A176D3DE6463EF5239C6FCF5637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344895   (168248) от 13.12.2019
-
-VA - If U Need Me: Rap Selection (2019) [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168248.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Co Cash - No Competition
-002. Roc Marciano - Consigliere
-003. Koblack - Play It Off
-004. Underrated - Honey Comb Zone(   Читать дальше...   )Жанр: RapПродолжительность: 09:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC45C66A8AAB35FC0D837EED0719E0BE48A60FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

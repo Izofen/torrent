@@ -1,3 +1,29 @@
+###  Публикация: 1500732   (840832) от 06.10.2021
+
+Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500350   (840828) от 06.10.2021
 
 Кисти - ArtStation - 2100 + Custom shapes + 1000+ Cheat brushes Mega pack for Concept art [ABR, CSH]
@@ -655,35 +681,6 @@ Hand Drawn Elements Pack - В этом пакете вы можете найти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4394BAAA72FC2F5DB1AE45FCBFC70D32C38B9BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028693   (834657) от 13.03.2017
-
-Шрифты - Astakhov Braille alphabet / Шрифт Брайля TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифты в стиле "Шрифт Брайля" (Braille alphabet, шрифт для слепых и людей с ослабленным зрением) подходит для изучения и для 3D-печати на 3D-принтере.
-Количество / Штук: 4
-Разработчик: D. Astakhov
-Поддержка кириллицы: Есть (Русская, Белорусская).Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BD386BC720D9BB4D8B9F6598232E206A206CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

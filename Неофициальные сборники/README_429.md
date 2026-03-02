@@ -1,3 +1,206 @@
+###  Публикация: 944304   (440231) от 07.10.2015
+
+VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mellow Cafe and Jazz Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Piano Music Ensemble - Calming Piano Music
+02. Relaxing Piano Jazz Music Ensemble - Piano Lounge (SPA Music)
+03. Sad Instrumental Piano Music Zone - Jazz Piano Music (Relaxing Jazz)
+04. Piano Jazz Calming Music Academy - Relaxing Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C60366C94B1B0017D2B1DA2AC93D51445090C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944258   (440224) от 07.10.2015
+
+Toto Cutugno - Good Songs (2015) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A... Rio
+002. Adulele
+003. Aeroplani
+004. Aeroporto Kennedy(   Читать дальше...   )Жанр: PopПродолжительность: 12:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C1F682F4ECC1BD2C3443C949AA214A18157D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248356   (440030) от 21.09.2018
+
+VA - Quality Dance Selector (2018) [MP3|320 Kbps] <Hard House, Club, Eurodance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivo Zeekar - Pump it
+02. Filinskiy - Smash It (Original Mix)
+03. Disclosure - Love Can Be So Hard (Original Mix)
+04. Marlo Morales and Zona feat. Mary Palmer - We Own The Night (Mariano Remix)(   Читать дальше...   )Жанр: Hard House, Club, EurodanceПродолжительность: 04:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A9009D0B744906E5274DD869031C3C7CA6FE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248785   (440020) от 21.09.2018
+
+VA - Now Electronic (2018) [MP3|320 Kbps] <Electronic, Synthetic, New Wave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Discrete Circuit - Control Zero
+002. Frederick And Kusse - Gully Queen (Original Mix)
+003. The Astro Music - Never Bend
+004. C.P.Smith - Needle To The Groove(   Читать дальше...   )Жанр: Electronic, Synthetic, New WaveПродолжительность: 09:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D0F218FF5D419C52392DF670437D4E0C7369D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248701   (439815) от 21.09.2018
+
+VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. House of lords - One touch
+002. Outloud - Out in the night
+003. Treat - Paper tiger
+004. Freedom hawk - Deep inside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 06:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE580A21C814A56B238029E8754ED79243F7CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164665   (439688) от 10.09.2017
+
+VA - Empire Records – Kiddy House (2017) [MP3|287-320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bakermat – Baby
+02. Julian Jordan & SJ – Say Love
+03. Martin Solveig, Alma – All Stars (Original Mix)
+04. Sam F x Yntendo, Lizzy Land – All We Got(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BA717CFCC5008DF97AA0BBDA12F54F21BD3BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164726   (439687) от 10.09.2017
+
+VA - Empire Records - Chill Out 13 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gushi And Raffunk - In Me
+02. Pimpi Arroyo - Smells Like Teen Spirit
+03. Katun - Shout
+04. Miper - Lose It All (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B870DD7870E1F49904868642CF9215DBE84B5502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164728   (439683) от 10.09.2017
 
 VA - Empire Records – Disco Club (2017) [MP3|320 Kbps] <Deep House, Nu-Disco>
@@ -599,215 +802,6 @@ VA - Say Love - Finest Chillout & Lounge Music (2015) [MP3|320 кб/с]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5773FCA2BC90A41636F9EE5F030884F10665DEDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944652   (438400) от 08.10.2015
-
-VA - Deep City Nights Los Angeles 30 Deep House Tunes (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brooker - Muddy Waters - Deep House Mix
-02. Ken Raymond - Compressed - My House Mix
-03. Ralph Love - We Take Everything - Original Mix
-04. Frank Wolks - September - House Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A887D863B9256EA95E2D895733AC4C5EDC5EC902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828185   (438142) от 07.10.2014
-
-DJ ICE - Summer The End 2014 Mix (2014) [MP3|320 кб/с]<Deep House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Allex Okuhama - Missing You (Original Mix)
-2. Eurythmics - Sweet Dreams (Tribeat Remix)
-3. Katerine - Ayo Technology (Milen & Vasco C Remix)
-4. ATB - The Summer (Ice & Dmitriy Rs Remix)(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C341098C56E80B3467B06D2FC25233A559B137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392675   (438124) от 26.09.2011
-
-VA - Лучший шансон: Ты кричи, моя душа 4 (2011) [MP3|128 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438124.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Калина - Ты Кричи, Моя Душа
-002. Денис Майданов - Молодым умирать не страшно
-003. Рижский Плацкарт - Корабли
-004. Александр Дюмин - Роза
-005. Стас Михайлов - Два Сердца
-006. Жека - Дорога В Никуда
-007. Рождество - Лейся Песня
-008. Валерий Курас - Шансонье
-009. Сергей Куренков - Облака
-010. Ирина Круг - Перелетная Птица(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 12:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B773A768838679E9FBFB0A515A10F0303B43AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410165   (438073) от 20.09.2020
-
-VA - Зайцев.нет Лучшие новинки Сентября (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MIA BOYKA - Прятки (1:45)
-02. Александр Гудков - Cabaret (1:48)
-03. Ганвест - FENDI2 (1:57)
-04. Даня Милохин, Николай Басков - Дико тусим (2:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A518058E55B076970AF66AD27271D282BE40FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944788   (438062) от 08.10.2015
-
-VA - Italo & Space Disco Vol.1 (2015) [MP3|320 кб/с]<Italo Disco , Syhtnpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438062.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Estimado Feat.Valerio - I Miss You
-002. Vokois - We Are The Robots
-003. Hypnosis - Oxygene
-004. Johan Baeckstrom - Come With Me(   Читать дальше...   )Жанр: Italo Disco , SyhtnpopПродолжительность: 05:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:534F4A53FEBC9FAA66BA9D434BA9675D13F861B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323403   (437886) от 03.09.2019
-
-VA - German Top 50 Official Dance Charts 30.08.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Kalkbrenner - No Goodbye
-02. Purple Disco Machine - Emotion
-03. Rockstroh - Tanzen 2019
-04. Hugel - House Music(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F5B6BEFA850BCCBE9AE16F7B72793E13F9A555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828931   (437822) от 07.10.2014
-
-VA - Super Dance (2014) [MP3|320 кб/с]<Dance, Club, Progressive, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Oakenfold - Barber's Adagio For Strings (Johnny Yono Remix)
-02. Elliphant feat. Skrillex - Only Getting Younger (Milo & Otis Remix)
-03. Felix Cartal feat. Chloe Angelides - Ready For Love (TAI Club Remix)
-04. Dirty Palm - Hustle (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Progressive, HouseПродолжительность: 05:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FEAC046F79D8C8DFCCA61A2A3479A1AF8E27A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

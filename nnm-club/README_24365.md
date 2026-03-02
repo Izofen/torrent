@@ -1,80 +1,25 @@
-###  Публикация: 1776518   (71263) от 01.02.2025
+###  Публикация: 1774047   (71571) от 19.01.2025
 
-Корабль дураков / Ship of Fools (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому роману Кэтрин Энн Портер (1962)... Пассажиры разных национальностей и слоёв общества в 1933 году в течение нескольких недель плывут на гигантском лайнере «Вера» из порта Веракрус (Мексика) в Бремерхафен (Германия), где к власти пришли нацисты. Среди пассажиров - невротическая разведённая женщина и пытающийся ухаживать за ней самоуверенный (   Читать дальше...   )Производство: США / Stanley Kramer ProductionsЖанр: драма, мелодрама, военныйРежиссер: Стэнли КрамерАктеры: Вивьен Ли, Симона Синьоре, Хосе Феррер, Ли Марвин, Оскар Вернер, Элизабет Эшли, Джордж Сигал, Хосе Греко, Майкл Данн (I), Чарльз Корвин, Хайнц Рюманн, Лилия Скала, Барбара Луна, Альф Челлин, Кристиана ШмидтмерПеревод: профессиональный двухголосый (СВ Дубль по заказу тк Культура; Film Prestige)Язык озвучки: русский, английскийСубтитры: русские (Film Prestige), английскиеПродолжительность: 02:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F57ABFF5F505F79B5EA76A9356B4253BA54BF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776421   (71262) от 01.02.2025
-
-Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Electronic, New Age, Chillout>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deep Sakura [1:00]
-02 - Desert Medley (Live Version) [5:43]
-03 - Deep Forest [4:32]
-04 - Deep Fakear [5:13](   Читать дальше...   )Жанр: Ambient, Electronic, New Age, ChilloutПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76B445665D20B05CA61BE122EE076A6CED3C1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776500   (71261) от 01.02.2025
-
-Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, Electronic, Pop>
+VA - Italo Disco - The Lost Legends Vol. 16 (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71261.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martini (Shots) [00:02:25]
-02. The Penthouse [00:02:26]
-03. Tom Hardy [00:02:18]
-04. Instant Classic [00:02:22](   Читать дальше...   )Жанр: Disco, Dance, Electronic, PopПродолжительность: 00:30:54
+01. Kiki Gaida - Virginal Mystery
+02. Parsifal - Carillon (English Version)
+03. Tenere - Moon Destination (Vocal English Version)
+04. Zener - New Generation(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:19:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9F1139FD17358E13BEAA2FE79BBB8A10CF98E5A
+magnet:?xt=urn:btih:CC6970003804819E02B4866A48FA9EDA850D03E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,26 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776430   (71260) от 01.02.2025
+###  Публикация: 1774150   (71570) от 19.01.2025
 
-МузЛофт / МузLoft. Антон и Виктория Макарские (2025) WEBRip [H.264/1080p]
+Оноре де Бальзак | Шагреневая кожа (2023) [MP3, Александр Воробьев]
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71260.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Антон и Виктория Макарские. Всё о мюзиклах и семье.
-Пожалуй, самая музыкальная, самая поющая и самая образцовая семья посетила Музлофт! Главное сделала этот концерт на 200%! Просто включите и наслаждайтесь!Производство: Россия | Y-GenerationУчастники: Антон и Виктория МакарскиеПродолжительность: 01:18:05
+«Шагреневая кожа» – философский роман знаменитого французского писателя Оноре де Бальзака из цикла "Человеческая комедия".
+Главный герой, молодой аристократ Рафаэль де Валантен, оставшись без единого су в кармане, решает свести счёты с жизнью. Бесцельно блуждая по улицам Парижа, он забредает в лавку древностей, где старик-хозяин предлагает ему магический (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 12:16:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10EEFA320D051A71CC8BF38CA9C3CA212DD4B9B1
+magnet:?xt=urn:btih:ACF46AC7930BD3098D90B7C4844793987D1BF0A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,168 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776487   (71259) от 01.02.2025
+###  Публикация: 1774163   (71569) от 19.01.2025
 
-Журнал | Сваты. Заготовки №12 (116) (декабрь 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71259.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F0CFB915796ADEA1489AD427F132F59C50F165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776394   (71258) от 01.02.2025
-
-Protester - Непокорённым (2025) [FLAC|Lossless|WEB-DL|tracks] <punk, hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечта зовёт (Original Mix) [00:02:28]
-02. Нищие люди (Original Mix) [00:03:17]
-03. Хлеб и воля (Original Mix) [00:03:49]
-04. Кони вёрсты грут намётом (Original Mix) [00:01:32](   Читать дальше...   )Жанр: punk, hardcoreПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4977E3B08144032F8082CB491442F23E75DE7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776399   (71257) от 01.02.2025
-
-The Parallels - Эдем (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крик в пустоте [00:03:34]
-02. Теряя контроль [00:03:27]
-03. Молчи [00:03:12]
-04. Холод [00:03:46](   Читать дальше...   )Жанр: MetalПродолжительность: 00:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001069565FA9F464EBD778DB562E5232E54A589E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776491   (71256) от 01.02.2025
-
-Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry me a river. [00:03:20]
-02. I may be a doe... [00:03:07]
-03. You are what you fear in me. [00:02:24]
-04. I'm a never forgive kinda girl [00:02:05](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77EB93CDE3ED7B1BFF78DEF19133CCFC0C721D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776608   (71255) от 01.02.2025
-
-МузЛофт-подкаст / МузLoft. Согдиана (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согдиана. Кастинги ничего не значат! О Фабрике, Новой волне и уверенности в себе.
-В нашу музыкальную подкастошную заглянула одновременно и российская и узбекская исполнительница. Ее хит «Сердце-магнит» по-любому знаком всем кому сейчас 30-ть с хвостиком. Включайте выпуск и ловите нотки ностальгии!Производство: Россия | Y-GenerationУчастники: СогдианаПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F889BCAD45E603DBBF5040F59B30B540AAD0B12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776538   (71254) от 01.02.2025
-
-Simple Minds - Once Upon A Time (1985) Remastered, 2002, Reissue, 2025, UMC [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Solaris - Martian Chronicles III (I Or A.I.) (2024) 2 x CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71254.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Once Upon A Time (Remastered 2002) [00:05:44]
-02. All The Things She Said [00:04:15]
-03. Ghostdancing [00:04:45]
-04. Alive And Kicking (Remastered 2002) [00:05:27](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:37
+CD1 - ZOO Galactica; Ballad of Deluge:
+ZOO Galactica:
+01. ZOO Galactica 4:39
+02. Shadows of the Creators 4:04(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:20:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EAFF80E315C8D86DF8EBECF4BC80463BFC5B03
+magnet:?xt=urn:btih:FA2FF35F44C2FD9F4D088B07A71B8D50B350D5C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,28 +83,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776590   (71253) от 01.02.2025
+###  Публикация: 1774161   (71568) от 19.01.2025
 
-Decius - Decius Vol. II (Splendour & Obedience) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Disco, Acid House, Deep House, Indie Dance, House, Tech House>
+НХЛ 2024-2025. Питтсбург Пингвинз - Вашингтон Кэпиталз (18.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71568.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 января 2025, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Митч Даннинг (Текумсе, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Брэндон Грилло (США); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D2FB29FDFD3C69FDDB908438D745A42FCD0694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774237   (71567) от 19.01.2025
+
+gAIno - More To Come (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71253.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birth Of A Smirk [00:05:39]
-02. Walking In The Heat [00:04:52]
-03. Queen Of 14th St [00:05:51]
-04. Ghent [00:05:46](   Читать дальше...   )Жанр: Acid Disco, Acid House, Deep House, Indie Dance, House, Tech HouseПродолжительность: 00:52:46
+01.  Shooting Star (2:36)
+02.  Obsession (3:21)
+03.  Millennium Girl (2:53)
+04.  Is This How Love Should Go (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66603EF0A2892AD71D6B4AC478E8068A67CF044B
+magnet:?xt=urn:btih:2D613CCE546E03D88B678D5AC3892E7D523B8167
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,26 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776401   (71252) от 01.02.2025
+###  Публикация: 1774241   (71566) от 19.01.2025
 
-Элена Ферранте | Неаполитанский квартет (Книга 4). История о пропавшем ребёнке (2022) [MP3, Светлана Кузнецова]
+Ronald Snijders - Penta (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz-Funk, Fusion>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71252.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«История о пропавшем ребенке» — четвёртая, заключительная часть захватывающей, ставшей для многих читателей потрясением эпопеи о двух подругах: тихой умнице Лену и своенравной талантливой Лиле. Время идёт — у каждой из них семья, дети, престарелые родители, любовники... однако самым постоянным, что было в жизни Лену и Лилы, остаётся их дружба.
-Обе героини приложили (   Читать дальше...   )Жанр: зарубежные бестселлеры, современная зарубежная литератураПеревод: Ольга ТкаченкоИздательство: СиндбадПродолжительность: 15:33:18
+01.  Kaseko Sisters (4:35)
+02.  Nevertheless (4:23)
+03.  Basic Things (3:59)
+04.  Nite Time (6:03)(   Читать дальше...   )Жанр: Jazz-Funk, FusionПродолжительность: 00:37:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76BC9808472540B6A1B1654E08134B3120B2A8B5
+magnet:?xt=urn:btih:A65250E1DF71CB05E3620554E1A642BE5048FAA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,26 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776437   (71251) от 01.02.2025
+###  Публикация: 1774236   (71565) от 19.01.2025
 
-МузЛофт / МузLoft. Диана Анкудинова (2024) WEBRip [H.264/1080p]
+Bruno cattiste - Warriors of God (HARD ROCK) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71251.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Диана Анкудинова. Жору съели журавли. Опасные поклонники и ответ хейтерам.
-В гостях обладательница множества вокальных наград и необычного голоса. А с недавнего времени ещё и автор собственных песен. В общем обо всех этих регалиях Диана расскажет в выпуске. С вас только хорошее настроение и часик времени.Производство: Россия | Y-GenerationУчастники: Диана АнкудиноваПродолжительность: 01:14:47
+01.  Warriors of God (HARD ROCK) (3:42)
+02.  Lord of All (HARD ROCK) (3:38)
+03.  Father, Forgive Me (HARD ROCK) (2:52)
+04.  Stand Strong (HARD ROCK) (3:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
+magnet:?xt=urn:btih:AC21B59103A63A3805F00CAD62BBC036E8564B14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,27 +197,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776535   (71250) от 01.02.2025
+###  Публикация: 1774156   (71564) от 19.01.2025
 
-Главная дорога (01.02.2025) WEBRip [H.264/720p]
+Actionfredag - Lys Fremtid I Mø​rke (2024) [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angst oppa bordet 3:36
+02. Dalai Lama's Five Dollar Mamas I 3:51
+03. Karesuando Camping 3:14
+04. Planet Bygningsetaten 4:53(   Читать дальше...   )Жанр: Prog Rock, Jazz-RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461EA66DD8954043227349A940D9E03F6ABCF3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774122   (71563) от 19.01.2025
+
+VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Rushing - My Friend Mr. Blues [5:50]
+02. Jimmy Rushing - If This Ain't the Blues [8:10]
+03. Jimmy Rushing - I Can't Understand [4:38]
+04. Jimmy Rushing - Take Me with You, Baby [5:01](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Vocal JazzПродолжительность: 08:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7F558E81F3C1EDB03E82F3FEB49E5C1AECFF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774239   (71562) от 19.01.2025
+
+Landfall - Wide Open Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tree of Life (4:41)
+02.  SOS (5:37)
+03.  When the Curtain Falls (5:45)
+04.  Running in Circles (5:26)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF5D6C65959657CABA600657412839FAAA87387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774210   (71561) от 19.01.2025
+
+Своя игра (19.01.2025) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71250.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неуправляемый занос из-за самарского дрифтера, манекен вместо водителя ради хайпа, непосильный для автобуса подъем в горку и весенние паводки зимой.
- Стал пешеходом по ошибке инспектора: как владельцу изъятого авто приходится доказывать, что с VIN-номером все было в порядке.
- 11 знаков и 192 пункта правил: чем больше свод, тем меньше порядка! Андрей Федорцов и Денис (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+18 января начался новый турнир "Своей игры" - Кубок "Контура", призовой фонд которого составит 5 миллионов рублей. Турнир будет состоять из 8 этапов по 10 игр в каждом.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C78BAFD96458E93BE79467804FCEF6159D057F8F
+magnet:?xt=urn:btih:1AE1D3E2467DF08197A71E5044612958781B601A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,135 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732634   (71249) от 01.02.2025
+###  Публикация: 1774087   (71560) от 19.01.2025
 
-Папа / Ezra (2023) WEB-DLRip [H.264] [звук с TS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71249.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Макса Бернала, который разрушил свою успешную карьеру и брак, чтобы стать менее успешным стендап-комиком.Производство: США, Closer Media, Wayfarer StudiosЖанр: драма, комедияРежиссер: Тони ГолдуинАктеры: Бобби Каннавале, Роберт Де Ниро, Уильям А. Фицджералд, Вера Фармига, Вупи Голдберг, Роуз Бирн, Рэйн Уилсон, Тони Голдуин, Джеффри Оуэнс, Алекс ПланкПеревод: Дублированный (Пифагор) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: АнглийскиеПродолжительность: 01:41:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776488   (71248) от 01.02.2025
-
-Журнал | Сваты. Заготовки №1 (117) (январь 2025) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71248.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E106F76E1F6E989D3F7AC46329B85794580FD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776460   (71247) от 01.02.2025
-
-Эд Макбейн | Обманщики (2025) [PDF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективы 87-го полицейского участка расследуют серию убийств, происходящих в разных частях города, и на первый взгляд не связанных между собой людей. Что может объединять как жертв неведомого стрелка: слепого скрипача, вышедшего на перекур, продавщицу косметики, готовящую омлет на кухне, профессора колледжа, идущую домой с занятий, священника, размышляющего об уходе (   Читать дальше...   )Жанр: ДетективПеревод: Е.Р. СоваИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108604A10775C13A4FADEF8A1EA9E5655C8AEED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776424   (71246) от 01.02.2025
-
-Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) Live [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Guitar, Instrumental Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Vai - Gravitas (G3 Reunion Live) [1:44]
-02. Steve Vai - Avalancha (G3 Reunion Live) [7:25]
-03. Steve Vai - Little Pretty Intro (G3 Reunion Live) [1:54]
-04. Steve Vai - Little Pretty (G3 Reunion Live) [6:37](   Читать дальше...   )Жанр: Rock, Guitar, Instrumental Rock, Hard RockПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B5415A84F26490F116FC7612734DEE942414F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776595   (71245) от 01.02.2025
-
-VA - Winter Dance Covers 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+VA - Ori Uplift - Uplifting Only Episode 623 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71245.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tury - Something Just Like This (2:07)
-02. Alban Chela - Bloodstream (2:38)
-03. Pressplays - Say It Right (2:45)
-04. PHURS - Last Night (2:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:03:58
+01. Parcker Montivero – Farewell of the Heart (Intro Mix)
+02. AYDA – ATLAS (Fan Favorite (618))
+03. Kelly Andrew – Xanadu (Orchestral Trance Mix) (Orchestral Uplifting Classic)
+04. LinMou – Sound of the Sea (Fan Favorite (622))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7A1DB2E84B52D195BF36B16F6D285A3C8AD5890
+magnet:?xt=urn:btih:C1600E32E5BDB81CD384494664CF03C227703DB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,28 +339,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776480   (71244) от 01.02.2025
+###  Публикация: 1774143   (71559) от 19.01.2025
 
-Dio - The Very Beast Of Dio, Vol. 2 (2012) 2025, BMG Rights Management (US) LLC [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal>
+The Black Dahlia Murder - Servitude (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71244.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Killing The Dragon [4:26]
-02 - Push [4:09]
-03 - The Eyes [6:28]
-04 - Along Comes A Spider [3:33](   Читать дальше...   )Жанр: Heavy Metal, MetalПродолжительность: 01:18:25
+После трагической смерти Тревора Стрнада в 2022 году никто не был уверен, будет ли эта группа продолжаться. Но несколько месяцев спустя они отыграли концерт в память о бывшем фронтмене, где ритм-гитарист и последний оставшийся основатель группы Брайан Эшбах исполнил вокал, а Райан Найт занял место Эшбаха на гитаре.
+
+Группа приступила к написанию нового материала, (   Читать дальше...   )01. Evening Ephemeral (3:55)
+02. Panic Hysteric (3:07)
+03. Aftermath (3:02)
+04. Cursed Creator (3:35)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:32:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C6FA73DA7C7580602AD841DFA14DC2A8B47F103
+magnet:?xt=urn:btih:4A89955BECA00F2D8841B912B124EBCD0E60684B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,25 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776475   (71243) от 01.02.2025
+###  Публикация: 1774165   (71558) от 19.01.2025
 
-Журнал | 5 Колесо №1 (375) (январь 2025) [PDF]
+Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz-Funk>
 
->>Автомобили
->>Автомобильные журналы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71243.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«5 колесо» - один из самых популярных автомобильных журналов в России, имеющий многолетнюю успешную историю развития. Одной из главных особенностей журнала являются непосредственное участие читателей в испытаниях автомобилей, представленных на российском рынке, а также самый полный каталог автомобилей, официально продаваемых на российском рынке с актуальными, действительными (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
+01. In Your Eyes (feat. Sara Caswell)
+02. Cinema Paradiso Main Theme
+03. You Only Live Twice
+04. Taxi Driver (feat. Greg Ward)(   Читать дальше...   )Жанр: Jazz, Jazz-FunkПродолжительность: 01:02:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FCBAF6CB4F30929FE55CF961B8F65C715CD0B7B
+magnet:?xt=urn:btih:4F85294523E98564136ADAB5450A806CC0F4606A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,28 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776587   (71242) от 01.02.2025
+###  Публикация: 1774065   (71557) от 19.01.2025
 
-VA - Best Of EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+VA - Progressive Trance Awakening, Vol. 02 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71242.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turbotronic - Chiki Chiki [02:40]
-02. JLUIS - Red Light [02:30]
-03. Deep Emotion - Don't Cry [02:50]
-04. Dani Corbalan - My Head Is Gone [02:14](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:23:59
+01. DJ Geri - In Order To Be Irreplaceable (Original Mix) [4:45]
+02. OLBI - Sky (Original Mix) [2:46]
+03. Nat Dankir - Fireball (Extended Mix) [5:46]
+04. Rob Jakk - Touch Of Insanity (Original Mix) [5:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:21:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED9E5F9D05FBD4ABAC18AF17F3F95D132AD63849
+magnet:?xt=urn:btih:9C9724FD4C6079A3E2CAE51B481DB90648C26F76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,28 +428,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776498   (71241) от 01.02.2025
+###  Публикация: 1774173   (71556) от 19.01.2025
 
-The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+Volkswagen Multivan T5 2010 — Минтранс (18.01.2025) WEBRip [H.264/720p]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71241.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blame It on My Youth [7:09]
-02. Fairytale Countryside [9:54]
-03. The Smile of the Snake [6:03]
-04. Third Avenue [8:21](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:47:31
+🔸 Юридические тонкости. На сколько дорожает страховой полис после аварии?
+🔸 Тест-драйв Volkswagen Multivan T5 2010 2010. Что ржавеет в первую очередь?
+🔸 Новые права. Можно ли их получить после лишения?
+🔸 Вынужденная заправка. Что делать, если АЗС вызывает сомнения?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DC761B06899A1F53C5C2A6D07BA471E86E551C4
+magnet:?xt=urn:btih:DF960AE8FFF561A2A5479132D3DEAC7787840715
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,28 +457,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776481   (71240) от 01.02.2025
+###  Публикация: 1774146   (71555) от 19.01.2025
 
-Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossless|tracks + .cue] <Hard Bop, Poat-Bop>
+Оноре де Бальзак | Блеск и нищета куртизанок (2023) [MP3, Алексей Багдасаров]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71240.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Double Bass [9:21]
-02. Gypsy Jingle Jangle [4:41]
-03. Povo [12:14]
-04. Love Is a Many Splendored Thing [7:29](   Читать дальше...   )Жанр: Hard Bop, Poat-BopПродолжительность: 00:57:52
+Люсьену удалось попасть в высшие круги общества: теперь он уже не бедный поэт, а протеже аббата Керрера. Однако покровительство не дается даром, и Люсьен вынужден изображать чувства к богатой наследнице и скрывать от всего света свою настоящую любовь. Тем временем страшная тайна аббата Керрера грозит погубить их всех…
+Бальзак искусно и саркастично рисует полную контрастов (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ЭвербукПродолжительность: 24:47:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D800F211B9AE72187ED0555F1764E2B81E26779A
+magnet:?xt=urn:btih:3BB28EC03B281EC42A75A77AD67C0FDB00DD94B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,26 +484,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751415   (71239) от 01.02.2025
+###  Публикация: 1774130   (71554) от 19.01.2025
 
-Прикончи их всех 2 / Kill Em All 2 (2024) WEBRip [DVO] [AD]
+Жюль Верн | Вокруг Луны (2021) [MP3, Юрий Гуржий]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71239.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Филипп сталкивается лицом к лицу с русско-французским террористом, который мстит ему за убийство брата.
-"Прикончи их всех 2" - американский остросюжетный боевик 2024 года режиссера Валерия Милева и сценариста Джеймса Агню. Это прямое продолжение фильма «Прикончи их всех» (2017), в котором снялись Жан-Клод Ван Дамм, Жаклин Фернандес, Питер Стормаре и Мария (   Читать дальше...   )Производство: США / Arramis Films, Iervolino & Lady Bacardi Entertainment, March On ProductionsЖанр: боевикРежиссер: Валерий МилевАктеры: Петер Стормаре, Жан-Клод Ван Дамм, Мария Кончита Алонсо, Жаклин Фернандес, Ана Голджа, Мередит Микельсон, Талия Ассераф, Андрей Ленарт, Давид Себасти, Martina Di Fonte и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:26:03Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Небывалый эксперимент членов «Пушечного клуба», казалось, увенчался успехом: гигантский снаряд с тремя межпланетными путешественниками внутри вылетел из специально построенной пушки и умчался к Луне. Но вскоре астрономы принесли неприятное известие: по какой-то причине курс снаряда немного изменился, так что поверхности Луны ему теперь не достигнуть, и храбрым первооткрывателям (   Читать дальше...   )Жанр: Зарубежная литература, классикаИздательство: Аудиокнига своими рукамиПродолжительность: 06:42:33
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4B1FDF47C80B9B729A57A1E07F93CA80186B1BED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +510,218 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776489   (71238) от 01.02.2025
+###  Публикация: 1774138   (71553) от 19.01.2025
 
-The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+Жюль Верн | Мартин Пас (2020) [MP3, Юрий Гуржий]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71238.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gone an' Git It Y'all [4:49]
-02. A Night at El Morocco (Easy As It Goes) [5:43]
-03. Right On, Right On [5:04]
-04. That's the Kind of Love I'm Talking About (For Cecile) [5:11](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:07:43
+Лима, столица Перуанской республики, 20-е годы XIX века. Сын индейского вождя Мартин Пас влюблен в дочь местного ростовщика Сарру. Ее отец уже подобрал ей более подходящего жениха, но это не остановит гордого потомка инков. Мартину нельзя забывать и о другом — он и его отец руководят скорым восстанием индейцев, которые полны решимости изгнать потомков испанских колонизаторов.Жанр: Зарубежная литература, классикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
+magnet:?xt=urn:btih:B7D923EEAF14B5D273000C9846E8DDDBE4C975A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774135   (71552) от 19.01.2025
+
+Жюль Верн | Вокруг Луны (2023) [MP3, Сергей Демидов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71552.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вокруг Луны» – научно-фантастический роман французского писателя Жюля Верна. Продолжает рассказ о полёте на Луну, начатый в романе «С Земли на Луну прямым путем за 97 часов 20 минут». Описаны приключения трёх путешественников (Импи Барбикен, капитан Николь и Мишель Ардан), облетевших Луну в снаряде, который был запущен из огромной космической пушки.Жанр: Зарубежная литература, классикаИздательство: ИДДКПродолжительность: 06:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9634FCE904B8C997706BA27EB3E994308676BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774151   (71551) от 19.01.2025
+
+Оноре де Бальзак | Отец Горио (2023) [MP3, Ирина Булекова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71551.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Отец Горио» — один из самых знаменитых романов Бальзака, вошедший в его цикл «Человеческая комедия». Трагическая история старика Горио, мелкого торговца, составившего большое состояние и, подобно королю Лиру, отдавшего все дочерям, которые доводят его до нищеты, звучит удивительно современно.Жанр: Зарубежная литература, классика, романИздательство: АСТПродолжительность: 12:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4594A7A156F771CAA46CA6043E53E4A21234CC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774333   (71550) от 20.01.2025
+
+Pallbearer - Mind Burns Alive (2024) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where The Light Fades 6:40
+02. Mind Burns Alive 7:57
+03. Signals 7:53
+04. Endless Place 10:39(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5BC56EC381C1D416DF8739E73DA9E029DA90D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774318   (71549) от 20.01.2025
+
+Ihsahn - Ihsahn (2024) [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ладно, на самом деле я никогда не слышал сольного материала Исана, но этот альбом, кажется, привлек много внимания и обсуждений, поэтому я хотел проверить его и сделать обзор. Я уже некоторое время являюсь довольно случайным поклонником Emperor, и, учитывая, что они в основном стали пионерами в слиянии оркестровой музыки с блэк-металом, вполне логично, что Исан будет (   Читать дальше...   )01. Cervus Venator 1:19
+02. The Promethean Spark 4:52
+03. Pilgrimage To Oblivion 4:20
+04. Twice Born 3:37(   Читать дальше...   )Жанр: Black Metal, AvantgardeПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFCFFF6DA7880D359DDEC3A87A52CAE349823FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774310   (71548) от 20.01.2025
+
+Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nostradameus — шведская пауэр-метал группа из Гетеборга, сформированная в 1998 году.2000 - Words of Nostradameus
+2001 - The Prophet of Evil
+2003 - The Third Prophecy
+2004 - HellboundЖанр: Power MetalПродолжительность: 04:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774495   (71547) от 21.01.2025
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Лос-Анджелес Кингз (20.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71547.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 января 2025, вторник. 06:30 МСК. Стадион: Крипто.ком-Арена (Лос-Анджелес, США), 18 145 зрителей (96% при вместимости 18 867)
+Главный судья: Крис Шленкер (Медисин-Хат, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Джо Махон (Калгари, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50A73D75878C2FE834E8ABEEEF9D65448E7F248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774512   (71546) от 21.01.2025
+
+Цыган Рафаэль / Zigeuneren Raphael (1914) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крестины первенца превращаются в кошмар, когда маленького сына барона и баронессы фон Вильгельм похищают цыгане (это ж цыгане, они постоянно детей воруют). Лишь спустя 20 лет мать и сын встречаются снова, когда цыгане останавливаются табором недалеко от поместья...
+Вот это я называю дрaма, так дрaма! На разрыв.Производство: Дания / Filmfabrikken DanmarkЖанр: драма, немое киноРежиссер: нет сведенийАктеры: Эмануэл Грегерс, Элизабет Ларсен, Кай Ларсен, Thorleif Lund, Charles Lowaas, Вальдемар Мюллер, Расмус Оттесен, Занни Петерсен, Emilie Sannom, Эльза ВенгПеревод: немой с интертитрами (В. Сачков)Субтитры: немецкие (интертитры), русскиеПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E49EF26F323387757F8F012475677AE0BC2619
 ```
 
 https://mybot314.ru/tekegram_catalog/

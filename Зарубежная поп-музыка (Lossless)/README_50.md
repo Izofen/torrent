@@ -1,3 +1,119 @@
+###  Публикация: 1053075   (526649) от 16.09.2016
+
+Maxi Dance Pool - Musikladen Eurotops (1988) [FLAC|Lossless|tracks + .cue] <Pop House, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Almond - Tears Run Rings (The Justin Strauss Remix) (7:12)
+02. Coldcut - Stop This Crazy Thing (7:33)
+03. Bomb The Bass - Don't Make Me Wait (12'' Version) (6:38)
+04. Deborah Sasson & MCL -   (6:28)(   Читать дальше...   )Жанр: Pop House, DiscoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D72FB33C65732C02A7C4E1F1A159C5F3072D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053510   (525958) от 17.09.2016
+
+Kygo - Cloud Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:09)
+02. Stole The Show (feat. Parson James) (3:43)
+03. Fiction (feat. Tom Odell) (4:04)
+04. Ringing (feat. Kodaline) (3:44)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AB1EE8569D566BA37D05F34810B0FB2B62FE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157301   (525157) от 12.08.2017
+
+Kesha - Rainbow (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bastards (03:52)
+2. Let 'Em Talk (feat. Eagles of Death Metal) (03:06)
+3. Woman (feat. The Dap-Kings Horns) (03:16)
+4. Hymn (03:25)(   Читать дальше...   )Жанр: Dance-Pop, ElectropopПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD637D327A3F87299390B77A27322EAACBB12E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240466   (524526) от 12.08.2018
+
+Giusy Ferreri - Hits (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volevo te (2:50)
+02. Come un'ora fa (2:55)
+03. Prometto di sbagliare (3:23)
+04. Roma - Bangkok (feat. Baby K) (2:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFF54BFB3E75865701F05A0F4329673650EF626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927785   (524059) от 14.08.2015
 
 Hanne Sorvaag - Talk Of The Town (2006) [FLAC|image + .cue]<Pop / Soft Rock / Country>
@@ -639,120 +755,6 @@ Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242598   (513987) от 23.08.2018
-
-Eros Ramazzotti - Stilelibero (2000) Europe [FLAC|Lossless|image + .cue] <Rock, Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Ombra Del Gigante           (4:42)
-02. Fuoco Nel Fuoco               (4:02)
-03. Lo Spirito Degli Alberi       (4:11)
-04. Un Angelo Non E               (4:38)(   Читать дальше...   )Жанр: Rock, Latin, PopПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779CC0D63630EC4323DA394BD25509A1DB712DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242623   (513986) от 23.08.2018
-
-Levina - Perfect Life (2017) CDS, Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Life (3:05)
- 02. Wildfire (3:10)Жанр: PopПродолжительность: 00:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455C906E1A938FAD58524F481722B52B7F937B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930970   (513875) от 24.08.2015
-
-Duran Duran - Unleashed (2014) [FLAC|tracks + .cue]<New Wave, Pop-Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundburst Test   [0:06]
-  02. What Happens Tomorrow (Jiggy Joint Remix)   [3:52]
-  03. Serious (7-Inch Remix)   [4:32]
-  04. Someone Else Not Me (Peter's Honor Radio Mix)   [3:46](   Читать дальше...   )Жанр: New Wave, Pop-Rock, SynthpopПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3CF85D89BAD33ECA915B070F2F2B83717877C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561538   (513530) от 06.07.2022
-
-Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (2022) Remastered [FLAC 2.0|96/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sleepin' Bee (The Tonight Show, April 1961) (Remastered)
-02. Moon River (P.M. East, January 1962) (Remastered)
-03. When The Sun Comes Out (The Garry Moore Show, May 1962) (Remastered)
-04. Happy Days Are Here Again (The Garry Moore Show, May 1962) (Remastered)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AADEB08F5E41EC0E9708FF4172AF2CFA3B91AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1456706   (1024847) от 23.03.2021
-
-Brandon Miller - Virtue and Vice (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone (4:53)
-02. Fire (5:21)
-03. Virtue and Vice (5:31)
-04. Dirt to Stone (7:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB6BD07A5DDF34BAE2E38049B627D2C3AAA3823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456979   (1024784) от 24.03.2021
 
 Othman Wahabi - The Blues Whisperer (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -745,6 +716,35 @@ The Sassy Swingers - So Sassy (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34EB672EEFC57C332350E6794B56B3329F574244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460742   (1022479) от 06.04.2021
+
+Martine - Martine (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Progressive Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bones (7:40)
+02. Onani L'amorce (1:39)
+03. Onani (6:51)
+04. Running Goose (6:57)(   Читать дальше...   )Жанр: Jazz-Rock, Progressive RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1AB4B894C3684DED0DF56B4FB7ED15E4B3473A
 ```
 
 https://mybot314.ru/tekegram_catalog/

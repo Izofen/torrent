@@ -1,3 +1,29 @@
+###  Публикация: 1070651   (366541) от 07.11.2016
+
+Экшены - GraphicRiver - Ninja Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ninja - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07D063FBBB6C0A532AD457EED10D1DA275D1007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070694   (366297) от 07.11.2016
 
 Экшены - GraphicRiver - Christmas Photoshop Action [ATN]
@@ -665,32 +691,6 @@ Jhakkas Painting - картина маслом, без особого усили
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78EAF232B030118FE38AD54F7C56D47171E85E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069827   (363434) от 08.11.2016
-
-Футажи - VideoHive - Ink Pack - 13465975 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink Pack - 16 футажей чернил (без прозрачного фона).Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569D6C98A667791193296D0895C7E2D72DEBAB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

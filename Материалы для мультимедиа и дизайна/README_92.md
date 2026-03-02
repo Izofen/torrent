@@ -1,3 +1,31 @@
+###  Публикация: 1201790   (791506) от 26.01.2018
+
+Векторный клипарт - Fotolia - Truck Vehicle Collection [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Коллекция грузовых автомобилей
+25 EPS + Jpeg PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF56CDCBA8E720C97DC75812AFA100744B7F3885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201776   (791505) от 26.01.2018
 
 Растровый клипарт - Shutterstock - Ballerina on the background of the city [JPG]
@@ -645,32 +673,6 @@ NNM-Club Sound Cleaner Collection from Nataly11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2829AB3E8BBC56A246986135B5F4DEB644ED511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275317   (790993) от 10.01.2019
-
-NNM-Club Sound Cleaner Collection from anopymous
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle к проектам After Effects от нашего одноклубника anopymous, идейного вдохновителя и организатора группы Sound cleaner.Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECF5CC88731B6E84D66F3B90CF6903C66F4BEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1421966   (315424) от 06.11.2020
+
+VA - Fun Disco Roller: October Set (2020) [MP3|320 Kbps] <Disco, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cayden Shall - Yula (Original Mix)
+002. Tokyo Social Club - Over
+003. Serial Thrilla - Soul Man (Original Mix)
+004. Uj Pa Gaz - End Of M(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 13:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4833725DA22D7B6E1DAB99E013E841324D3738A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182654   (315108) от 11.11.2017
+
+VA - 100 European EDM (2017) [MP3|320 Kbps] <Electro, Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dusky - Bowed (Original Mix)
+002. Hlasznyik - Let's Go To The Party Beach (Original Mix)
+003. Mickey Mask - Wonders
+004. Alex Adair - Casual (Felon Extended Mix)(   Читать дальше...   )Жанр: Electro, Dance, House, TranceПродолжительность: 09:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038C19C7508A0BE1CA2A6527015E145159B4592B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182618   (315105) от 11.11.2017
+
+VA - Spaceship (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Vais - Lonely Planet (Original Mix)
+02. Ricky Rondi - Looking Hot
+03. Daktrin - Solaris
+04. Roni Iron - Guitar Spirit (Matthias Freudmann Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9201EC9784587E4BDC1AAE70527AAF3B3A1A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182681   (315102) от 11.11.2017
+
+VA - Techno Acid: Tech House Electro Party (2017) [MP3|320 Kbps] <Tech House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315102.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Keno - Turn It Up (Original Mix)
+002. Montel - Doubledown (Original Mix)
+003. Lee Walker - Rock Climber (Original Mix)
+004. The Golden Boy - Info (Original Mix)(   Читать дальше...   )Жанр: Tech House, Club, DanceПродолжительность: 11:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DDC0DF2063BB2E77242C7DF43D1F83B275AFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182773   (315096) от 11.11.2017
+
+VA - The Official UK Top 40 Singles Chart 10.11.2017 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camila Cabello – Havana (feat. Young Thug)
+02. Post Malone – Rockstar (feat. 21 Savage)
+03. Sam Smith – Too Good at Goodbyes – Single
+04. Marshmello – Silence (feat. Khalid)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F230E756D459B3846DEB1A37C48F6B9391174E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182539   (315007) от 11.11.2017
+
+VA - Slow Motion Ballade (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315007.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cj Rcm - Sweet Night (Original Mix)
+002. Laid Back Avenue - Slow Motion Ballade
+003. Los Alamos Country Club - Children (Ambient Remix)
+004. Frank Borell - The Mystic Way of Life (No Escape Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 10:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59005B3DAF24FF9F833DE6C077D06D178EC22C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182530   (314999) от 11.11.2017
+
+VA - Cosmic Attraction: Synthspace Megamix (2017) [MP3|192-320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314999.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kirill Sawazki - Cosmic Attraction
+002. Abakus - Laser Bass (Secret Version)
+003. Betamaxx - Redlining 6th
+004. Based On Bass - Space Adventure(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 11:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9F48F19B7DC0324CC78AC2215B2453874F6EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959713   (314954) от 25.11.2015
 
 Илья Гусев - Сборник (2014) [MP3|192 кб/с]<Pop>
@@ -547,235 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583644   (313946) от 02.12.2012
-
-Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313946.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Afrojack – Rock The House (Original Mix)
-2.Afrojack – Replica (Original Mix)
-3.Afrojack – Pacha On Acid (Original Mix)
-4.Afrojack – Montreal (Original Mix)
-5.Afrojack – Doing It Right (Original Mix)
-6.Afrojack feat. Eva Simons – Take Over Control (Original Mix)
-7.Afrojack – Lionheart (Original mix)
-8.Afrojack – Fatility (Original Mix)
-9.David Guetta & Afrojack – Lunar (Original Mix)Жанр: house / electro house / progressiveПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582638   (313791) от 02.12.2012
-
-VA - Радио Шторм - Русский Шторм - 81 (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313791.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 23 45 - Моя Любовь
-2. Artik feat. Asti - До Утра
-3. Di-Key - Потерялись feat Dj Amor
-4. Dj HaLF &/Женя Юдина - Мечты
-5. Hi-Fi - Начнём Всё Сначала
-6. Hi-Fi -  Радиоволна
-7. INDI - Кристаллы
-8. MMDance - Лавию
-9. NK (Эн-Кей) - Ты И Я
-10. SERPO - Подарю тебеЖанр: Pop, DanceПродолжительность: 02:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A90BA5F196A3D8D4B63651D1D110B07B7C9F34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583540   (313721) от 02.12.2012
-
-The End Of 2012 - mix by dj Ivan Frost (2012) [MP3|320 кб/с]<house / club house / vocal house / electro house / progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313721.jpg" />
-</div>
-
-
-###  Подробнее
-
-N\AЖанр: house / club house / vocal house / electro house / progressiveПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1654A26906667A2B1460161741F13F8D4BB395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583127   (313709) от 02.12.2012
-
-VA - DeepEmotions - Car Dubstep Vol.10 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alximo - Sol Invictus
-02. Don Diablo - Silent Shadows
-03. DVBBS - DRVGS (Spol Remix)
-04. Joho - Disaster (MING + 2Beeps Remix)
-05. Savoy ft. Heather Bright - We Are The Sun  (Savoy Remix)
-06. James Egbert ft. Brittany Egbert - In The Beginning (Dubstep Remix)
-07. Delta Heavy - Get By
-08. Dada & Mat Frost - Make You Feel (Continuum Remix)
-09. Sway feat. Kelsey McHugh - Level Up (Sigma Full Vocal Mix)
-10. Justin Lassen  - Insecticide (LabRat Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F212A3F6428CBEAFA242A7E9318969BC5B48D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076242   (313691) от 25.11.2016
-
-VA - Intimate Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Newman - Skylark
-02. John Lewis - Smoke Gets In Your Eyes
-03. Antфnio Carlos Jobim - Ligia
-04. Jack Wilson - Sometime Ago(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0EC0593E950506DD469E0417464A17ED7C2FD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583812   (313561) от 02.12.2012
-
-VA - Русская Морозная дискотека (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ar4i - В Моих Руках
-02. Artik feat. Asti - До Утра
-03. Artik pres. Asti - Сладкий Сон
-04. Bel Suono & DJ Magic Finger - Любовь Бесконечна
-05. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
-06. Hi-F - Hi-Fi - Начнём Всё Сначала
-07. Lira (Та Сторона), MC 77, Архитектор - Спрятано Сердце
-08. MMDance - Р. Artik - Где Ты Был
-09. Oksi - Новогодняя
-10. RiDer - Побуду Один(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F267CF2EE868D7EFDFBE93AF6F04C29E2EE6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582684   (313550) от 02.12.2012
-
-Digitally Imported - the best (2012) [MP3|64-320 кб/с]<Ambient,PsyAmbient>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313550.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Into The Dawn-Accadia
-002-Further Out-Alpha Wave Movement
-003-Nighttime-Arbre Noir
-004-Inside The Harmony-AstroPilot
-005-walking-dead-Bear McCreary
-006-Field and Void-Between Interval
-007-Journey To The Centre Of The-Biosphere and Deathprod
-008-Desire-Blank & Jones
-009-Arcana-Bryan El
-010-World Of Sleepers-Carbon Based Lifeforms(   Читать дальше...   )Жанр: Ambient,PsyAmbientПродолжительность: 06:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD0B728FE6B2654C5E1A730660C8B5F905B9766
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 950669   (368032) от 27.10.2015
+
+September - Dancing In Orbit (2008) [MP3|~225 кб/с (V1)]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry For You
+02. Looking For Love
+03. Can't Get Over
+04. Midnight Heartache(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950693   (368029) от 27.10.2015
+
+VA - Relaxed Waves Party (2015) [MP3|320 кб/с]<Chillout, Longe, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368029.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. So Phistry - My Little Love
+002. Rosemary Olson - Far Away
+003. Eva McFly - Rhythm - Sunset and Downbeat Mix
+004. Roy Bennett - Our Time(   Читать дальше...   )Жанр: Chillout, Longe, AmbientПродолжительность: 08:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFBD6FAB6E52ED4EE4A7D95A4A0E16DBC0187DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950698   (367887) от 27.10.2015
+
+VA - Breathing Earth (2015) [MP3|320 кб/с]<Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367887.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Quincy Ortiz - Shady Nights
+002. Bencenzi - Vista
+003. Indian Merchant - Freedom Sufis
+004. Jive Ass Sleepers - Fashionista(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 07:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5DD66AE97A21930DC44ECB649D74C2FF4E7E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950783   (367777) от 27.10.2015
+
+VA - Зарубежный парад звёзд 60-70гг. (2004) [MP3|128 кб/с]<Pop, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367777.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Beat Goes On! Vol.01
+01 - Lovin' Spoonful - Summer In The City
+02 - Dave Edmunds - I Hear You Knockin'
+03 - Helen Shapiro - Walkin' Back To Happiness(   Читать дальше...   )Жанр: Pop, pop RockПродолжительность: 11:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7CDB8B9FB379A4F418E43A39EFAA5D3F301242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950642   (367768) от 27.10.2015
+
+VA - 50 Tracks Piano Background Music (2015) [MP3|320 кб/с]<Instrumental,Easy Listening,New Age,Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brunch Piano Music Zone - Ambient Sounds (03:56)
+02. Brunch Piano Music Zone - Lounge Music (02:48)
+03. Good Mood Music Academy - Cafe Paris (03:52)
+04. Erotic Jazz Music Ensemble - Romantic Night (02:55)(   Читать дальше...   )Жанр: Instrumental,Easy Listening,New Age,PianoПродолжительность: 02:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6184B07F69F9A35B9A9D74B8F2872F9B4348F25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950549   (367551) от 27.10.2015
+
+VA - Всё сразу 200 хитов Выпуск 10 (from Valik) (2015) [MP3|112-320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367551.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Время и Стекло - Песня 404
+002. Eli and Fur - You're So High (Original Mix)
+003. Гости из будущего и Константин Легостаев - Ждать и петь
+004. Inna - Fool Me(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B725928BA38FBD846B9BA6BC824231F0DEB5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575285   (367541) от 15.11.2012
+
+VA - Легенды Русского Рока (2012) [MP3|128 кб/с]<Русский Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367541.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наутилус Помпилиус - Последнее письмо
+002. Кино - Звезда по имени Солнце
+003. Ария - Улица роз
+004. Машина Времени - Поворот
+005. Чиж & Co - Вечная молодость
+006. Алиса - Трасса Е-95
+007. Круиз - Сказка
+008. ДДТ - Просвистела
+009. Агата Кристи - Сказочная тайга
+010. Константин Никольский - Мой друг художник и поэт(   Читать дальше...   )Жанр: Русский РокПродолжительность: 12:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456801B918D29AB41147D213B3ED128478CA67AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416483   (367183) от 16.10.2020
 
 VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
@@ -584,221 +793,6 @@ Rie Sinclair - Collection (2006-2013) (2018) [MP3|256 Kbps] <Indie, Pop Rock Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9E2B1785B0E67234F9A66C835376B5BC4EE44D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255158   (366051) от 17.10.2018
-
-VA - New Music Releases Week 41 (2018) [MP3|192-320 Kbps] <Dance, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366051.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coin - Simple Romance
-002. Paloma Faith - Loyal
-003. Lost Kings, Jesper Jenset - Drunk as Hell
-004. Farruko, Daddy Yankee, Sean Paul, Akon - Inolvidable (Remix)(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 11:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B660B2EA725AA70AE8F13549124D5E3294459CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328294   (366034) от 29.09.2019
-
-VA - Madness R&B: Sunny Radio Collection (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366034.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brent Faiyaz - Fuck The World
-002. Plain James - Midnight Loop
-003. Chanté Moore - Fresh Love
-004. Cviro - Negotiations(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 09:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66297A632A75D9D564599F55B8F9002E29D9E3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405844   (366008) от 05.11.2011
-
-VA - Beautiful Dubstep (2009-2011) [MP3|320 kbps]<Dubstep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fuzzy Logic, Jada Pearl - All My Love (Xilent Remix)
-02.Gemini - Blue (Original Mix)
-03.Gemini - Elevate
-04.Gemini - Feel Stronger
-05.Gemini - Graduation
-06.Ghosts Of Paraguay - The Premise
-07.Hadouken! - Oxygen (Gemini Remix)
-08.Paper Crows - Follow The Leader (George Lenton Remix)
-09.Phaeleh feat. Soundmouse - Afterglow (Akira Kiteshi Remix)
-10.Xilent - Choose Me II (Original Mix)2009-2011Жанр: DubstepПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951106   (365991) от 28.10.2015
-
-VA - Hits The Coast Of Miami (2015) [MP3|96-320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tom Budin - Cheeky Charlie (Original Mix) 03:31
-002. Dj Dimixer - Lamantine (Mike Prado Remix) 04:19
-003. Bollocks Deejays, Hey Sam - Runnin (Hey Sam Remix) 04:14
-004. Martin Solveig & Laidback Luke Feat. Kryder - I Want You (Dj Evolexx Mash Up) 05:50(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27D24E6B23B348C25A9DABFC625D6D1F432E19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950972   (365985) от 28.10.2015
-
-VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Sex on Fire (03:56)
-02. Dean Dyson - Better Together (03:39)
-03. Max Tanner - Blame It on Me (03:28)
-04. Karizma Duo - Domino (04:02)(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9CB7D7D3198BAA1804A59DD1ABED28BCFCEBFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950998   (365984) от 28.10.2015
-
-VA - Modern Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aelyn - New Day (Original Mix) 03:10
-02. Two & One feat. Eskova - I Say Goodbye (Frainbreeze Remix) 06:55
-03. Beat Service - Love Is Your Home - Radio Edit 03:52
-04. Rene Ablaze & Bvibes - Stories on the Beach (The Enlightment Remix) 08:09(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D879F330DDEC31D56B8E616B0C0484325CCC98E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575875   (365929) от 16.11.2012
-
-VA - Самые Горячие Хиты Авторадио 3 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365929.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Золотое Кольцо - Полночь
-002. Savage - Goodbye
-003. Олег Газманов - Никто, Кроме Нас
-004. Shivaree - Goodnight Moon
-005. Юрий Шатунов - Улыбка
-006. Guns'n' Roses - Don't Cry
-007. Юлия Ковальчук - Между Нами
-008. Barbra Streisand - Woman In Love
-009. Hi-Fi - Земляничный Дождь (Новая Версия)
-010. Nazareth - Love Hurts(   Читать дальше...   )Жанр: PopПродолжительность: 12:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29DDF2EFDAF8EA8F5744104CA7BBD425B62C027
 ```
 
 https://mybot314.ru/tekegram_catalog/

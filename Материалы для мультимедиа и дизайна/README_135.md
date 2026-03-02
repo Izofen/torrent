@@ -1,3 +1,31 @@
+###  Публикация: 1220396   (704409) от 19.04.2018
+
+Векторный клипарт - Vector Money Collection #2 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Деньги
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D1B72CAD04010185E4E4EF7792E69F59B21CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 672426   (704374) от 24.06.2013
 
 Шаблоны - Детская фотокнига – Трое из Простоквашино [PSD]
@@ -667,33 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2CEEB32455100CBD5CCAC4B83FCD5CB58DABE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287463   (703477) от 07.03.2019
-
-Стили  - DeviantArt - Marble styles 3 - 272131360 [ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные стили для Photoshop.
-Автор:LyottaФормат: ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF9AB97CAE26789D4ECEC74846408F933115C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1733564   (51661) от 29.06.2024
+
+VA - Лето на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artemas - I Like The Way You Kiss Me (2:22)
+02. Sabrina Carpenter - Espresso (2:55)
+03. Ariana Grande - We Can't Be Friends (Wait For Your Love) (3:48)
+04. Teddy Swims - The Door (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312CF619304D16F52A70D5BF615388CA83F35288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733616   (51647) от 29.06.2024
+
+VA - Дискотека 2024 Dance Club Vol. 224 (2024) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. MIROLYBOVA - Лето (2:20)
+002. Armin van Buuren, Vanessa Campagna - Vulnerable (3:19)
+003. Ad Voca - Down Low (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D187E67208BD470E5693C7C2B523DD5C43E65F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733233   (51646) от 29.06.2024
+
+VA - compilation part 90 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Blue - Back to Paradise
+02. Talking Blue - Elven Whispered
+03. Alex Blue Feat. Judith - Dance
+04. Blue Talking - Calling Out for Love(   Читать дальше...   )Жанр: Dance, EurodiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40257EB76390D3F635F975186CAA751A89CC53DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733488   (51636) от 29.06.2024
+
+VA - ЕвроХит Топ 40 Europa Plus 28.06.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Harlow - Lovin On Me (2:19)
+02. Ariana Grande - We Can't Be Friends (Wait For Your Love) (3:48)
+03. Disturbed - The Sound Of Silence (Cyril Remix) (3:05)
+04. Artemas - I Like The Way You Kiss Me (2:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08AE29A15C02BB6731CCDAA8C4C963E1E0B2075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733678   (51501) от 30.06.2024
+
+VA - German Top 100 Single Charts 28.06.2024 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. $OHO BANI, Herbert Grönemeyer & Ericson - ZEIT, DASS SICH WAS DREHT (2:34)
+002. AYLIVA & Apache 207 - Wunder (2:56)
+003. Artemas - i like the way you kiss me (2:22)
+004. 6PM Records, Ski Aggu, Haaland936 & Sira - JUNGE BALLER (2:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855F142C2AA24D5AD9349C9286A682D42A4F6F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733235   (51497) от 30.06.2024
+
+VA - compilation  part 92 Relaxation (2024) [MP3|320 Kbps] <New Age, Relaxation>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frantz Amathy - Angelic Garden
+02. Frantz Amanty - C?ur D'etoile: Les Anges De Ton C?ur
+03. Logos - Connexion
+04. Michel Pepe, Logos - Horizons Eternels(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 08:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AF2D8A0F3E459EF74A69BBDF27C98EA1B6DB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733481   (51487) от 30.06.2024
+
+VA - РАДИО БАТЯ - 016 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T. Ark - Under Cover Lover (06:13)
+02. Олег Митяев - Небесный калькулятор (04:20)
+03. Thomas Anders - Modern Talking (Connect The Nation) (03:33)
+04. Secret Service - When The Night Closes In (04:10)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F261D951CFB00986D47F848C25A2C21EEFF641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734224   (51279) от 02.07.2024
 
 VA - Compilation part 94 Electronic (2024) [MP3|320 Kbps] <Electronic>
@@ -539,209 +742,6 @@ VA - Music News vol.400 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D0BED15F8F4B5431B8BC90B532FE3E9A1BCB950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734781   (50168) от 13.07.2024
-
-VA - Rock Love Songs (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eagles - Love Will Keep Us Alive [04:03]
-002. Pink Floyd - Hey You (2001 Remastered Version) [04:40]
-003. Bon Jovi - You Give Love A Bad Name [03:43]
-004. The Rolling Stones - Angie (Remastered 2009) [04:32](   Читать дальше...   )Жанр: Rock, Hard Rock, BalladПродолжительность: 07:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F7B2C69643D95734875EEA7B53A45176EE8F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735214   (50149) от 13.07.2024
-
-VA - Happy Birthday to Me! (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Uriah Heep - Happy Birthday [04:42]
-002. Ислам Итляшев - Кобра [02:53]
-003. Loboda - Tvoi glaza [03:54]
-004. Миша Марвин, Ханна - Французский поцелуй (Red Max Remix) [03:00](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D9A47A563B3CA2687BCFB4D9F118059E081A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737040   (49962) от 15.07.2024
-
-VA - Music News For Forum vol.001 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Якубук - Что Мы Наделали (02:32)
- 002. Alexandra Stan - Inapoi (02:10)
- 003. AMI feat. Noua Unspe - Undeva (01:58)
- 004. Anton Ageev feat. Настя Негода - Глаза (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E4BE559F40D6749FD7491337C6B53B5162894B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736662   (49950) от 15.07.2024
-
-VA - РАДИО БАТЯ - 018 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жека - Удивительная жизнь (04:08)
-02. Руки Вверх! - Девочка из прошлого (03:34)
-03. Dr. No - Booyaka Booyaka (05:35)
-04. Michael Bedford - Tonight (05:12)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E0CA497A1F43C6A6B749AA5E3F488447AD101D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736350   (49828) от 16.07.2024
-
-VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jay Price - Shooting Star [02:08]
-002. Guitar Instrumentals - Back in Black (as made famous by AC/DC) [04:21]
-003. Flamenco Guitar Masters - Song For A Guy [05:19]
-004. Guitar Instrumentals - Sin City (as made famous by AC/DC) [04:46](   Читать дальше...   )Жанр: Rock, Instrumental, FlamencoПродолжительность: 08:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736840   (49813) от 16.07.2024
-
-VA - Compilation  part 96 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasimoff - Alone
-02. Akmalov - Beautiful Things
-03. Dndm - Angels Are Crying
-04. Isskoy - Like a Dream(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D690876D00748E0841EA0EFC33A7BF734BDCF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737437   (49716) от 17.07.2024
-
-VA - Compilation  part 97 Electronic (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akmalov - Second Love
-02. Usman - Feeling
-03. Akmalov - Fire
-04. Akmalov - Happy for You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38DE6BD4DBB1DBD58BA52AA2386D190CBA0C048
 ```
 
 https://mybot314.ru/tekegram_catalog/

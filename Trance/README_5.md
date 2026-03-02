@@ -1,3 +1,177 @@
+###  Публикация: 980868   (954839) от 30.01.2016
+
+VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Eskova - Without You (Aurosonic Chillout Remix)
+02. Feel & Make One - The Power Of Nature (Original Mix)
+03. Nomosk feat. Cari - Don't Hold Back (Original Mix)
+04. Audiocells - Mass Effect (Original Mix)(   Читать дальше...   )Жанр: Trance, ChilloutПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9A61B6663969642625F98E5DDDE718748CC89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089209   (954016) от 02.01.2017
+
+VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristan Armes - Dreamfall (Original Mix) 06:14
+02. Josh Oshima - Voyage (Original Mix) 06:50
+03. Pvr - Solar Station (Original Mix) 08:21
+04. Nord Horizon - Innocent Angel (Original Mix) 07:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25453CB333FBF50F6CE2F1298A31A3A131990B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089164   (953904) от 02.01.2017
+
+VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.M.P - November Leaves (Psymfonius Remix) 06:35
+02. Barzek - July (Stephane Badey Remix) 08:28
+03. Noize Compressor - Hurricane (Original Mix) 06:54
+04. Pax (UK) - Transatlantic (Mobil Remix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2715BD45BBA4822F640821617E893EA54701F27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089596   (950787) от 04.01.2017
+
+VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Decline - Lunge (Original Mix) [4:23]
+02. Sentencia - Above The Sky (Original Mix) [4:30]
+03. Dmitry Kostyuchenko - Heaven Love (Original Mix) [7:39]
+04. Yuri Pike - 21 (Original Mix) [6:19](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090358   (947684) от 06.01.2017
+
+VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dario Synth - Without You (Michael D remix) (06:43)
+02. Sancho - Domi9 (06:01)
+03. Ilya Goryachev - Gold Waters (06:23)
+04. Veselin Tasev - Don't Kill The Love (extended mix) (07:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090407   (947531) от 06.01.2017
+
+VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
+02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
+03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
+04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172835   (947454) от 09.02.2010
 
 DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting Trance, Progressive>
@@ -572,180 +746,6 @@ VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989296   (917144) от 22.02.2016
-
-VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas - Endless (Intro Mix Edit) (8:07)
-02. Ahmed Romel - Paradisum (7:57)
-03. SoundLift - Wonderful Feeling (8:01)
-04. Afternova - Into the Sky (2015 Remake) (7:18)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04199D11A3B388191728E9CC17129939F80BB65F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490404   (915509) от 22.08.2021
-
-VA - Black Hole Trance Music 08-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - Polestar (Extended Mix) [6:53]
-02. Andy Moor & Somna with Linney - More Than Love (Craig Connelly Extended Remix) [6:50]
-03. Richard Durand - White Dolphins (Extended Mix) [5:17]
-04. Dennis Sheperd & EKe & Alex Di Stefano - Playing With Fire (Alex Di Stefano Extended Remix) [7:01](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F76DD3DF86696FD9537E7C3E405DA026D56CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991239   (908019) от 27.02.2016
-
-Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart's Beating Faster (feat Ethan Thompson) (3:03)
-02. Find A Way (4:08)
-03. Beat As One (feat Angelika Vee) (2:56)
-04. Homeward (5:32)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CF2848F3E20AD6C8840A538281BD7D782BD696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368286   (907418) от 21.03.2020
-
-VA - Black Hole Trance Music 03-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight Project, Fanizza - Light Me Up (Extended Mix) 5:10
-02. Dave Neven, Ocata - Sirens In The Sky (Extended Mix) 8:07
-03. Solarstone, Robert Nickson - Voyager II (Extended Club Mix) 7:59
-04. Somna, Jennifer Rene - Stars Collide (Extended Mix) 5:56(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615C068ACE44669AED1E157B82E01891A61F6D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991339   (906432) от 28.02.2016
-
-VA - Trance Flight Vol. 5 (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TrancEye - Two Different Worlds (8:05)
-02. Ark Planet - Insanity (8:14)
-03. Tim Verkruissen - Air (Witness45 Remix) (7:03)
-04. Emre Colak - Destiny (7:42)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA2C07A3E05FF98C2CDD777FEBE47045FEB128F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369129   (905698) от 22.03.2020
-
-Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acos CoolKAs Feat. Metropoliz - Miracle (Original Mix) (9:01)
-02. Dos Buratinos - Deep Into You (4:42)
-03. Playone - Your Summer (6:43)
-04. SNG - Morning (6:40)(   Читать дальше...   )Жанр: Trance, Techno, ElectroПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C568A194F2F9764442BB4E049260678A5537C210
 ```
 
 https://mybot314.ru/tekegram_catalog/

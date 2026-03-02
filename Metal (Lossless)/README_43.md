@@ -1,3 +1,209 @@
+###  Публикация: 614916   (975959) от 09.02.2013
+
+Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]<Alt.Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975959.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. This Time It's Different
+02. Crawl Inside
+03. Thank You
+04. Beyond The Stars
+05. Graveyard Of Empires
+06. Alone Not Lonely
+07. In The Shadow
+08. Live To Die(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt.MetalПродолжительность: 00:42:54 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974548   (975793) от 12.01.2016
+
+Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Man's Path
+02. Soul Razer
+03. Imperium (Kill Force Rising)
+04. Corporate Weaponry(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747EA57B4B16373D474B0C676355C9F6A2B8F938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974161   (975745) от 12.01.2016
+
+Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angst (Pride and Fall) 05:43
+02. Archer (Sun of the Sleepless) 04:29
+03. Game Over (Germ) 06:02
+04. Warp (Encephalon) 05:12(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BC68B15B7B9A79A5D63455D3D157CF3D886E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357036   (975452) от 02.02.2020
+
+Metallica - Helping Hands... Live & Acoustic At The Masonic (2019) [FLAC|Lossless|image + .cue] <Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disposable HeroesЖанр: AcousticПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5FEDBB5DEC986C2A4371600553C8B2474B283A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357215   (975376) от 02.02.2020
+
+Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975376.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Armed To The Teeth [4:26]
+2 - The Attitude [4:02]
+3 - Psycho Ward [4:39]
+4 - I Am Warfare [4:47](   Читать дальше...   )Жанр: Thrash Metal, Speed Metal, Groove MetalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3944ADDD99EE1A541FD504CC1E09EE13031D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357031   (975280) от 02.02.2020
+
+Metallica ‎ - ..And Justice For Jason (Limited Edition, Enhanced and recovered bass sound!) (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackened (6:42)
+02. ... And justice for all (9:47)
+03. Eye of the beholder (6:28)
+04. One (7:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2742E30CBAD15E8691706ECA82F65D97BFE1F8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904055   (974120) от 03.02.2020
+
+Wolfpakk - Discography 5 Releases (2011-2020) [FLAC|image +.cue]< Heavy Metal, Hard Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfpakk - немецкий проект, основанный вокалистами Mark Sweeney (CRYSTAL BALL) и Michael Voss (MAD MAX) исполняющий отменный тевтонский мелодичный хэви. В качестве гостей в записи альбомов принимали участие: Mark Fox (Shakra), Mark Boals (Malmsteen), Rob Rock (Impellitteri), Paul Shortino (Quiet Riot), Paul Di’Anno (Iron Maiden), Jeff Scott Soto (Talisman), Tony (   Читать дальше...   )01. Sirens 04:56
+02. Dark Horizons 04:19
+03. Lost 06:45
+04. Slam Down the Hammer 04:23(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 04:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CBF5FF5945BE4AAFFE696135F4E83AD79FC72F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974882   (973358) от 14.01.2016
 
 Tank - Valley of Tears (2015) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -554,209 +760,6 @@ KMFDM - Paradise (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Aggro-I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FFB8BE266D6A0B9D004DAC2F6CD8A9EC73FCB9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722251   (967224) от 09.02.2020
-
-Hellion - Will Not Go Quietly (2003) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will Not Go Quietly/Resurrection (05:59)
-02.  Welcome (To My Humble Home) (05:13)
-03.  Revenge (Is Sweet) (05:23)
-04. The Last Straw  (05:46)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C465E8B262EA40D6B5FABA5618EE83D0EB3C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785581   (967183) от 09.02.2020
-
-Hangar - The Reason Of Your Conviction (2007) [FLAC|Lossless]<Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just The Beginning  [01:44]
-02. The Reason Of Your Conviction [05:09]
-03. Hastiness [04:12]
-04. Call Me In The Name Of Death [04:43](   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091A884CFE859E119D1A33C266AD6229A0037601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583299   (967168) от 09.02.2020
-
-King of Asgard - ...to North (2012) [WavPack|Lossless]<Viking / Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:34]
-02. The Nine Worlds Burn [05:03]
-03. The Dispossessed [04:47]
-04. Gap Of Ginnungs [06:00](   Читать дальше...   )Жанр: Viking Metal, Black MetalПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71D3DD031F48E762EA1644AC7E28D05BAD0EA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358915   (966353) от 10.02.2020
-
-Ihsahn - The Adversary (2006) [FLAC|Lossless|image + .cue] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation [5:07]
-02. Called By The Fire [4:56]
-03. Citizen [5:21]
-04. Homecoming [4:19](   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838447E10E9A93391F5AEE751DB04453D0CE5C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583025   (966138) от 10.02.2020
-
-Firewind - Few Against Many (2012) [FLAC|Lossless]<Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wall Of Sound [03:58]
-02. Losing My Mind [06:28]
-03. Few Against Many [04:44]
-04. The Undying Fire [05:20](   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE566C4DE50C2A3D15C0423FF621AC056392A0CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359166   (966134) от 10.02.2020
-
-Servants of the Mist - Healing Process (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Sludge Metal, Funeral Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tragic Labyrinths (5:25)
-02. Lips Of Shit (11:08)
-03. Reflections (4:41)
-04. Healing Process (4:48)(   Читать дальше...   )Производство: No FriendsЖанр: Doom Metal, Sludge Metal, Funeral Doom, Depressive MetalПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE6BE7B6948A76EEBE4DB9D9EC7D412DF91C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359199   (965179) от 11.02.2020
-
-I - Between Two Worlds (2006) [FLAC|Lossless|image + .cue] <Blackened Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Storm I Ride
-02. Warriors
-03. Between Two Worlds
-04. Battalions(   Читать дальше...   )Жанр: Blackened Heavy MetalПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08E40FB9714EE25E6A81443110293D259DE6063
 ```
 
 https://mybot314.ru/tekegram_catalog/

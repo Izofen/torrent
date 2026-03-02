@@ -1,3 +1,61 @@
+###  Публикация: 1009768   (807717) от 22.04.2016
+
+Агата Кристи - Два Кораblya (Remixed 2) (1998) [FLAC|Lossless|tracks + .cue] <House, Acid>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Два Корабля (Proforvater Eclectica Mix) (5:20)
+02. Моряк (Cutthroat Island Eclectica Mix) (5:06)
+03. Грязь (I Love Frank Farrian Eclectica Mix) (4:06)
+04. Извращение (Sixth Of October Eclectica Mix) (5:34)(   Читать дальше...   )Жанр: House, AcidПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0D409C98974C9655A90AA4F136F9851B968FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009792   (807594) от 22.04.2016
+
+Агата Кристи - Коварство И Любовь (1991) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Art Rock, Goth Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Агата Кристи - Инспектор По... (2:30)
+02. Viva Kalman! (2:40)
+03. Африканка (3:01)
+04. Сытая свинья (4:24)(   Читать дальше...   )Жанр: Art Rock, Goth Rock, AvantgardeПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E562C8C592F39D3880E3EFCBCB0D3C4EA73300A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009820   (807464) от 22.04.2016
 
 Агата Кристи - Позорная Звезда (1993) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1B80E6687B568558A0FB94850276B34AD18C249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508560   (797442) от 08.11.2021
-
-Стас Намин и группа «Цветы» - Летать (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797442.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Другой мир
-2. Любовь
-3. Время на моей стороне
-4. Шар голубой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5607D38080A05581C7765B24A561A9140FE5B695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508646   (796806) от 09.11.2021
-
-Gorky Park - Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Roads (Remastering 2021) (5:09)
- 02. Within Your Eyes (Remastering 2021) (4:54)
- 03. Two Candles (Remastering 2021) (4:21)
- 04. Stranger (Remastering 2021) (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB15A3795B9BC38222F87C3BD3E0AD65C8C9C8F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

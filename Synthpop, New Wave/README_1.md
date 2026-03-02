@@ -1,3 +1,32 @@
+###  Публикация: 1376108   (862042) от 16.04.2020
+
+Pet Shop Boys - I Don't Wanna (2020) EP [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862042.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I don't wanna (radio edit) [3:20]
+ 2. New boy [4:11]
+ 3. I don't wanna (Mano Le Tough remix) [7:25]
+ 4. I don't wanna (David Jackson remix one) [6:19](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21A5AC5F71D63F6A3E8C010FC5B6C84478CB373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497989   (861251) от 24.09.2021
 
 New Arcades - In the Deepest of Dreams (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8FE80862DB5826289A34A6F7C4EC3591299B619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385795   (796648) от 26.05.2020
-
-Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visage - британская группа, одна из лидеров модно-музыкального движения новых романтиков начала 1980-х гг. Основанная в Лондоне Стивом Стрейнджем и Расти Иганом из The Rich Kids, Visage была чисто студийным проектом с участием музыкантов из Ultravox (Мидж Юр, Билли Карри), Magazine (Дейв Формула), Siouxsie and the Banshees (Джон Макгиох).Список альбомов:
-1980 - Visage
-1982 - The Anvil
-1984 - Beat Boy(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97D227F0F7578FCFFEF134AF34C7A4F35E2AEEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

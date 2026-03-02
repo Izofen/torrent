@@ -1,25 +1,77 @@
-###  Публикация: 1742994   (105493) от 14.08.2024
+###  Публикация: 1740787   (105801) от 03.08.2024
 
-VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
+CareUEyes 2.4.0.0 Pro Portable by FC Portables [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes. CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFB578F6B10F47175B4923432981B13492BE571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740704   (105800) от 03.08.2024
+
+Объединённая зона безопасности / Gongdong gyeongbi guyeok JSA / Joint Security Area (2000) UHD BDRip [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105800.jpg" />
+</div>
+
+
+###  Подробнее
+
+В деревне перемирия Пханмунджом, находящейся на границе Северной и Южной Корей в так называемой Объединенной зоне безопасности, происходит инцидент с погибшими с северной стороны и пострадавшими с южной. Разобраться в произошедшем приглашают представителя нейтральной стороны.Производство: Южная Корея / CJ Entertainment, Intz.com, KTB NetworkЖанр: детектив, драма, триллерРежиссер: Пак Чхан-укАктеры: Ли Бён-хон, Сон Кан-хо, Ли Ён-э, Ким Тхэ-у, Щин Ха-гюн, Ким Мён-су, Ки Джу-бон, Кристоф Хофрихтер, Чин Тхэ-хён, Херберт УльрихПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, КорейскийСубтитры: Русские, Корейские (для не корейских диалогов)Продолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCB77072DC604D345A64EF98BE9530BDB843298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740798   (105799) от 03.08.2024
+
+VA - Electronica Confessions, Vol. 13 (2014) [MP3|320 Kbps] <Electro, House>
 
 >>Electronic
->>Trance
+>>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105493.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Oblivion - Momentum Overdrive (Extended Mix) [6:36]
-02. Drumm & Fletch - Hallucinate (Extended Mix) [5:55]
-03. A-Rival - Meridian (Zach Zlov Remix) [7:47]
-04. Solarshift Project - Echoes Athanasia (Extended Mix) [7:38](   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:06
+01. DGL.Co. - Sumthing (6:41)
+02. T.I.M.O - Groove Like This (7:09)
+03. Ainsworth & Revered - 29048 (6:03)
+04. Sit-Hole - Sweet Melodies (Mojalefa Tsotetsi Deeper Remix) (6:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:02:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53F9B95136554805B1A5A8DACEE19173DAABA630
+magnet:?xt=urn:btih:C2D35633A5FBF5BBA8AE20A8FF8553D15E952291
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743019   (105492) от 14.08.2024
+###  Публикация: 1740788   (105798) от 03.08.2024
 
-Pentagram - Sub-Basement (2001) Remastered, 2024, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, heavy metal>
+Военная тайна с Игорем Прокопенко (03.08.2024) WEBRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105492.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bloodlust [00:02:28]
-02. Buzzsaw [00:02:29]
-03. Drive Me To The Grave [00:04:28]
-04. Sub-Intro [00:03:54](   Читать дальше...   )Жанр: Doom Metal, heavy metalПродолжительность: 00:54:50
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE3E521D6DA7B650EAC602426E39FF38A6CE8CFA
+magnet:?xt=urn:btih:BAA40B616F3B4EE51879D59CC5FA3587AD8ACFC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,144 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743106   (105491) от 14.08.2024
+###  Публикация: 1740632   (105797) от 03.08.2024
 
-My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|image + .cue] <Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Her Dominion 06:13
-02. Thornwyck Hymn 06:50
-03. The 2nd of Three Bells 06:54
-04. Unthroned Creed 07:03(   Читать дальше...   )Жанр: Gothic, Doom MetalПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC967715D417B19A2D867FC0ABD900CDDEBDDC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742793   (105490) от 14.08.2024
-
-Fernruf.Berlin (Дистанционный Звонок В Берлин) - 1 Album, 4 Singles (2024) [MP3|~245 Kbps (V0)] <Ebm, Electro, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Dystopie Und Tr​a​umerei (2024)
-Allein (Single) 2024
-Immer Lieben 80s Maxi Mix (Single) 2024(   Читать дальше...   )Жанр: Ebm, Electro, DarkwaveПродолжительность: 5 CD, 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0697DD2D590D02641CB1999AC994D0802489CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742781   (105489) от 14.08.2024
-
-Ian - Minden Eletemben (2024) [MP3|~245 Kbps (V0)] <Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Szállok Csendben [00:04:20]
-02 - Legyél Nekem [00:03:36]
-03 - Látni Fogják [00:03:52]
-04 - Minden Életemben [00:03:39](   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA176B07AC1974FB890FC7BB73ABB7AE60D8B37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742713   (105488) от 14.08.2024
-
-Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Away [00:04:44]
-02. We Got the Fire [00:04:02]
-03. I Like That [00:04:11]
-04. Moonlight [00:04:24](   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B508A7F8BC3CCB9948CDE8C0BEF4298D79C8F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743048   (105487) от 14.08.2024
-
-Matt Mitchell & the Coldhearts - Mission (2022) Ultimate Edition, 2024, Matt Mitchell[FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+Black Smoke Trigger - Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105487.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mission [00:03:53]
-02. Razor Tongue [00:03:34]
-03. Someone New [00:03:14]
-04. Just Like I knew You Would [00:03:00](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:00:55
+01. Phantom Pain (3:35)
+02. K.M.T.L. (3:18)
+03. The Way Down (3:08)
+04. Perfect Torture (4:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B25870CF825D5825B437C4A775FB87F909D41CFF
+magnet:?xt=urn:btih:5C09449FE10D910C4F3E563C247FDDD06DE45281
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,80 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742961   (105486) от 14.08.2024
+###  Публикация: 1740799   (105796) от 03.08.2024
 
-Журнал | Лечитесь с нами №8 (224) (август 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30860BB65F4F9599A50C4D892D480E770383977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742960   (105485) от 14.08.2024
-
-Журнал | Лечитесь с нами №7 (223) (июль 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1B5D4E2BBDA6843EDFB326B9DA28D700DF459F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742822   (105484) от 14.08.2024
-
-VA - SkyFall Summer 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
+VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
 
 >>Electronic
->>House
+>>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Al.ER - New Vibrations (Extended Mix) [7:02]
-02. Tony Godzen - Gdevolk (Extended Mix) [6:09]
-03. St.Ego - Let Me Know (Extended Mix) [7:09]
-04. Devaloka - Valley (Extended Mix) [7:29](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 01:49:13
+01. DJ Empower - Flowing Outwards (9:16)
+02. ANTONI POLIKIZO - It's Time to Go Back (5:17)
+03. Dr.Rex - Less Is More (5:59)
+04. Dave Qri - Los Suros (6:57)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:01:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFD095DAEF1FE4C57AC6268CC329A46B4CAC5648
+magnet:?xt=urn:btih:AC3F5757EC52B5313631D9DF6F40AA2840781C76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,55 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743112   (105483) от 14.08.2024
+###  Публикация: 1740796   (105795) от 03.08.2024
 
-Органчик (1933) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсатира.
-По мотивам произведений М.Е.Салтыкова-Щедрина.Производство: СССР / Московский кинокомбинатЖанр: корткометражный, анимация, экранизацияРежиссер: Николай ХодатаевСубтитры: русские (интертитры)Продолжительность: 00:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2D8E0E86EA4CB3A2AAD640DDD10CCCC89CB0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742715   (105482) от 14.08.2024
-
-Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpop, Technopop>
+VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105482.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cooperation In A Fragmented World [00:04:55]
-02. The Great Reset [00:07:33]
-03. Activity As A Timetrigger [00:03:58]
-04. Happy Nothing [00:05:43](   Читать дальше...   )Жанр: Minimal Electro, Synthpop, TechnopopПродолжительность: 00:48:34
+01. Faksikas & D'layna - Take Me There (The Squeeze Soul Shift Instrumental) (6:40)
+02. Or'l - Love Etc. (8:47)
+03. Heather Walker - Freedom (Peacey P Moody Dub Mix) (8:35)
+04. DJ Wings - Give It to Me (Wings & Accidental Notes Island Mix) (4:24)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:38:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12796BFB556B9A0B9FE98F7C13E9B48F40A61949
+magnet:?xt=urn:btih:97035700E0BF9A9EE5FAA2E141A28EA245F3EB80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,28 +192,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743016   (105481) от 14.08.2024
+###  Публикация: 1740797   (105794) от 03.08.2024
 
-Mauro Montobbio - Scattered Memories (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
+VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antony Well - Lua Solidaria (6:27)
+02. Diogo Salvador & Walker G. - London City (4:35)
+03. Dr.H - Love (5:21)
+04. Dave Qri - Mama (4:40)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C032146D2690FFA242CA4CC8D5847E89C29287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740604   (105793) от 03.08.2024
+
+The Smashing Pumpkins - Aghori Mhori Mei (2024) [MP3|320 Kbps] <Alternative Rock, Indie Rock, Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Destinazioni (feat. Anna Marra) [00:06:48]
-02. Take a Mile in My Shoes [00:04:30]
-03. Into the Light (feat. Valeria Caucino, Pete Hicks & Dik Cadbury) [00:06:03]
-04. No Man's Land (feat. Stefano Guazzo) [00:09:20](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:56:11
+01 - Edin [6:47]
+02 - Pentagrams [6:26]
+03 - Sighommi [2:55]
+04 - Pentecost [3:19](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, RockПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9DE00359027D922ADD87B8A328ACFF015955A32
+magnet:?xt=urn:btih:51D15BBF7E7A81A966BDA55BF61B3C28331A65E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,28 +250,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742998   (105480) от 14.08.2024
+###  Публикация: 1740753   (105792) от 03.08.2024
 
-Orgone - Pleroma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+VA - Open Seas (Ibiza Island Mood), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - Liquid Star (4:50)
+02. TAWO - Got Insane (3:04)
+03. Cataldo - Nightrock (Original Mix) (4:36)
+04. Roberto Bronco, Chris Brauer - Fountain (Original Mix) (4:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB60593EF3AD2579A4CD402C30744F152CE6AE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740614   (105791) от 03.08.2024
+
+Metonic - Ghostly Ship (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Silentium (1:26)
-02. Approaching Babel (2:25)
-03. Valley of the Locust (9:45)
-04. Hymne à la Beauté (4:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:05:30
+01. Blood on Your Hands
+02. AI
+03. Ghostly Ship
+04. Firing Point(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA4E87A154E19D96AA61F956D4EC26F28CDCCB3C
+magnet:?xt=urn:btih:B4F77AB5B509219C3722BECDF1DF5DEC072EBE03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,28 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742975   (105479) от 14.08.2024
+###  Публикация: 1740800   (105790) от 03.08.2024
 
-Altar Of Oblivion - In The Cesspit Of Divine Decay (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy, Doom Metal>
+VA - Electronica Confessions, Vol. 15 (2014) [MP3|320 Kbps] <Electro, House>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105479.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nothing Grows from Hallowed Ground 06:06
-02. The Fallacy 05:49
-03. Ghosts in the Trenches 01:12
-04. Mark of the Dead 06:45(   Читать дальше...   )Жанр: Epic Heavy, Doom MetalПродолжительность: 00:46:45
+01. Sava Boric - Miami Heat (8:01)
+02. Ainsworth & Revered - Love Games (9:05)
+03. Beekay Deep - The Feeling (Remix) (6:37)
+04. Jonoc - Key 66 (7:07)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 02:54:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:516BAE1F7A9ACC215AED25930466E58082C1CACB
+magnet:?xt=urn:btih:6D3827DA2089AB878C15BCFF5CD281BE8D32FA20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,28 +337,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743008   (105478) от 14.08.2024
+###  Публикация: 1740594   (105789) от 03.08.2024
 
-Eddie & The Wolves - Tasty Sin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+Рафаэль Лафферти | Планета медведей-воришек (2024) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105789.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Очередная волна покорения космоса не смогла обойти вниманием несколько парадоксальную планету медведей-воришек. Вроде бы отличная планета, но никто ее не заселяет, а сохранившиеся записи немногих исследователей, побывавших на ней выглядят как-то странно..." (с)Жанр: Фантастика, ЮморИздательство: Аудиокнига своими рукамиПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247A24B39BC6608C2E9533C839C9328707AB2D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740829   (105788) от 03.08.2024
+
+Fred Guillemet Band - Hard N’Roll Stories (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Upgraded Generation (04:13)
+ 02 - Break Up (04:04)
+ 03 - Not Dreamer (04:26)
+ 04 - Here We Are (05:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A76C0BD2E244536990040E671558583513D4986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740723   (105787) от 03.08.2024
+
+Marilyn Manson - As Sick As The Secrets Within (2024) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam Rock, Gothic Rock, Industrial Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105478.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil's Wrong, but Not to Blame [00:03:40]
-02. Tasty Sin [00:03:09]
-03. Voodoo [00:02:25]
-04. Blood Runs Cold [00:03:47](   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:31:42
+01. As Sick As The Secrets Within (5:36)Жанр: Glam Rock, Gothic Rock, Industrial RockПродолжительность: 00:05:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A2EA1B934C8F3410EAB5F84FC7AF6034C1D4601
+magnet:?xt=urn:btih:4DDA0ED4E1B3219B4C6E1C3763B9006046E6EB7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,25 +418,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743201   (105477) от 15.08.2024
+###  Публикация: 1740805   (105786) от 03.08.2024
 
-Джон Ронсон | Итак, вас публично опозорили (2020) [MP3, Андрей Барабанщиков]
+VA - 40 Dance Summer Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105477.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько лет Джон Ронсон изучал феномен «публичного шейминга», встречаясь с его жертвами, оскандалившимися по-крупному. Всего одно прегрешение – и волна народной ярости накатывала подобно мощному цунами, снося все на своем пути. Что это: новый вид правосудия или превышение полномочий? «Итак, вас публично опозорили» – это исследование Ронсона, одновременно обескураживающее (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРА, ЭКСМОПродолжительность: 04:54:00
+01. JLUIS - Parachute [02:48]
+02. Dani Corbalan - Addicted To You [02:24]
+03. Rene Rodrigezz - Call It Love [02:30]
+04. Stephan F - No Broken Heart [03:09](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69191403A8ED98BCDB701E8DE5A1115A88383A44
+magnet:?xt=urn:btih:0DEAC20485F8241DB6B37089C074040130FD3247
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,28 +447,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743261   (105476) от 15.08.2024
+###  Публикация: 1740801   (105785) от 03.08.2024
 
-Т.Е. Ванагель | Алфавит (2013) [PDF, JPG]
+VA - Electronica Confessions, Vol. 16 (2014) [MP3|320 Kbps] <Electro, House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Electronic
+>>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105476.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге ваш малыш познакомится с алфавитом. Интересные задания помогут ему быстро и легко запомнить английские буквы, научиться их писать и произносить.
-О серии.
-Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям дошкольного и младшего школьного возраста
-Серия этих книжек поможет вашему ребёнку выучить английские слова по различной (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
+01. Eventual Groove - Lazy Morning (6:09)
+02. DJ Octopuz - Heavenly (DJ Octopuz Reprise Mix) (5:49)
+03. Davide Bertucci - My Locura (5:44)
+04. Marko J - Crafted from the Finest (5:18)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:45:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0474FCCDA3F197A421C7F67B7A58FD5406AB1BF1
+magnet:?xt=urn:btih:76591F6ACFCDCAA89A60334C5F5FF63A3E1F55A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +476,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743381   (105475) от 15.08.2024
+###  Публикация: 1740748   (105784) от 03.08.2024
 
-AirBrush: ИИ Фоторедактор v7.1.0 Mod by PieMods [Ru/Multi]
+Главная дорога (03.08.2024) WEBRip [H.264/720p]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105475.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Редактируйте снимки в нашем фоторедакторе и получайте совершенные результаты! AirBrush предоставляет вам самые естественные, простые в использовании инструменты для редактирования фотографий, разработанные, чтобы придать вашим снимкам идеальный стиль.Тип издания: ProРелиз состоялся: 14.08.2024Разработчик: PIXOCIAL TECHNOLOGY (SINGAPORE) PTE. LTD.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Хайп на краже дорожной таблички: уголовный итог для блогеров, наводивших «порядок» на парковке для инвалидов.
+  Колонной в дальнее путешествие: как и почему «коллективная» поездка становится для водителей испытанием на внимание.
+  «Волга» за миллион: шедевр автодизайна без капота.
+  Песчаный плен: как проезжать прибрежную зону и что делать, чтобы выбраться с машиной, застрявшей (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F97F3AEB2F3968E13CDE7C332561304ED1973A03
+magnet:?xt=urn:btih:1FF082BADAEDD2B1651E29400638BAE9FAC96F59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,27 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743282   (105474) от 15.08.2024
+###  Публикация: 1740761   (105783) от 03.08.2024
 
-Т.Е. Ванагель | Мой дом (2013) [PDF, JPG]
+М.А. Чельцов | Предание суду (1944) [DJVU]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из этой книги ваш малыш узнает, как по-английски называются предметы, которые окружают нас дома. Решая интересные задания в игровой форме вместе с веселым персонажем - девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения.
-О серии.
-Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
+Настоящая брошюра предназначена для народных судей и народных заседателей. Брошюра знакомит читателя с особенностями и задачами института предания суду, принципами, на которых построено подготовительное (распорядительное) заседание и теми вопросами, которые должны быть разрешены на этом заседании. Особое внимание автор уделяет выяснению роли института предания суду (   Читать дальше...   )Жанр: Справочное пособиеИздательство: Юридическое издательство НКЮ СССРФормат: DJVUКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7085FA68CE5910E005C24ACA68F24541093798A
+magnet:?xt=urn:btih:C8E8F9EB3FEE408F950A35A64C3DF6326E64797F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743326   (105473) от 15.08.2024
+###  Публикация: 1740718   (105782) от 03.08.2024
 
-Суровое испытание / The Crucible (1996) BDRip [H.264]
+VA - compilation  part 110 Electronic (2024) [MP3|320 Kbps] <Electronic>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105473.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Экранизация одноимённой пьесы Артура Миллера... Ранним утром 1692 года в Салеме (Массачусетс) девушки собрались в лесу, чтобы негритянка Титуба приворожила им парней. Одна из девушек, Абигаль Уильямс, убивает курицу и пьёт её кровь, при этом желая смерти жене Джона Проктора, в которого влюблена. Их обнаруживает дядя Абигаль Сэмюэль Пэррис. Девушки убегают, нол одна (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: драма, историяРежиссер: Николас ХитнерАктеры: Дэниэл Дэй-Льюис, Вайнона Райдер, Пол Скофилд, Джоан Аллен, Брюс Дэвисон, Роб Кэмпбелл, Джеффри Джонс, Питер Вон, Кэррон Грэйвс, Чарлэйн Вудард, Фрэнсис Конрой, Элизабет Лоуренс, Джордж Гейнс, Мэри Пэт Глисон, Роберт БреулерПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:26
+01. Azkom Music - Elzari
+02. Davvi - Strasse 39
+03. Davbo - My Flower
+04. Faniz - France(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:48:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:251589C9096648CFACDF525D3C65182CCCC6D43E
+magnet:?xt=urn:btih:F6A14A61016195BC0263092529C4350190A8BD6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,27 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743304   (105472) от 15.08.2024
+###  Публикация: 1740739   (105781) от 03.08.2024
 
-Т.Е. Ванагель | Части тела (2013) [PDF, JPG]
+Ильяс Найманов | I.M.M.O.R.T.A.L. (Книга 4). Столкновение (2024) [MP3, Роман Ефимов]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105472.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из этой книги ваш малыш узнает, как по-английски называются части нашего тела. Решая интересные задания в игровой форме вместе с веселым персонажем - девочкой Мери - он быстро запомнит новые слова, научится произносить и писать их, и сможет даже строить простые предложения.
-О серии.
-Автор книг Т.Е. Ванагель имеет многолетний стаж преподавания английского языка детям (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Рипол КлассикФормат: PDF, JPGКачество: Необработанный скан
+Военные действия выходят на международный уровень, последствия их навсегда меняют историю. Кто победит в этой войне - человеческий разум и боевые роботы или невероятная живучесть и упорство носителей вируса? Не является ли это тем самым предсказанием о конце света, которое начало сбываться? Насколько дальновидны военные стратеги, применяя привычную им тактику? Не (   Читать дальше...   )Жанр: Боевая фантастика, Постапокалипсис, МистикаИздательство: Аудиокнига своими рукамиПродолжительность: 10:05:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF81834515EE961B2554CB048B0A545A7D832A46
+magnet:?xt=urn:btih:F4AF6F71DB775AF2B42915E4392E500FEDF32127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,25 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743322   (105471) от 15.08.2024
+###  Публикация: 1740782   (105780) от 03.08.2024
 
-VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+Журнал | Знание-сила №8 (1166) (август 2024) [PDF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105471.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wale, Rihanna - Bad (Remix)Жанр: PopПродолжительность: 02:44:03
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC98B3E8950675D694EC46E2FA54C513D443EEA0
+magnet:?xt=urn:btih:96E37B9930FF59F84381328700195A0C76D4C995
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,25 +612,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743230   (105470) от 15.08.2024
+###  Публикация: 1740806   (105779) от 03.08.2024
 
-Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | Низкоуровневый персонаж Томодзаки [ТВ-2] [2024, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
+Спасен курьером "Пони экспресс" / Saved by the Pony Express (1911) WEBRip
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фумия Томодзаки сейчас на вершине жизненного пути — и все благодаря наставлениям Аой Хинами, его популярной одноклассницы и соперницы в онлайн-игре Attack Families. В начале нового семестра Томодзаки снова встречается с Аой, которая напоминает ему, что его цель ещё не достигнута: стать популярным среди сверстников и найти себе девушку.Производство: Project No.9Жанр: комедия, романтикаРежиссер: Янаги СинсукэЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
+Была очень давно в Северо-американских Соединенных Штатах курьерская служба под названием Pony Express. Страна была большая, а разветвленная железнодорожная сеть появилась много позже. И вот эти курьеры на перекладных лошадях доставляли почту максимально быстро. Этот фильм показывает, что вовремя доставленная информация может быть жизненно важна.
+В начале фильма (   Читать дальше...   )Производство: США / Selig Polyscope CompanyЖанр: короткометражный, вестерн, немое киноРежиссер: Френсис БоггсАктеры: Том Микс, Томас Кэрриган, Old BlueПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2F4EF4EAE0B567C7C9C916587791360DABA218A
+magnet:?xt=urn:btih:690BCCAB7756E39E6584A6C1BDE597A4FD1F1D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743155   (105469) от 15.08.2024
+###  Публикация: 1740710   (105778) от 03.08.2024
 
-Феи: Потерянное сокровище / Tinker Bell and the Lost Treasure (2009) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+Hidrommel - We Are The Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105469.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение приключений феи мастерицы Динь-Динь и ее друзей. Необходимо омолодить Дерево Фейской Пыльцы. Выбирают фею Динь – лучшего из мастеров, она должна изготовить Скипетр, важнейшая часть которого - Лунный Камень. В ходе работы над Скипетром Лунный Камень был разрушен. Динь-Динь очень хочет исправить ошибку. Она отправляется на север Нетляндии в поисках Волшебного (   Читать дальше...   )Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Клэй ХоллАктеры: Мэй Уитман, Джесси МакКартни, Джейн Хоррокс, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф Беннетт, Грэй ГриффинПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:16:49
+01. Drunken Sally 06:31
+02. Midget Ripper 04:52
+03. Come to Brazil 02:54
+04. Insert a Golden Coin 05:35(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF46FFBF66AC9BB88BEBA67AAE29C95FD85BC2D1
+magnet:?xt=urn:btih:E51F6141290B09101C96043EE6A89E069F263731
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +668,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743368   (105468) от 15.08.2024
+###  Публикация: 1740781   (105777) от 03.08.2024
 
-Реальные зомби / We Are Zombies (2023) WEB-DL [H.264/1080p] [звук с TS]
+MotoGP. Этап 10 из 20. Гран-при Великобритании. Квалификация (03.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>
->>
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105468.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В будущем зомби перестали быть агрессивными и стали полноправными членами общества. Одни стоят за кассой, другие крутят баранку, а некоторые даже ведут прогноз погоды и снимаются в фильмах для взрослых. Трое любителей легких деньжат переходят дорогу мегакорпорации, вынашивающей идею нового зомби-апокалипсиса. Они сделают все, чтобы помешать их планам и вернуть похищенную (   Читать дальше...   )Производство: Канада, Франция / Humanoids Inc.Жанр: ужасы, комедияРежиссер: Франсуа Симар, Анук Висселль, Йоанн-Карл ВисселльАктеры: Александр Начи, Дерек Джонс, Меган Пета Хилл, Венсан Леклер, Бенц Антуан, Карло Местрони, Ги Надон, Патрик Абейяр, Марк-Андре Буланже, Rosemarie SaborПеревод: Дублированный (звук с TS)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:20:01
+3 августа 2024, суббота. 12:50 МСК Этап 10, Сильверстоун. Гран-при Великобритании. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:45:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8A1058397619088AB6402DAA48DD2CDCBCF9B73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740649   (105776) от 03.08.2024
+
+Оксана Алексеева | Практическая романтика (2020) [MP3, Наталия Штин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105776.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я переехала к морю, поступила в лучший институт, устроилась на летнюю практику в крупнейший отель побережья. И ничего, что там же будет Большая восьмёрка – сборище избалованных мерзавцев и высокомерных мажоров. Открыто конфликтовать с ними я не намерена, себе дороже. Разве что вести скрытую партизанскую войну… Но у каждого в шкафу свои скелеты».Жанр: современные любовные романыИздательство: АРДИСПродолжительность: 08:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6357F59DE93483B6A191DEFE6C0749A0DB2D1DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

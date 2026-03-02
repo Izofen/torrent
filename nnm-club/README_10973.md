@@ -1,22 +1,25 @@
-###  Публикация: 1299697   (597839) от 02.05.2019
+###  Публикация: 1039161   (598205) от 31.07.2016
 
-Иран: все запрещено, все возможно / Iran: Everything is Forbidden, Anything Possible (2018) WEBRip [H.264/720p-LQ]
+Embraced - Within (2000) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597839.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кажется, что населению в Исламской Республике Иран всё запрещено. Полиция нравов бдительно следит за малейшим нарушением установленных правил, за употребление наркотиков, гомосексуализм смертная казнь через повешание. За воровство, взяточниство - отсечение рук. Отрубаются руки обыкновенно по запястье ладони, на плахе, топором, но это считается гуманным наказанием, (   Читать дальше...   )Производство: Франция, Ligne de Front, STARON FILMЖанр: Документальный, драма, историяРежиссер: Жак ДюбуаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:59
+1. Solitude of My Own 06:57
+2. Within Me 05:05
+3. The Fallen 07:44
+4. Putrefaction 04:08(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:53:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B7B7359BF9E27BC8E48AA3AAF59CA4ECFE9111E
+magnet:?xt=urn:btih:43F5A35714C3E74A31D9F2BF3C4163E28612FBC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,48 +27,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299703   (597838) от 02.05.2019
+###  Публикация: 1548525   (598204) от 03.05.2022
 
-Л.В. Авилова и др. | Практикум и индивидуальные задания по векторной алгебре и аналитической геометрии (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий практикум представляет собой сборник индивидуальных заданий (типовых расчетов) из курса высшей математики по темам «Векторная алгебра» и «Аналитическая геометрия». Излагаемые основные понятия сопровождаются большим количеством примеров с подробными решениями.Жанр: Учебное пособие, ПрактикумФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4F71AD31B71B8B9491558C84DC24815F4481B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299616   (597837) от 02.05.2019
-
-Charles MacLean | World Whisky A Nation-by-Nation Guide to the Best (2016) [PDF][EN]
+VA - Mastermix Essential Hits: Ibiza 1 (2022) [MP3|320 Kbps] <Broken Beat, Acid House, Disco, Trip Hop>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597837.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_598204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-World Whisky - это ваша библия виски всех наций с более чем 700 сортами и победителями со всего мира.
-Включая в себя современную фотографию для каждого типа, чтобы помочь в распознавании, этот всесторонний справочник проведет вас через каждую важную дистиллирующую страну - от Dewar's и Macallan в Шотландии до Jack Daniel's и Maker's Mark в США. Формат «от А до Я» (   Читать дальше...   )Жанр: Алкогольные напитки, Интересные фактыФормат: PDF
+01. A Man Called Adam - Easter Song
+02. Atlantic Ocean - Waterfall 2009 (2 Slow 2 Lounge Mix)
+03. Beloved - The Sun Rising (Danny's Love Is Mix)
+04. Cajun - Bamboleo (Carlos & Cubalos Rework)(   Читать дальше...   )Жанр: Broken Beat, Acid House, Disco, Trip HopПродолжительность: 05:05:34 hrs
 
 ## Скачать торент
 ```bash
@@ -77,25 +56,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299566   (597836) от 02.05.2019
+###  Публикация: 1039343   (598203) от 31.07.2016
 
-В. Ликсо | Невероятный космос (2019) [PDF]
+Macca & Hosta - New Begnnings (2014) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macca & Hosta - New Begnnings
+02. Macca & Hosta & Jodi - Nothing To ProveЖанр: Drum & BassПродолжительность: 00:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77097E03813DBA0D935FB95EB8CA40CAD08C127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548688   (598202) от 03.05.2022
+
+VA - Cosmopolitan Jazz Lounge, Vol.2 (Chillaxing Masterpieces Deluxe) (2022) [AAC|~338 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzy Cruise Club - Share This Dream (Pianissimo Edit) (2:48)
+02. Cooltrane - Greater Goodbye (Nightshift Radio Mix) (2:51)
+03. Nujazzy - On A Sunday Morning (Radio Cut) (2:54)
+04. Grooverick - Balcony People (Smooth Radio Mix) (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8276ED3DBF379E2E72438E3229A734206A7109E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039158   (598201) от 31.07.2016
+
+Adrana - Perturbatio (2008) [FLAC|Lossless|image + .cue] <Heavy Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Prusias
+02. Prusias
+03. Saneday
+04. Moonchildren(   Читать дальше...   )Жанр: Heavy Symphonic MetalПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23A4846B4D20962746D2ED754F57A0DA84B1ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548567   (598200) от 03.05.2022
+
+Витауте Жилинскайте | Замок лгунов (1977) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597836.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это издание содержит множество самых невероятных фактов о космосе, которые, несомненно, привлекут внимание любого читателя. Здесь представлена занимательная информация о Вселенной, галактиках, планетах и их изучении. Познакомившись с достижениями специалистов в области космических исследований, вы сможете в полной мере оценить их результаты в повседневной жизни. (   Читать дальше...   )Жанр: Познавательная литература, Энциклопедия, Для детейФормат: PDF
+Данис любил врать по любому поводу, и однажды так получилось, что он очутился в Замке Лгунов, из которого не так уж и просто убежать.
+Для детей старшего дошкольного возраста. Иллюстрации А.Склютаускайте.Жанр: Сказка, РассказПеревод: Б.Залесская, Г.КоптеловФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4B21C7643D2D8287181C236B444BF61801D5608
+magnet:?xt=urn:btih:09344B81FDCB006A011AA5142C5A51E8D8CDCF0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +168,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299541   (597835) от 02.05.2019
+###  Публикация: 1039346   (598199) от 31.07.2016
 
-Master PDF Editor 5.4.10 RePack (& Portable) by elchupacabra [Multi/Ru]
+DJ Clart - Beautiful Music (2016) EP [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597835.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Master PDF Editor - это программа, предназначенная для просмотра и редактирования документов в формате PDF. Приложение включает в себя удобные инструменты выделения текста и картинок на страницах, дает возможность легко перемещаться по документу при помощи оглавления, а также добавлять заметки и комментарии. Одним из важнейших преимуществ программы можно считать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01 - Beautiful Music (Original Mix)
+02 - Sweatin' (Original Mix)Жанр: Drum & BassПродолжительность: 00:11:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FD165F1F4C529A51035F4B152143B667659F393
+magnet:?xt=urn:btih:F2DB38A86BB935D217D34A3AE740489BF68829F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,60 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 526043   (597814) от 24.07.2012
+###  Публикация: 1548306   (598198) от 03.05.2022
 
-[Wallpapers] Nature Wallpapers (23.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50D073057964A6721FB69AC73F56E76AF9045E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526341   (597811) от 24.07.2012
-
-VA - Волна Свежести 50/ 50 (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - La Perla De Musica: New Latin (2022) [MP3|320 Kbps] <Latin, Dance, Reggaeton>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597811.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Biome feat. Fox - No Soul
- 02. Kill Paris - I Wanna Be Your Lover
- 03. 5sta Family - Вместе Мы
- 04. Alexa - Love The Way You Lie
- 05. All Давай feat. DJ Ihlas - Москва-Дубай
- 06. Alya - Damelo (Radio Edit)
- 07. Ани Лорак - Обними Меня
- 08. Анна Седокова - Что Я Наделала
- 09. D-Bosh - Верь Мне (Remix By Lasteden)
- 10. David Dino MC 47 - Ты Больше Не Моя (DJ_Iksiy_Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:48:24
+Сюжетная линия музыки этого сборника буквально нашпигована этническими мотивами латино, но наложено это на вполне себе европейский бит и бас. Авторам очень удачно удалось использовать схожесть народных инструментов с различными современными электронными "фишками" и они очень удачно это обыграли.001. Anuel Aa - Nunca
+002. J. Balvin - Blanco
+003. Sech - Relacion
+004. Manuel Turizo - Una Vez Mбs(   Читать дальше...   )Жанр: Latin, Dance, ReggaetonПродолжительность: 08:24:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56EC47DBF6F314A281B2FE7F8A4952308159A2F3
+magnet:?xt=urn:btih:C97F2F7E5ED9A053C63EDC845532196C9404E2A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,118 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 526744   (597810) от 24.07.2012
+###  Публикация: 1038909   (598197) от 31.07.2016
 
-Журнал | Телескоп. Вкусно! №7 (июль) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вкусно! - специальное кулинарное приложение журнала Телескоп. Хозяйки найдут здесь очень много интересной информации. Вы узнаете секреты приготовления различных блюд.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABF414F0EFA371385B06C047242C4EDE3248BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526310   (597809) от 24.07.2012
-
-Stonecoat - Cherokee Myth (1997) [MP3|256 кб/с]<New age, World, Native American, Enigmatic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stonecoat
-02 - Seven Dancing Boys
-03 - Tsali
-04 - Answer Mother Earth
-05 - The Crane
-06 - The Owl
-07 - Bear Clan
-08 - Uktena
-09 - Honor
-10 - To All My Relations(   Читать дальше...   )Жанр: New age, World, Native American, EnigmaticПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E2904E12F779B9544F58DC0BC4D4249CABDBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039145   (597808) от 31.07.2016
-
-VA - Defected In The House Croatia (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kai Alce - Defected In The House Croatia (continuous mix) (01:18:37)
-02. Crookers - Defected In The House Croatia (continuous mix) (01:03:53)
-03. Dario D'Attis - Defected In The House Croatia (continuous mix) (01:10:50)
-04. Crookers - A Place In My Heart (feat Kym Mazelle) (05:18)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530C3741041D457D76FB181F00C666268DCD820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039097   (597807) от 31.07.2016
-
-Gary Hoey - Utopia (2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+The Great Kat - Wagner's War (2002) EP [APE|Lossless|image + .cue] <Thrash Metal, Shred>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597807.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Utopia    03:31
-02. Walk Away    03:05
-03. Reminds Me of You    03:42
-04. Inevitable    03:13(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:27
+1. Act 1: War - Wagner’s “The Ride of the Valkyries” (from the Opera “Die Walkürie) for Symphony Orchestra, Band & Opera Singers 01:34
+2. Act 1: War - War 01:25
+3. Act 1: War - Terror 01:22
+4. Act II: Revenge - Punishment 01:28(   Читать дальше...   )Жанр: Thrash Metal, ShredПродолжительность: 0:11:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA9532F38CA88C811F4F631848ED0E7C45CC777D
+magnet:?xt=urn:btih:43AF4F0BA8BBB53955E86C6D5DC38C001AAA905D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,113 +253,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039216   (597806) от 31.07.2016
+###  Публикация: 1039213   (598196) от 31.07.2016
 
-Gianni Vancini - Acustico (2016) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quando
-02. Cannonball
-03. Caffe centrale (feat. Giacomo da Ros)
-04. All of My Life(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CFD96D53DB3A895D6E0BBBF18A13A35E6E88AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039104   (597805) от 31.07.2016
-
-В. Вичев | Мораль и социальная психика (1978) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография видного болгарского философа Васила Вичева посвящена исследованию взаимодействия между моралью и социальной психикой как в системе общественного сознания, так и в мотивации человеческого поведения.
-
-Автор убедительно доказывает, что научный анализ моральных и социальных психических явлений, поведения, стремлений и настроений различных групп и слоев населения (   Читать дальше...   )Жанр: История, философия, психология, социология, педагогика, политология, этикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3936CA13842536F43EBE30FC144EDFE9A8F94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038823   (597804) от 31.07.2016
-
-Vinnie Moore - Defying Gravity (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defying Gravity    05:05
-02. Out And Beyond    06:44
-03. Last Road Home    04:26
-04. Alexander The Great    05:04(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D991D3231740CEF5404DECBC62FE9CDE34C6E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039195   (597803) от 31.07.2016
-
-Александр Штейнгауз | Девять цветов радуги (1963) [DJVU]
+Александр Кононов | Верное сердце (1958) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597803.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Задумывались ли вы когда-нибудь о том, сколько цветов в радуге? Семь, а может быть, девять, как говорит название книги? Оказывается, их значительно больше, но в то же время название книги правильное. Почему же это так?
-
-Из этой книги вы узнаете, что такое свет видимый и невидимый, как он помогает людям познавать и исследовать окружающий мир, проникать в глубь вещества (   Читать дальше...   )Жанр: Детская образовательная литература. ФизикаФормат: DJVU
+В настоящем издании представлен роман А.Т.Кононова (1895-1957), рассказывающий о жизни в дореволюционной Латвии, о событиях в Латвии и Петрограде накануне Октября; о дружбе латышского и русского народов.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:893A8647E653895F71F24B2F35CBCF13508B42E2
+magnet:?xt=urn:btih:874C15BB31C7BE5DF779DA2DDC880B5C2D611324
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,26 +279,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038694   (597802) от 31.07.2016
+###  Публикация: 1548678   (598195) от 03.05.2022
 
-Петр Проскурин | Имя твое (2006) [MP3]
+Фредрик Бакман | Здесь была Бритт-Мари (2018) [MP3, Кирилл Радциг]
 
 >>Художественные аудиокниги и публицистика
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597802.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящая книга - второй роман дилогии "Имя твое".
-Действие романа начинается в послевоенное время и заканчивается в 70-е годы. В центре романа судьба Захара Дерюгина и его семьи. Писатель поднимает вопросы, с которыми столкнулось советское общество: человек и наука, человек и природа, человек и космос.Жанр: Современная прозаПродолжительность: 46:36:52
+Бритт-Мари – не самый лёгкий в общении человек. Не то чтобы она была как-то особенно упряма, капризна или придирчива – просто свято уверена, что всегда, везде и во всём должен быть абсолютный порядок.
+
+Но весь порядок рушится в одно мгновение, когда Бритт-Мари узнаёт, что Кент, с которым они сорок лет прожили в образцовом браке, изменил ей. Она принимает удивительное (   Читать дальше...   )Жанр: современная зарубежная литератураПеревод: Елена ТепляшинаПродолжительность: 10:36:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:981E382E713FDF226AE8E5CED8847C3951E51F10
+magnet:?xt=urn:btih:8347799FDD254F4451D0D602028D7C95B0487BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +307,250 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039166   (597801) от 31.07.2016
+###  Публикация: 1039050   (598194) от 31.07.2016
 
-My Sister's Band - Collection (2016) [MP3|320 Kbps] <Pop Rock, Country Pop, Vocal Jazz>
+Susie Ahern - Women Are Different (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lifeboat 3:54
+2. What If I Do 3:34
+3. Missing You 4:32
+4. Women Are Different 4:17(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BFCD836E3F33183F1ACFA439C7F1B95BC501CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548628   (598193) от 03.05.2022
+
+Triosphere - Studio Albums (3 releases) (2006-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triosphere — норвежская Power/Progressive Metal группа из Тронхейма, созданная в 2004 году вокалисткой и басисткой Идой Хаукланд и гитаристом Мариусом Сильвером Бергесеном.2006 - Onwards
+2010 - The Road Less Travelled
+2014 - The Heart of the MatterЖанр: Power/Progressive MetalПродолжительность: 02:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038899   (598192) от 31.07.2016
+
+The Great Kat - Worship Me Or Die (1987) 1990 Roadracer Records [APE|Lossless|image + .cue] <Thrash Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Messiah
+02. Kat Possessed
+03. Death To You
+04. Satan Goes To Church(   Читать дальше...   )Жанр: Thrash Metal, ShredПродолжительность: 0:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F858D3161F602A3E275D1EF099C550B55D757EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548558   (598191) от 03.05.2022
+
+Антон Чехов | Хрестоматия (2013) [MP3, Хорлин А., Кирсанов С.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «СиДиКом» представляет новую серию аудиокниг – «Школьная хрестоматия». «Школьная хрестоматия» – уникальный проект, который разработан в помощь учащимся и содержит укороченные озвученные версии литературных произведений школьной программы, что позволяет в кратчайшие сроки ознакомиться с творчеством автора и подготовиться к экзаменам.Жанр: Школьная хрестоматия, русская классическая прозаПродолжительность: 11:31:16 + 12:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0BAEE239A10E2B66EB8394CF274EEFF243B300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039159   (598190) от 31.07.2016
+
+Aeternam - Disciples of the Unseen (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Almadel 01:51
+02. Angel Horned 03:15
+03. Esoteric Formulae 04:20
+04. The Coronation of Seth 05:16(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB63E027DC3088BACB7C44ABA3332F5374303864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548697   (598189) от 03.05.2022
+
+VA - Cosmopolitan Jazz Lounge, Vol.4 (Chillaxing Masterpieces Deluxe) (2022) [AAC|~326 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderphazz - Still Waters (Edit) (2:24)
+02. Perelandra - Breaking Apart (Saxy Mix) (5:09)
+03. Seneca Reynolds - Deep Shield (Groovy Obsession Edit) (2:34)
+04. Pure Desire - Without Mask (Hands On Jazz Mix) (4:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E89FDB304CD2CFBBF5379443499E04B95BD50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039202   (598188) от 31.07.2016
+
+Константин Станюкович | Морские рассказы (1970) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740BF01BDD32AF6A57DD65F5A631532B875F7A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548679   (598187) от 03.05.2022
+
+Наследники Победы (2016) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа школьников решает создать отряд специального назначения «Новые тимуровцы» для помощи хорошим людям, оказавшимся в трудной ситуации. Их первым делом становится помощь мальчику в поисках нагрудного знака «отличный шофер», которым был награжден его дедушка, сейчас тяжело больной. В ходе поисков ребята знакомятся с директором музея ретро-автомобилей, который рассказывает (   Читать дальше...   )Производство: Россия, ИнтелкиноЖанр: Детский, Видеоуроки, Обучающий, РазвивающийРежиссер: Елена ДубровскаяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBF4EA146CBDC5FF369ECBDA6A31C71EE5FAF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039281   (598186) от 31.07.2016
+
+VA - Electro Summer (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597801.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Лета ждать
-02. Яндекс
-03. Гагарина
-04. Помчали(   Читать дальше...   )Жанр: Pop Rock, Country Pop, Vocal JazzПродолжительность: 01:12:55
+01. Middle Milk -  Me (Club Mix) 5:46
+02. Fatblock -  The Stack (Original Mix) 3:34
+03. Froxic -  In Orbit (Original Mix) 6:30
+04. Dylexia -  Immortal (Original Mix) 5:38(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 03:22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22D14911D661F485B3D8CE5842816F1DEC4760A5
+magnet:?xt=urn:btih:41135D073D712344A4D2683B8797818069139C88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,28 +558,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039112   (597800) от 31.07.2016
+###  Публикация: 1548739   (598185) от 03.05.2022
 
-Defiant Machines - Disruption Of The Calm (2015) [MP3|320 Kbps] <Electronic, Synth-pop, EBM>
+MediaHuman YouTube Downloader 3.9.9.71 (0205) RePack (& Portable) by 9649 [Multi/Ru]
 
->>Electronic
->>Synthpop, New Wave
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597800.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_598185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disrupted (Intro) (1:35)
-02. End Of The Line (5:06)
-03. Pretty When You Cry (3:49)
-04. New Man (4:39)(   Читать дальше...   )Жанр: Electronic, Synth-pop, EBMПродолжительность: 00:56:18
+MediaHuman YouTube Downloader - удобное приложение, с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер нового фильма с YouTube или подобных сервисов и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CA17C522C12C5C4E1D7F6819D759B47A36D6A60
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +584,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039371   (597799) от 31.07.2016
+###  Публикация: 1039338   (598184) от 31.07.2016
 
-Trisha Yearwood - The Song Remembers When (1994) [FLAC|Lossless|tracks] <Country>
+Nelver - Crystal Soul (2016) EP [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597799.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walk Away Joe (4:18)
-02. The Song Remembers When (3:54)
-03. Better Your Heart Than Mine (3:54)
-04. I Don't Fall In Love So Easy (4:14)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:46:36
+01 - Crystal Soul (06:14)
+02 - Talk To Me (06:28)Жанр: Drum & BassПродолжительность: 00:12:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C9B392FD623D0820454295307A3444C03370C62
+magnet:?xt=urn:btih:4A73A1320D6A52AA90A3FA2695A1E04DD0B194D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,25 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039064   (597798) от 31.07.2016
+###  Публикация: 1548207   (598183) от 03.05.2022
 
-Э. Гемери | Сверхбогачи (1987) [DJVU, PDF]
+VA - Beatport Techno: Sound Pack #519 (2022) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 
->>Научная и техническая литература
->>Историческая литература
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597798.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге живо и интересно излагается история возникновения крупнейших личных состояний капиталистического мира, ярко обрисован путь к богатству Ротшильдов, Круппа, Мицуи, Ханта, Шпрингера, иранского шаха я др. Автор наглядно показывает неразборчивость в средствах наживы истинных хозяев капиталистических стран, их связи с политиками и закулисное влияние на политическую (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+Очередной релиз техно-электроники, который раскрывает все самое лучшее и самое загадочное в техно музыке. Это подборка треков, созданных с одной целью - провести слушателя в увлекательное путешествие по темным неизведанным глубинам техно музыки, которую мы любим за ее уравновешенность, ее дух и железное ядро!001. Red Albert - Over The Sun
+002. Resonances - Black Hole
+003. Sakin Bozkurt - Black Friday
+004. Asc - Sarif(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:34:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30E9145E87A5B274BBEA0F05DA53DAC1D3DEDBBA
+magnet:?xt=urn:btih:8DC567F5C1DDB294C84ACD34830780A0018BDC49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,25 +640,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038616   (597797) от 31.07.2016
+###  Публикация: 1039214   (598182) от 31.07.2016
 
-Дэшил Хэммет | Выгодный поджог (2016) [MP3]
+VA - German Top 50 Official Dance Charts 08.08.2016 (2016) [MP3|320 Kbps] <House, Pop, Dance>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597797.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это первый рассказ семилетнего цикла детективных романов и рассказов Дэшила Хэммета под общим названием "Сотрудник агентства Континенталь". Впервые опубликован в журнале «Black Mask» в октябре 1923 года под псевдонимом Питер Коллинсон. Безымянный детектив агентства "Континенталь" расследует поджог загородного дома. Кто чиркнул спичкой и почему? (   Читать дальше...   )Жанр: ДетективПродолжительность: 00:39:30
+01. Martin Solveig & Tkay Maidza -  Do It Right (Original Mix) 3:33
+02. Don Diablo Ft. DYU -  Drifter 3:00
+03. MATTN & Futuristic Polar Bears -  Cafe Del Mar 2016 (Dimitri Vegas & Like Mike Edit) 3:47
+04. Alan Walker -  Sing Me To Sleep 3:09(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:10:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA169C38BA9525EAE6A75B14C73622F02004106A
+magnet:?xt=urn:btih:BA4A19ADF5A7997CABCBF5CA2BC8AEC6099D588D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -589,28 +669,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039128   (597796) от 31.07.2016
+###  Публикация: 1548611   (598181) от 03.05.2022
 
-Figures At Dawn - In From The Cold (2001) [FLAC|Lossless|image + .cue] <Synthpop, New Wave, Hi-Tech AOR>
+Фёдор Михайлович Достоевский | Хрестоматия. Преступление и наказание (2013) [MP3, Степан Старчиков]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597796.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Bridges Burning
-2. Love Will Know
-3. In from the Cold
-4. Letters from London(   Читать дальше...   )Жанр: Synthpop, New Wave, Hi-Tech AORПродолжительность: 01:09:06
+Вопрос – «Тварь я дрожащая, или право имею?» заставляет ломать копья многие поколения русских читателей. Убийца наедине со своей больной совестью – эта пара вызывает и отвращение, и сострадание, но вместе с тем и жгучее желание как можно пристальнее всмотреться в их взаимоотношения. И неожиданно понять, что наказание – не что иное, как лекарство, исцеляющее преступника (   Читать дальше...   )Жанр: классическая проза, литература 19 века, русская классика, список школьной литературы 10-11 классПродолжительность: 16:53:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B29207F7880033933178595CA65BDEF7C0CB564
+magnet:?xt=urn:btih:9DED5FC036C92B4F79DF83756F9BDD682E952378
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,104 +695,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038692   (597795) от 31.07.2016
+###  Публикация: 1039160   (598180) от 31.07.2016
 
-Петр Проскурин | Судьба (2011) [MP3]
+Deicide - Deny The Cross (1992) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597795.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие романа разворачивается в начале 30-х годов и заканчивается в 1944 году. Из деревни Густищи, средней полосы России, читатель попадает в районный центр Зежск, затем в строящийся близ этих мест моторный завод, потом в Москву. Герои романа — люди разных судеб на самых крутых, драматических этапах российской истории.Жанр: Современная прозаПродолжительность: 40:48:53
+01. Dead But Dreaming
+02. Oblivious To Evil
+03. Satan Spawn, The Caco-Daemon
+04. Dead By Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8CFEBFCDC4450A3488736A7E1E6A21FEF359E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039223   (597794) от 31.07.2016
-
-Кремлёвские похороны. Виктор Абакумов (2009) DVBRip [H.264]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизни советских вождей были окружены множеством легенд. Но не только жизни… Почти все представители советской аристократии умерли так, что историки до сих пор спорят, пытаясь разобраться в естественных, на первый взгляд, причинах кончины и отделить пропаганду и домыслы от фактов.
-Со смертью очередного кремлёвского властителя на фоне официальных некрологов и демонстративного (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Алексей СмаглюкПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8229C475C33DCE80C7761C82AF09245703EBF80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039179   (597793) от 31.07.2016
-
-Сергей Георгиев и др. | Надо иметь чуство юмора [Рассказы о школе и школьниках] (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A660E75B77B5F0D19F24F59CF4C79B7AB607C101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039199   (597792) от 31.07.2016
-
-Денис Фонвизин | Комедии (1950) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597792.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Много печатного вздору у нас не оттого, что больше стало еретиков, а разве оттого, что больше стало дураков". Эти слова Дениса Ивановича Фонвизина за два с лишним века не стали менее актуальными. Их автор вошел в историю русской литературы прежде всего как создатель знаменитой комедии Недоросль, которая и по сей день не сходит с театральных сцен. Однако (   Читать дальше...   )Жанр: Русская классическая проза. КомедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187F99A232C415239CC63A2E6381A4621857C4C3
+magnet:?xt=urn:btih:A61FCC44BF6248FD2712E2DA636AA2C2C19BDC64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 832458   (412011) от 18.10.2014
+
+Футажи - Rab-Byte - Volume 19 - Transitions & Wipes (Keyable Transitional Animations) [AVI]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник анимационной графики Rab-Byte. 79 файлов со звуковыми эффектами.Формат: AVIРазрешение файлов: 720х480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484ADE5A322B58AF2F16EE857025CA6AFB1755AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 832259   (412010) от 18.10.2014
 
 Футажи - Rab-Byte - Volume 39 - First half of the day "Rings & Roses. A Wedding Collection" [MOV]
@@ -655,32 +681,6 @@ Editor's Toolkit Pro Singles 241: Tile Tag (High Impact Tools) - Набор ан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485D24992ED31559151D204684492EB2A42527A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559452   (409583) от 12.10.2012
-
-Digital Juice - Presenter's Toolkit (Full ISO)
-
->>Материалы для мультимедиа и дизайна
->>Digital Juice
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык интерфейса: Только английскийФормат: PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAAFFEB6F24132DF565CB50AB361CD9910E7F36
 ```
 
 https://mybot314.ru/tekegram_catalog/

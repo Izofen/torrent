@@ -1,3 +1,206 @@
+###  Публикация: 1615353   (1037816) от 25.02.2023
+
+VA - German Top 100 Single Charts 24.02.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Udo Lindenberg & Apache 207 - Komet (2:47)
+002. Miley Cyrus - Flowers (3:20)
+003. AYLIVA feat. MERO - Sie weiß (feat. Mero) (2:31)
+004. Raye feat. 070 Shake - Escapism. (4:32)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE931D471ABA2CC66B179B3AF10D3C42FEEFCBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441259   (1037759) от 21.01.2021
+
+VA - XV Years Of Doom & Solitude (2021) [MP3|320 Kbps] <Doom Metal,  Drone, Post-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elusive God - Silence Is Our Doom (04:52)
+ 002. Ekklesiast - Цветок Тревоги - Flower Of Dismay (15th Anniversary Remix) (06:46)
+ 003. Restless Oblivion - Mistilteinn (06:49)
+ 004. Shattered Hope - In Cold Blood (13:09)(   Читать дальше...   )Жанр: Doom Metal,  Drone, Post-MetalПродолжительность: 28:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B045314C4A2C6B1AC5AA725011DCE1CCAD6341A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441358   (1037741) от 21.01.2021
+
+VA - Music News vol.65 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. To-ma - Карма (03:10)
+ 002. Akira - Помню (02:44)
+ 003. AlexNo & Lesha M - Забудь Меня (03:01)
+ 004. AliB - Захожу На Движ (03:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CC02A2043BE44D07BA186AB6EE839A595BFE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614775   (1037570) от 26.02.2023
+
+Shirley Bassey - Compilation (2023) [MP3|320 Kbps] <Soul, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All By Myself
+02. Almost There
+03. Get the Party Started
+04. In the Still of the Night(   Читать дальше...   )Жанр: Soul, VocalПродолжительность: 04:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8234304603995989E0E15BE67A579E3552528DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615580   (1037568) от 26.02.2023
+
+VA - Disco Basics of The Hit Space (2023) [MP3|320 Kbps] <Funky, Nu-Disco, Indie Dance, Chicago House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sharam Jey - Ni8t Riderz (Original Mix)
+02. Chinaski - Energy 2 (Original Mix)
+03. Caseti - 385 (Anbau Remix)
+04. Phil Disco - Classic Night (Vitolino Vibe & Friends Remix)(   Читать дальше...   )Жанр: Funky, Nu-Disco, Indie Dance, Chicago HouseПродолжительность: 02:02:54 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C69A610068A436A867BBF0AA7049FDE6F5A49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615593   (1037551) от 26.02.2023
+
+VA - Greatest Dj Dance Saturday (2023) [MP3|320 Kbps] <Eurobeat, Dancecore, Italodance, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kasa Remixoff - Updated Feeling (Extended Mix)
+02. INNA - Just Dance
+03. Nervian Society - Mainloft (feat. Mien)
+04. KintexaHoop Records - But You(   Читать дальше...   )Жанр: Eurobeat, Dancecore, Italodance, ElectropopПродолжительность: 02:17:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8714ECA7C4EA2EA037B9B510790088DC2DE478E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615586   (1037550) от 26.02.2023
+
+VA - Disco Real Time Discoteca Mashup (2023) [MP3|320 Kbps] <Nu Disco, Funky, Synthpop, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sammy Deuce & Hp Vince - You Gotta Dance (Vince's Nu Disco Mix)
+02. Disco Fries - Family Affair (HAWK & Beyge Extended Remix)
+03. Sean Finn - Disco Revenge 2021 (CASSIMM Remix)
+04. Sean Finn - Disco Revenge 2021 (CASSIMM Remix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Synthpop, Electro HouseПродолжительность: 02:10:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5183477544C7852FCBC71FB292AD34EAE00B0B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615591   (1037505) от 26.02.2023
 
 VA - Music News vol.248 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ Stereophonic Space Sound Unlimited - Compilation (2023) [MP3|320 Kbps] <Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E7D96CA914A6124C576E7FDBE387810C9B140D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442554   (1036626) от 25.01.2021
-
-VA - Beatport Electro Dance: Sound Pack #225 (2021) [MP3|320 Kbps] <EDM, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс-сборник танцевальной музыки 225-го релиза от Beatport, разбавит Ваши серые будни и принесет частицу праздника. Треки микс-сборника характеризуются нестандартным подходом к исполнению, глубокой палитрой звучания и отличным настроем.001. Kid Massive - Feel Love (Original Mix)
-002. Simon Fava - What It Is About
-003. Turbotronic - Party Day
-004. Ever Est - Red Zone(   Читать дальше...   )Жанр: EDM, Club, DanceПродолжительность: 07:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6ABAB61E959D44524F66F5EED1BFD3A10A93DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442547   (1036589) от 25.01.2021
-
-VA - The Four Season (2021) [MP3|320 Kbps] <Instrumental, Neoclassic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это подборка красивой инструментальной спокойной музыки для души, она позволит вам отдохнуть и набраться сил.001. Jim Perkins - A Ritual For Saying Goodbye
-002. Philip G Anderson - Lakes
-003. Max De Wardener - Redshift
-004. Paul Saunderson - Saunderson From Under The Sun(   Читать дальше...   )Жанр: Instrumental, NeoclassicПродолжительность: 06:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A68FEC7733E9DB622647EB962C6FB447A8A5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442492   (1036567) от 25.01.2021
-
-VA - Music News vol.66 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036567.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isupov & Брутто - Молодая (02:57)
- 002. Albert Brite - Не Моя Вина (02:23)
- 003. Andrea Ferrini - Never Over For Me (02:44)
- 004. Animal ДжаZ - Бессимптомно (03:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17316FD05CF027F727EBD0FFB60F9361417E463A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442550   (1036455) от 25.01.2021
-
-VA - Big Retro Hits 90s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто бывает так, что очень долго не слушаешь трек. Уже забыл про его существование, а потом, случайно, слышишь знакомый мотив, и тебя накрывает волной воспоминаний. Послушав эту музыку словно побывал на каком-то эмоциональном аттракционе, когда годы и события сменяли друг друга с невообразимой скоростью.001. The Blue Rubatos - Say Me
-002. Talk Talk - Such A Shame
-003. Sister Sledge - Thinking Of You
-004. Jaki Graham - Round And Around(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 08:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9EFD612CD12F7D6A15682AF7CCD79102E9BEDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442590   (1036351) от 26.01.2021
-
-Lalo Mora - Mi Canto para Padres (2021) [MP3|320 Kbps] <Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный мексиканский музыкант и певец известный просто как Лало Мора. Родился в Лос-Рамонесе, штат Нуэво-Леон, 24 января 1947 года под именем Эдуардо Мора Эрнандес. Начал петь в барах и вскоре был известен в своем родном городе, где он сделал дуэт, известный как Lupe y Lalo. У него было много замечательных хитов, в том числе "El Rey de Mil Coronas" и (   Читать дальше...   )01. Dos Coronas A Mi Madre (En Honor A Mi Compadre Lupe Tijerina)
-02. Mi Caballo Pobre
-03. Regalo De Dios
-04. Leonardo Reyes(   Читать дальше...   )Жанр: LatinПродолжительность: 01:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C689404F3C32CF25A690DE9CDD38A564C903BF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442836   (1036346) от 26.01.2021
-
-VA - Minimal Harmony: Mixed Sound (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистичная обложка пластинки "Minimal Harmony" в полной мере передает настроение всего альбома. Треки демонстрируют бескомпромиссный и энергичный звук, чистоту и лаконичность идеи. В альбоме также присутствуют эксперименты с ритмом и элементы аналогового техно-саунда.001. Horisone & Nonameleft - Aurora
-002. Shaun Valentine - Decline
-003. Fluffy Inside - Squitter
-004. Petzoo - Oasis (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569D9E57E1FFCF8A71C33C605B54595E6739CBCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442862   (1036339) от 26.01.2021
-
-VA - Beatport Electronic: Sound Pack #226 (2021) [MP3|320 Kbps] <Synth, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежий релиз электроники - это очередной мостик в волшебную и неизвестную страну техно музыки, полную невероятных сочетаний, решений и красивой, завораживающей музыки. Присутствующий здесь синт-прогрессив в привычной форме, но с некоторой агрессией в звучании, и без летальных доз вокала.001. UnitB - Get In
-002. Saturn Hands - Orbit
-003. Anton Mazo - Don't Shoot Me Down
-004. Kateri Bouchard - Coquillages(   Читать дальше...   )Жанр: Synth, TechnoПродолжительность: 12:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E79FC96D2BA82E1FBB74E13154C11E8B3F4300
 ```
 
 https://mybot314.ru/tekegram_catalog/

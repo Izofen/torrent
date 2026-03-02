@@ -1,3 +1,32 @@
+###  Публикация: 1269279   (221553) от 14.12.2018
+
+Experimental Products - Prototype (1982) LP [MP3|320 Kbps] <Electronic, Minimal, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Living (5:41)
+02. Sweet Rejection (5:04)
+03. New Project (3:43)
+04. Feeling Left Out (5:56)(   Читать дальше...   )Жанр: Electronic, Minimal, Synth-popПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2890F54AA41D8C8CE0EC609652BD1F135E0516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269212   (221445) от 14.12.2018
 
 Jyl - Jyl (1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Electro>
@@ -716,35 +745,6 @@ Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1E0CD1DDF69BAC308E24657D5C20C4D619A3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597632   (165942) от 15.12.2022
-
-Thermal Noise - 7 Albums (2018-2022) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - NEMESIS
-2019 - Horizon
-2019 - Intruder(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 7 CD, 05:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55773E5A15EFD2719B1108831E1E4D62E31DFC2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

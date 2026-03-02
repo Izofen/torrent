@@ -1,3 +1,31 @@
+###  Публикация: 1263886   (284202) от 21.11.2018
+
+Векторный клипарт - Fotolia - Book carpet abstract template log example flyer banner [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Абстрактные шаблоны
+25 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63134CEAE0876487FC134844CAECB4A17FCF46E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335896   (284102) от 04.11.2019
 
 3d isometric vector semi truck [EPS]
@@ -661,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A406A6D661E593D1F46344984A52AB775A68CF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187175   (282180) от 27.11.2017
-
-Растровый клипарт - Soon New Year #19 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 192x306-1600x2313
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8265619AD0DCA53F12FB82C84848C13911DAE4C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

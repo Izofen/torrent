@@ -1,3 +1,119 @@
+###  Публикация: 1752943   (41567) от 03.10.2024
+
+VA - RetroFutur (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmoss (SP) - You Like the Sun (6:24)
+02. Bizzarro Universe - Kosmos (6:51)
+03. DJ Wedding - Dance of the Lonely Shepherd (6:09)
+04. Dog.Ma - Italodisco (6:10)(   Читать дальше...   )Жанр: Indie Dance, Nu-Disco, RaveПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D216309A808F2A3B312C16625F900FB5C64F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752944   (41558) от 03.10.2024
+
+VA - RetroFutur 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mal Femmé - Quantum (5:31)
+02. Flight Status - Black Trans Am (7:04)
+03. Hoochie Coochie Papa - Ygam (6:06)
+04. Alberto Melloni - Instant Rodeo (4:50)(   Читать дальше...   )Жанр: Indie Dance, Nu-Disco, RaveПродолжительность: 02:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86821F89D4BCEE74F368073197FE8F2A7E72C19B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753913   (41196) от 07.10.2024
+
+Chris De Burgh - 50 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Simple Truth
+02. Here For You
+03. The Grace of a Dancer (Re-Recording)
+04. Greater Love(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538A523F2C737188CBCFFACF0A43DD00BF2E5791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754366   (40866) от 09.10.2024
+
+Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mumbo
+02. Bip Bop
+03. Love Is Strange
+04. Wild Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CC151918D9559425050EFFA2727ECC6469B4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754362   (40864) от 09.10.2024
 
 Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL – UICY [FLAC|Lossless|image + .cue] <Pop, Rock>
@@ -631,120 +747,6 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762824   (35962) от 27.11.2024
-
-Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Jackson - Love Never Felt So Good (3:56)
-02. Michael Jackson & Justin Timberlake - Love Never Felt So Good (4:06)Жанр: PopПродолжительность: 00:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2B95F6FB6EA3BB50A313B5572A00E903EEB48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763105   (35749) от 29.11.2024
-
-VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35749.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You (3:53)
-002. Bruno Mars - Locked Out of Heaven (3:53)
-003. Coldplay - Viva La Vida (4:02)
-004. Ava Max - Sweet but Psycho (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5269B49211FC46A2851AA29428F204A20CB581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763241   (35630) от 30.11.2024
-
-Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|tracks] <R&B / Soul / Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Definition of Love [00:03:15]
-02. If This Is Love [00:03:26]
-03. Another Life [00:04:31]
-04. Myrrh [00:03:16](   Читать дальше...   )Жанр: R&B / Soul / PopПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE013297F9058F4C79CA2D7A7871383AC0A83C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763252   (35622) от 30.11.2024
-
-Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Music[FLAC|Lossless|WEB-DL|tracks] <Dance pop, Christmas Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Mother's Christmas Wish (Reimagined) [00:03:08]
-02. We Three Kings (Reimagined) [00:03:15]
-03. Christmas On The Radio (Reimagined) [00:03:21]
-04. Underneath The Same Sky (Reimagined) [00:02:55](   Читать дальше...   )Жанр: Dance pop, Christmas MusicПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

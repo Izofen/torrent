@@ -1,3 +1,32 @@
+###  Публикация: 1299595   (241512) от 15.04.2022
+
+Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starstruck
+02. Catch The Rainbow
+03. L.A. Connection
+04. Fool For The Night(   Читать дальше...   )Жанр: RockПродолжительность: 03:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545206   (240837) от 18.04.2022
 
 Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -716,35 +745,6 @@ VA - Halloween Stories (2022) [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7EF27991CB17F895DD6E7AD3324B967DEB814E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083993   (220830) от 18.12.2016
-
-The Savage Rose - Her Story (Compilation) 2CD (2016) [MP3|320 Kbps] <Progressive rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voice Of Revolution
-02. Listen to This Tune From Mexico
-03. Where Have All The Flowers Gon
-04. Help The Lonely Child(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61EF7234F47EB6BE6D317C845501720F96AA614
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1196967   (817003) от 06.01.2018
+
+Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip (часть 3)
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817003.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+116 DJ Bobo - Take Control
+117 Haddaway - What About Me
+118 Ricky Martin - Livin' La Vida Loca(   Читать дальше...   )Жанр: PopФормат: AVIПродолжительность: 03:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C483A27D224E01B806612F47904FE16DB0BE42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197382   (815519) от 07.01.2018
 
 Брюс Всемогущий / Bruce Almighty (2003) HDRip [H.264] [Hand Made Extended Cut]
@@ -650,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C8667736898CD3F7C99A63A3C3422AFF293ABEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198632   (806039) от 12.01.2018
-
-Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip (часть 2)
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806039.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-061 Nicole Kidman & Ewan McGregor - Come What May
-062 Elize - Hot Stuff
-063 Blue - One Love(   Читать дальше...   )Жанр: PopФормат: AVIПродолжительность: 03:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FEE511038BEA56A054EB3FD2AC7423395FD9770
 ```
 
 https://mybot314.ru/tekegram_catalog/

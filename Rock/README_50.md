@@ -1,3 +1,67 @@
+###  Публикация: 541049   (502563) от 30.08.2012
+
+VA - Mojo Presents Yellow Submarine Resurfaces (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bill Wells & Aidan Moffat - Yellow Submarine (2:15)
+ 2. Bevis Frond - Hey Bulldog (2:50)
+ 3. Howe Gelb - Eleanor Rigby (2:51)
+ 4. Cornershop - Love You To (3:23)
+ 5. Jim White - All Together Now (3:16)
+ 6. Natalie Duncan - Lucy in the Sky with Diamonds (4:03)
+ 7. Pete Shelley - Think for Yourself (2:35)
+ 8. Michele Stodart - Sgt. Pepper's Lonely Hearts Club Band (2:58)
+ 9. Benjamin Francis Leftwich - With a Little Help from My Friends (3:08)
+ 10. Wooden Wand - Baby, You're a Rich Man (6:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B50A30F7F7FFF1D246D3BDB79B6DE4330A14A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933310   (502518) от 05.09.2015
+
+The Sword - High Country (2015) [OGG| 435-535 кб/с]<70's Stoner Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unicorn Farm (00:50)
+02. Empty Temples (03:55)
+03. High Country (02:37)
+04. Tears Like Diamonds (03:46)(   Читать дальше...   )Жанр: 70's Stoner Rock, Hard Rock, Heavy MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5A7F41EEC0525ABC4018A8464E05D8D529CAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234278   (501756) от 08.09.2010
 
 Honkeyfinger - 2 Albums (1 Full-length, 1 EP) (2008 - 2009) [MP3|320 kbps]<One Man Band, Dirty Blues, Country Rock>
@@ -683,64 +747,6 @@ Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318036   (497755) от 04.08.2019
-
-24 Pesos - Flesh & Bones (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Am The Blues [4:27]
- 2. Broken Hearted Man [4:41]
- 4. You Don't Want Me [4:15]
- 3. All The Same [4:03](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2159D32D5B5B0D5FD044827FBA6550264F0E818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564896   (497727) от 21.07.2022
-
-October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Divide and Conquer [00:03:05]
-02 - Black Veil [00:04:19]
-03 - Tightrope [00:04:52]
-04 - Regress [00:03:34](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16D25D2F13698EE66607C97860C53CFC2E9F5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1366466   (923355) от 11.03.2020
+
+3D модели - 3DDD - Bathtub (Bathroom) - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 30 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFD61E2829CA7F6262C30EC69EF1C609C899702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 756285   (922732) от 13.02.2014
 
 Растровый клипарт - Евро / EURO [JPEG]
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB47FF9E0E5425EFD17D7EA692E49B3BA02926B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490334   (918657) от 20.08.2021
-
-Фоны - Сборник фонов #6 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник фонов для вашего творчества.Формат: JPGРазрешение файлов: 1440x1920-5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD177AA71E9F88DCB052E51BDDA45679ED9E86B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

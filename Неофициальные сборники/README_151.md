@@ -1,3 +1,206 @@
+###  Публикация: 1117259   (817181) от 23.03.2017
+
+VA - Отдыхаем душой на стильном радио Шансон выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817181.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Махачкалинский - Крест Бродяги 4:04
+002. Александр Марцинкевич - За Тобою 3:04
+003. Михаил Княжевич - Авто-Леди 3:15
+004. Виктор Тартанов - На Юга 3:51(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4810AA6657D83E5D8CE02B5F347CEAE918A1A744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117265   (817179) от 23.03.2017
+
+VA - Вечеринка на радио Шансон выпуск № 6 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817179.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктория Калистратова - Ну Прости Меня 3:39
+002. Александр Куликов - Пожалуйста 4:08
+003. Мила Руденская & Владимир Курский - Волк И Волчица 3:39
+004. Т.Буланова & К.Костомаров - С Этого Дня 3:18(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7807969DDC1DC9958D2AC203A611CD1714D14578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117711   (817178) от 23.03.2017
+
+VA - Empire Records - ANDRS Parody 3 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LoW&LoW - Dance Flow
+02. DJ Jayms & TommyV - Down With The Jungle (Original Mix)
+03. Devochka - Wrong (Original Mix)
+04. Matroda x Dustycloud - Come Back (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268A023B3DDC38994F5E34BCBBF4EA29C4E8B60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117444   (817177) от 23.03.2017
+
+VA - German Top 100 Single Charts (17.03.) (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ed Sheeran - Shape Of You  3:54
+002.  Kygo & Selena Gomez - It Ain't Me  3:41
+003.  Burak Yeter - Tuesday (feat. Danelle Sandoval)  4:02
+004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A265754CD8BD90C1D1C6254A358F8A06FF3164F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117703   (817176) от 23.03.2017
+
+VA - Empire Records - Dancenudisco 13 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)
+02. Anton Ishutin feat. Note U - Be My Lover (Sax@cean Edit)
+03. Dr. Alban & Nicole Heiland - Solo Tu Music In Me (Vnrg Mash UP Remix)
+04. Ajvas - Walking On The Moon (Original mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B40CA0EFF226C6D3574ADADC45D0D34D13AC73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194626   (817125) от 06.01.2018
+
+Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hollywood Bowl 27.10.2017 [MP3|320 Kbps] <Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Robot Boy/The Messenger/Iridescent [5:47]
+02 - Roads Untraveled [3:24]
+03 - Numb [3:12]
+04 - Shadow Of The Day/With or Without you [7:53](   Читать дальше...   )Жанр: Alternative rock, Nu metal, Alternative metalПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A5CB78DC8170EEA9E3D50C95EFAC942BD081F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117252   (817050) от 23.03.2017
+
+VA - Весенние заводные хиты (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817050.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сандра Круглова - Сверху 3:06
+002. Dato - Если Это Не Любовь 4:27
+003. Bazhen Sysoev Feat. Dj Seat - Наркотик 3:07
+004. Милан Савич - Так И Скажи 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117247   (817049) от 23.03.2017
 
 VA - 100-ка популярных весенних хитов на Europa Plus (2017) [MP3|256 Kbps] <Pop>
@@ -542,209 +745,6 @@ VA - Дискотека 80-90 годов по-новому. Зарубежный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45826C08B705C8923A0295E8D0E0B8DB120B1B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008409   (816116) от 18.04.2016
-
-VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gateway 88 - Dark Brotherhood (Aldo Henrycho Remix) 07:21
-02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
-03. Ather - Evelyn (O.B.M Notion Rmx) 07:44
-04. Dreamy - Know Thy Self (Original Mix) 08:46(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B363BB0B69AD49EF50F90F8358EDFA090AB6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008427   (816036) от 18.04.2016
-
-VA - Resident Advisor Top 50 Charted Tracks March (2016) [MP3|320 кб/с] <Tech House, Nu-Disco, Electronica, Minimal, Tribal, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon Emerson - The Frontier (Original Mix) [07:35]
-02. ANNA - Odd Concept (Original Mix) [07:19]
-03. Antigone - Hiraeth (Original Mix) [06:36]
-04. Basti Grub, Natch & Dothen - Oh Baby Dance (Original Mix) [06:49](   Читать дальше...   )Жанр: Tech House, Nu-Disco, Electronica, Minimal, Tribal, TechnoПродолжительность: 05:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC7CD469E82F5B114114637733B18327D4A1B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008349   (815937) от 18.04.2016
-
-VA - Ночь в дороге (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вхип (Владимир Хомутов Игорь Павлов) - Непьющий
-02. И. Кучин - Шняга
-03. Игорь Махачкалинский - Седой скрипач
-04. Каре Андрей - Сними наручники, конвой!(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8F48565FA32B2379E61CCE6A74F1E36AE8207F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008372   (815933) от 18.04.2016
-
-Александр Торчилин - Белый снег - Любимых никогда не выбирают (2005) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В эту ночь
-2. Белый снег
-3. Недавно это было
-4. Что ты делаешь со мной(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2B572333FC521ECCD522D9D0DF0A3A87191064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008380   (815930) от 18.04.2016
-
-Александр Торчилин - Военный альбом (2004) [MP3|320 кб/с] <Военная песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На сопках Маньчжурии
-02. Тучи над городом встали
-03. Последний бой
-04. Мишка-одессит(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28935FD51E43492D19091EBB537E5BCD395309CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008619   (815925) от 18.04.2016
-
-VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristiano Pomante Quartet - Maybe
-02. Guido Russo - Antigua
-03. Overflow - Sunny
-04. Frank Tayla - Tropez(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503924   (815860) от 21.10.2021
-
-VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W, Timmy Trumpet, R3hab - Distant Memory (2:30)
-02. Will Sparks - My Company (4:03)
-03. Virtual Riot, LeKtriQue, Leah Culver - Neon Angel (4:44)
-04. Vini Vici, Diego Miranda, Wuant - More Power (3:28)(   Читать дальше...   )Жанр: Club House, Dance, OtherПродолжительность: 05:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E2316A075FE8F16CD3B431DC239EE450D9A3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

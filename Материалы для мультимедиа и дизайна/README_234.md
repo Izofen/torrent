@@ -1,3 +1,29 @@
+###  Публикация: 561170   (406304) от 16.10.2012
+
+Digital Juice - Jump Backs SD 25: All Music (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Juice Jump Backs - это сборник включающий анимированные фоны различных тематик, которые являются идеальными для выделения текста и графики и могут быть использованы в любой программе видеомонтажа. Все клипы бесшовные, каждый примерно 15-30 секунд.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E3A77FD80B4FB9F422E684844A7041CC549BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562080   (405915) от 18.10.2012
 
 Digital Juice - Jump Backs SD 37: Simply Useful II (Full ISO)
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20F8ED73FFC804375BA1570510F69BDB238C5951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168834   (404927) от 25.09.2017
-
-Растровый клипарт - Festive Clipart #5 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничные объекты без фона. (198шт)Формат: PNGРазрешение файлов: 60х247-1367x3182
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC32E81141B2EBAE825DA6921C6BD16BAEEB828
 ```
 
 https://mybot314.ru/tekegram_catalog/

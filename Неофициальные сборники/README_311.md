@@ -1,3 +1,206 @@
+###  Публикация: 1229300   (628210) от 05.06.2018
+
+VA - German Top 50 Party Schlager Charts 04.06.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna-Maria Zimmermann - Scheiß egal
+02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
+03. Andreas Gabalier - Verdammt lang her
+04. Helene Fischer - Nur mit Dir(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BD6F9F7198E4A8D3D688232F72167BA75A3C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909094   (628192) от 17.06.2015
+
+VA - Шансон на лето 2 (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628192.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Геннадий Ура - Эх Босяцкая Ты Доля
+002. Алексей Иващенко - Никогда
+003. Сергей Бурштейн - Время
+004. Петр Гара И Анна Ричч - Верили(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0959811108C73323D5586A9E02165F1C7F5B457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035204   (628184) от 16.07.2016
+
+VA - Чартова дюжина: Итоги 2015 ("Наше радио" - результаты хит-парада) (2015) [MP3|320 Kbps] <Руский рок, поп-рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brainstorm - Эпоха
+02. ДДТ - Жизнь красивая
+03. Сплин - Танцуй !
+04. Ночные Снайперы - Этонемне(   Читать дальше...   )Жанр: Руский рок, поп-рокПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536C0B5A5968687281A423367CA941759B135A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035349   (628174) от 16.07.2016
+
+VA - Душевная музыка для дорожных приключений [Sound Clinic - Power Edition] (2016) [MP3|320 Kbps] <Rock, Metal, Indie, Blues, Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 12 Stones - Hey Love
+02. 3 Doors Down - Citizen Soldier
+03. 3OH!3 - Bad Guy
+04. 7Horse - Blackjack Moon(   Читать дальше...   )Жанр: Rock, Metal, Indie, Blues, JazzПродолжительность: 29:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3968338A28CB6EC4E5847A19B1B9CF9764F405D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294426   (628117) от 08.04.2019
+
+VA - When My Day Comes (2019) [MP3|320 Kbps] <Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kеnnу Wауnе Shерhеrd - Bаbу Gоt Gоnе
+02. Guу Vеrlindе - Hоw Hоw Hоw
+03. Mikе Zitо - Mississiррi Nights
+04. Pаrаdisе Kings - 69 Chеvу(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 05 :38 :50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB8005FFD336E9BE5E007520E51B7EA85E5837B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229234   (628068) от 05.06.2018
+
+VA - Super Sommer Hits (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628068.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD 1:
+01. Justin Timberlake - Say Something 4:39
+02. George Ezra - Paradise 3:42
+03. P!Nk - Whatever You Want 4:03(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5380E0514BB98B85BCBF9D93787BBE64F6D3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909063   (628046) от 17.06.2015
+
+VA - Лето в кайф. Часть 3 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628046.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lena - We Roam
+002. Децл - Шкаф
+003. Fritz Kalkbrenner - Heart Of The City
+004. Интонация - Прости(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5444EAFF421F5CD7E758139D3F018280A42A14EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035341   (627825) от 16.07.2016
 
 VA - Дискотека Казанова Старые Песни По Новому vol.7 (2016) [MP3|320 Kbps] <Club, Dance, Hands Up, Eurodance>
@@ -557,208 +760,6 @@ CD1. Light
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:513B28E8AD6E51C86072DEDE65CB4C8AE84C02AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035368   (626655) от 17.07.2016
-
-Second Breath - Unknown Bands Vol.10 (2016) [MP3|32 - 320 Kbps] <Alt.Metal, Alt.Rock, Modern Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10 Car Pile-Up - Streets Ahead
-02. Red Eye Rising - Never Again
-03. Tungsten Wake - Mind Your Time
-04. Death & Desire - The Let Down(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4C2D17432A894F077307DEF4D31BA7F13447DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035465   (626596) от 17.07.2016
-
-VA - Are You Ready? (Vol.23) (2016) [MP3|128 - 320 Kbps] <Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Of Mice And Men - Pain
-02 - Averse To The End - Bombs Away
-03 - Viletongue - Paynekiller
-04 - Red Queen - Asyphyx(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EBBBC6CA27B3F6162A6DB37538CAB85E084CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035511   (626594) от 17.07.2016
-
-VA - Дорожный шансон с любимой музыкой (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Золото - Диалог Любви
-002. Николай Озеров - Пацаны-Пацанчики
-003. Братва - Студентка
-004. Филипп Клибанов - Будь Нежной Со Мной(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D19FBE9F682C70EFC3F3B78CE98EC4FD4CA7AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035370   (626589) от 17.07.2016
-
-VA - German Top 100 Single Charts (25.07) (2016) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DNCE -  Cake By The Ocean 3:39
-002. Martin Solveig -  Do It Right (feat. Tkay Maidza) 3:33
-003. MO -  Final Song 3:56
-004. Zara Larsson & MNEK -  Never Forget You 3:33(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 05:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DCBF938EB40A373F3368EFB4B5B065898DDF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035676   (626587) от 17.07.2016
-
-VA - Endless Summer Compilation - Dance Hits (2016) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent vs. A-One - Disco Inferno (Dj Koss Mash Up)
-02. Alekseev - Drunk Sun (TDJ SIrena Remix)
-03. Alex Indigo - Fires (Dj Lykov remix)Жанр: DanceПродолжительность: 08:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF5AF028CBC347ECCD08467B99F7B611B9F76FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035350   (626578) от 17.07.2016
-
-VA - Non-Stop Party 2016 Summer Top 100 (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Dangerous Woman
-02. Drake feat. Rihanna - Too Good
-03. Twenty One Pilots - Stressed Out
-04. Nick Jonas feat. Tove Lo - Close(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECE6849E9FEA2A37880B955849A858C6C6C8A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035675   (626577) от 17.07.2016
-
-VA - Nu Disco Vol.4 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimij, Green George, Carrie Leotta - Hooked On You [06:24]
-02. Radio Killer - Headphones (Tavo Remix) [05:15]
-03. Andrey Exx, Diva Vocal, Troitski - Here Comes The Rain (Zerb Remix) [04:45]
-04. Discover. - Vogue (Mart Remix) [06:03](   Читать дальше...   )Жанр: Nu DiscoПродолжительность: 02:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4490EEFAB856C5D4B318BCCF1C6F9C7E856235
 ```
 
 https://mybot314.ru/tekegram_catalog/

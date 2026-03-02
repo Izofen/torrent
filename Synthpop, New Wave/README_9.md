@@ -1,3 +1,32 @@
+###  Публикация: 1580929   (328984) от 03.10.2022
+
+Macrocosm - First Mission (2002) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Universe
+02. Magic Miles
+03. Virtual Voltage
+04. Silent Warriors(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594A7FDB383BBA7CF80F6C067310ECB6BD8D9226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581410   (327290) от 05.10.2022
 
 Abbsynth - Starlines (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
@@ -714,35 +743,6 @@ W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59A60E426303E9A01BF177FA4D3FE7B6A730A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266733   (268384) от 04.12.2018
-
-W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinity (3:22)
-02. Tears (3:12)
-03. Can't Stop Falling in Love (3:14)
-04. Faster (2:48)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0DCA5696C4EDD6D8B50E49FBF344717B554F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

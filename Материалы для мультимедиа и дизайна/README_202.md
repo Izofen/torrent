@@ -1,3 +1,29 @@
+###  Публикация: 1052838   (527271) от 15.09.2016
+
+Экшены - MixArt Vol.1 - Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527271.jpg" />
+</div>
+
+
+###  Подробнее
+
+MixArt - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301B55CB53147EEB368ABF669D24EA7E662E1FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052841   (527263) от 15.09.2016
 
 Экшены - CreativeMarket - Sandblast Photoshop Action [ATN]
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02BBCAE15E8D18A261DE9C65A018E766A2A9A5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240757   (523586) от 13.08.2018
-
-3D модели - 3DExport - Volvo XC90 2017 - 197760 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Точная и подробная 3d модель (экстерьер и интерьер).Формат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90774C8A3BE623458366743D4B537CEFF8F970AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

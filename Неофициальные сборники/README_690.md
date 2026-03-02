@@ -1,3 +1,206 @@
+###  Публикация: 1818631   (2160) от 18.09.2025
+
+Keb' Mo' - Compilation (1980-2025) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junkyard Dog (& Taj Mahal) {Room On The Porch}2025
+02. More Than One Way Home {Just Like You}1996
+03. Put A Woman In Charge (& Rosanna Cash) {Oklahoma}2019
+04. Rainmaker {Rainmaker}1980(   Читать дальше...   )Жанр: BluesПродолжительность: 04:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE03F185D55680E426FC9DDB26B270571EB9C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818953   (2008) от 19.09.2025
+
+Xezzo - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chicago
+ 02 - Sometimes
+ 03 - Passion
+ 04 - Favorite(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899C118CA0E92EEAA7B21F9886256AC6E8B144E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818850   (2000) от 19.09.2025
+
+Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_2000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's Your Fault
+ 02 - More Than Words
+ 03 - Good Night My Darling
+ 04 - Endless Love(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F8CDE6E794897F0DC720E0DB097C7FA3342509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818876   (1974) от 19.09.2025
+
+Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco, Vocal, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neon Neural City
+ 02 - Library of Starlight
+ 03 - Neural Highways
+ 04 - Stellar Synapse(   Читать дальше...   )Жанр: Electronic, Vocal, Disco, Euro-Disco, Vocal, OtherПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6FFAEABD6E64CD0B74A10CA721F45A1FACC263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818888   (1973) от 19.09.2025
+
+Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Run
+ 02 - You Again
+ 03 - Love is Stronger
+ 04 - In the Rain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819054   (1806) от 20.09.2025
+
+Let Babylon Burn - Compilation Part 1 (2025) [MP3|320 Kbps] <Soul, Reggae>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dark Rose
+ 02 - All I Ever Loved I Loved Alone
+ 03 - River of Life
+ 04 - The Clown That Cried(   Читать дальше...   )Жанр: Soul, ReggaeПродолжительность: 02:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EFD8B56CE2328BB504EBFFF497229E47967D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819094   (1804) от 20.09.2025
+
+Xezzo - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Voyage
+ 02 - In the Morning
+ 03 - Look to the Sky
+ 04 - Night Rides(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A93A2AE8F6940E328D8DFFFD48B6F75A33D7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819015   (1645) от 21.09.2025
 
 VA - Tanzlokal-Musik - Premium Playlist (int) [a003] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
@@ -543,209 +746,6 @@ Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818887   (1182) от 24.09.2025
-
-VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #Mallorcadassindwir - Mallorca Das Sind Wir.mp3
-002. (Dis)Amore - Conta Su Di Me.mp3
-003. (G)I-Dle - Oh My God.mp3
-004. 1Tak - I Don't.mp3(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 25:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819647   (1174) от 24.09.2025
-
-Тимур Шаов - Premium Playlist (1997-2019) [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «Товарищи ученые» 30 лет спустя (Минск, 2005).mp3
-02. Sex в носках (При чём тут Фрейд, 2017).mp3
-03. Аполитичная песня (Любовное чтиво, 1997).mp3
-04. Аутотренинг (О чём молчал Герасим, 2010).mp3(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 07:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B4B5FDB30C6DAEAA18B1CA4127C41A78DF9D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819584   (1170) от 24.09.2025
-
-Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
-002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
-003. Another Way (Instrumental) {Another Way, 1988}.mp3
-004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819676   (1163) от 24.09.2025
-
-VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aelyn - Believe In Us (Radio mix).mp3
-002. Aelyn - Hypnosis.mp3
-003. Aerobatics & Cotry - Intuition (Feat. Cotry) (Original Mix).mp3
-004. Aeron Aether & Bobalino - Titans  feat. Jay Furze (Album Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D34D6CCBACC5131F4A8C9ACC52A91CAF2E4EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819642   (1157) от 24.09.2025
-
-Зоя Ященко и Белая Гвардия - Premium Playlist (1993-2020) [MP3|320 Kbps] <Sentimental Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1157.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А в лесу сосновом... (Когда ты вернёшься, 2002).mp3
-002. Абсолютная ночь (Другие острова, 2001).mp3
-003. Айседора Дункан (Так восходит луна, 2013).mp3
-004. Алый парус (Кукла в кармане, 2005).mp3(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 08:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0EE3E96B703B2C04FC7D1176EEF13506E7E26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819726   (1153) от 24.09.2025
-
-VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cairo Steps - Desert Road (Wahbas Moonlight Remix) {Buddha-Bar - 20, 2018}.mp3
-02. Calavera & Manya - Mir {Buddha-Bar_ Straight to the Heart, 2024}.mp3
-03. Calavera & Manya feat. Maja Aleksic - Seta (Original Mix) {Buddha-Bar Clubbing • In Deep Session, 2017}.mp3
-04. Calm - Space Is My Place (Mark Barrott's Re-Imagination to the Sacred Heart Center) {Buddha-Bar (   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 05:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE3AF614F56232047D85E500F4286204E27C4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819576   (1139) от 24.09.2025
-
-Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock, Baroque Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterlife.mp3
-02. Age of Anxiety I.mp3
-03. Age of Anxiety II (Rabbit Hole).mp3
-04. Awful Sound (Oh Eurydice).mp3(   Читать дальше...   )Жанр: Indie Rock, Art Rock, Baroque PopПродолжительность: 03:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

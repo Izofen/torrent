@@ -1,3 +1,117 @@
+###  Публикация: 955193   (335009) от 10.11.2015
+
+Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная французская поп-певица Милен Фармер и легендарный британский рок-музыкант Стинг представили новую совместную запись под названием "Stolen Car". Оригинал композиции был выпущен ещё в 2003 году на седьмом сольном студийном диске Стинга "Sacred Love". Тогда треку удалось добраться до 60-й строчки британского песенного чарта.01. Stolen Car (Version Single)
+02. Stolen Car (Version Instrumentale)Жанр: PopПродолжительность: 00:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134F1C880EA91E8E5ED9ED4D4F32823CBFDA0881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420075   (333770) от 31.10.2020
+
+Roxette - Bag Of Trix Vol. 1 (Music From The Roxette Vaults) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help! (Abbey Road Sessions November 15, 1995) (2:54)
+ 02. Listen To Your Heart (Abbey Road Sessions November 15, 1995) (3:34)
+ 03. Let Your Heart Dance With Me (3:07)
+ 04. Waiting For The Rain (Studio Vinden Demo 1997) (3:33)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0EA0F33A3DA3CD05CC14CBCD774E2BAD7D3291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420114   (333768) от 31.10.2020
+
+Amy Macdonald - The Human Demands (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire [00:04:15]
+02. Statues [00:03:46]
+03. Crazy Shade of Blue [00:04:13]
+04. The Hudson [00:04:59](   Читать дальше...   )Жанр: Pop, Alternative RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B04870157A44C95A23D940CFB2960B7F15278C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955386   (333603) от 11.11.2015
+
+VA - BRAVO Dance 2015 (2015) [FLAC|tracks|WEB-DL]<Top 40, Pop, Electronic, Dance, House, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. Jasmine Thompson - Ain't Nobody (Loves Me Better) (4:01)
+02. Lost Frequencies feat. Janieck Devy - Reality (2:38)
+03. Omi - Cheerleader (Felix Jaehn Remix / Radio Edit) (3:02)
+04. Kygo feat. Parson James - Stole The Show (3:42)(   Читать дальше...   )Жанр: Top 40, Pop, Electronic, Dance, House, Euro House, Deep House, Electro, SynthpopПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89294FD2C9A0C5667DC5AE1FAEF37E78B55BBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954017   (333473) от 11.11.2015
 
 Mylene Farmer - Interstellaires (2015) [APE|Image+cue]<Pop>
@@ -626,122 +740,6 @@ Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957440   (326522) от 18.11.2015
-
-Justin Bieber - Purpose (2015) Deluxe Edition [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark My Words (2:14)
-02. I’ll Show You (3:20)
-03. What Do You Mean? (3:26)
-04. Sorry (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CA300464E492E1C772D517977738B2E41AC69C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581997   (325321) от 07.10.2022
-
-VA - Top Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Glass Animals - Heat Waves (3:58)
-002. Justin Bieber - Ghost (2:33)
-003. Olivia Rodrigo - good 4 u (2:58)
-004. Elton John, Dua Lipa - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE4543506DF0116922017D842CCCC7A1CD6BAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958157   (324714) от 20.11.2015
-
-Adele - 25 (2015) [FLAC|Tracks+cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Send My Love (To Your New Lover)
-03. I Miss You
-04. When We Were Young(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7C36D8FF9D268A72AF189F309F24D774689121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958345   (323524) от 21.11.2015
-
-Adele - 25 (2015) Target Exclusive Deluxe Edition [FLAC|tracks+cue]<Indie Pop, Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
- 02. Send My Love (To Your New Lover)
- 03. I Miss You
- 04. When We Were Young(   Читать дальше...   )Жанр: Indie Pop, Neo Soul, Vocal JazzПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4032EB5A43EFD72AD828D1614BC4591A599A84B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

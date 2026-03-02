@@ -1,32 +1,3 @@
-###  Публикация: 1476741   (1011279) от 13.06.2021
-
-Joe Bonamassa - Now Serving: Royal Tea Live From The Ryman (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When One Door Opens
-02. Royal Tea
-03. High Class Girl
-04. Lookout Man!(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42B46D949F62972306B93EBCF853926B15900E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477211   (1011124) от 14.06.2021
 
 Ella Fitzgerald - Seven Classic Albums (1959 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -745,6 +716,35 @@ Veronique Gayot - Animal (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0A026C009E21E4A2235E95C4FF1531ABCC3507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479521   (1009525) от 24.06.2021
+
+No Possession - Third Time's a Charm (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights Out (3:56)
+02. Find My Way Home (3:39)
+03. Dark Eyes (3:50)
+04. Retold 'n' Recycled (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449ED6D6B5E3D82D295BF0D5109A0421B98186C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 353519   (999876) от 04.01.2013
-
-Ocean Media - 8 albums (2002-2009) [MP3|320 kbps]<Ethnic, New age, Mantras>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(15:17) 1. Kuan people filled with grace
-(14:19) 2. Kuan Yin of the South Mountain
-(14:59) 3. Chapter alike praise of Xiamen
-(15:41) 4. Sedhrnrnam Creek up the key at the formulaЖанр: Ethnic, New age, MantrasПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9A8FD30822D4A1A3747AF3168B192E8446B1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599274   (999327) от 06.01.2013
 
 VA - Livin'G. Phleng Sawan Ban Na. Mon Spa Luk Thung (3CD) (2009) [MP3|320 кб/с]<New age, Instrumental, Relax, Sounds of nature>
@@ -62,40 +33,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599643   (998818) от 08.01.2013
-
-Teng Ge Er(Tengger) - 6 albums (1997-2010) [FLAC|Lossless]<Traditional,Mongolian>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.云中的月亮
-02.我不想说再见
-03.一个人走在旷野
-04.爱像雪花
-05.父亲和我
-06.蒙古马
-07.月亮挂在天
-08.爱你永远
-09.蒙古这一代Жанр: Traditional,MongolianПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598132   (998806) от 08.01.2013
 
 VA - Tenor Ga Tsuzuru Kayokyoku (2007) [MP3|320 кб/с]<JPop Instrumental, Easy Listening>
@@ -124,41 +61,6 @@ VA - Tenor Ga Tsuzuru Kayokyoku (2007) [MP3|320 кб/с]<JPop Instrumental, Easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:717B04F515354A91308D7521FEB0E19A5E1FDBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601037   (998299) от 10.01.2013
-
-Tu Hong Gang - 2 albums (1998-1999) [FLAC|Lossless]<Chinese,pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 精忠报国
-02. 世间男人
-03. 守太平
-04. 孔雀东南飞
-05. 藏龙卧虎
-06. 中国功夫
-07. 爱人
-08. 江山无限
-09. 霸王别姬
-10. 爸爸(   Читать дальше...   )Жанр: Chinese,popПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,41 +329,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 431728   (991537) от 05.01.2012
-
-Masaji Watanabe - Piano Garden (2000) [MP3|320 kbps]<New Age, Piano>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight Filtering Down Through The Trees (5:03)
-02. Fantasia (3:22)
-03. Romance (3:59)
-04. Lavender (2:27)
-05. Nocturne (6:18)
-06. Windmill (4:40)
-07. Crescent (7:17)
-08. Morning Dew (7:42)
-09. Fallen Leaves (6:45)
-10. Tears (4:39)(   Читать дальше...   )2000Жанр: New Age, PianoПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07243FC275AB182AD7E6F3EECBCC4AFFB8EC1E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589297   (990072) от 29.01.2013
 
 Wu Qian - 2 albums  (2011-2012) [MP3|320 кб/с]<Instrumental, Ethnic>
@@ -516,111 +383,6 @@ SinglesЖанр: J-Pop, Metal, J-RockПродолжительность: 00:18:0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEF534458CFF1F8DBC279B7C2E7F51EAAE137DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432763   (988885) от 08.01.2012
-
-101A - 5 альбомов (2003-2011) [MP3|128-320 kbps]<indie/post-rock/experimental>
-
->>East Asian Music
->>Asian Rock, Metal
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-101А - это нечто. Абсолютно прозрачный и невесомый вокал, тяжелые гитарные проигрыши и электронный бепредел - этакая сборная солянка, собранная в японском коллективе из трех человек.
-
-Они могут быть и панками, и спокойными шугейзерами, могут шептать, а могут кричать; либо группа еще не нашла себя, либо же эксперименты с музыкой и есть конечная цель.
-Потому если вам нравятся группы с постоянно меняющимся направлением в звучании - эта команда придется вам по душе, так как изменения на качестве материала, слава богу, сказались исключительно хорошо.
-
-Каждый найдет в этой музыке что-то для себя, свою особую вселенную со своей собственной мелодией жизни.
-Нестандартные ребята делают нестандартную музыку, достойную внимания =)01. Luminous (03:35)
-02. Otogi (05:30)
-03. Ghost (07:17)
-04. (05:18)
-05. Lost Way (02:46)
-06. Moon (04:36)
-07. feat. Yutaka Aoki (07:05)
-08. 5334 (08:23)
-09. Go (02:10)2003-2011Жанр: indie/post-rock/experimentalПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F8419ABC445A5BEC8FCB3810B414A7636BD596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431718   (987868) от 09.01.2012
-
-Lee Ji Soo - Love Poem (2006) [MP3|320 kbps]<Neo-classical, New Age, Piano>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Love Poem (재하, 은영 테마)
-2.Flying Petals
-3.Nocturne For Clementine
-4.꿈속에서
-5.Love Poem
-6.꿈속에서 (Piano Solo)
-7. Flying Petals ((Piano Duet) 재하, 필립 듀엣)2006Жанр: Neo-classical, New Age, PianoПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0DC29E092A850F322F8A160F8A8DC4F3FE2713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434195   (986684) от 10.01.2012
-
-Zhang Wei-Liang - Tea Drops (2001) [MP3|320 kbps]<Chinese New Age>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Moon Falling to West Lake
-2.Rain and Tea
-3.Listen to the Spring
-4.Tea Beauties
-5.Temple Dream
-6.Green Fragrance
-7.Waves of Willows
-8.Rain TalkingЖанр: Chinese New AgeПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE20681D0F985E0F9E545C845635F7B9CCC714E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,41 +445,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 434789   (983865) от 12.01.2012
-
-Red Rain - 3 albums (2004-2007) [FLAC|Lossless]<Korean,lounge,chanson,ballad>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.		고별	레드레인(Redrain)
-2.		그사람 이름은 잊었지만	레드레인(Redrain)
-3.		나는 너를	레드레인(Redrain)
-4.		개여울   (작사:김소월 작곡:이희목) 	레드레인(Redrain)
-5.		가을 편지	레드레인(Redrain)
-6.		여고 시절	레드레인(Redrain)
-7.		사랑이야	레드레인(Redrain)
-8.		사랑의 진실	레드레인(Redrain)
-9.		꿈을 꾼 후에	레드레인(Redrain)
-10.		임진강	레드레인(Redrain)(   Читать дальше...   )2004-2007Жанр: Korean,lounge,chanson,balladПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611674   (983729) от 03.02.2013
 
 Utsu-P - 4 Albums (2009-2012) Discography [MP3|320 кб/с]<Jrock, Vocaloid, Nu metal>
@@ -746,40 +473,6 @@ Utsu-P - 4 Albums (2009-2012) Discography [MP3|320 кб/с]<Jrock, Vocaloid, Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE1C6993959CD45A76E0B16C19A1F0F16D1E2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741501   (981909) от 04.01.2014
-
-Strawberry Path - When The Raven Has Come To The Earth (1971) Remastered 2007 [APE|Lossless]<Hard Rock/Psychedelic/Prog Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  I Gotta See My Gypsy Woman  (4:57)
-02.  Woman Called Yellow ''Z''  (5:32)
-03.  The Second Fate  (4:29)
-04.  Five More Pennies  (6:26)
-05.  Maximum Speed of Muji Bird  (0:48)
-06.  Leave Me Woman  (4:22)
-07.  Mary Jane on My Mind  (4:51)
-08.  Spherical Illusion  (5:34)
-09.  When the Raven has Come to Earth  (6:19)Жанр: Hard Rock/Psychedelic/Prog RockПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6588BAED6FA718DAB2D86ED43A7647EB733DB00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -822,25 +515,291 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 364782   (977658) от 17.01.2012
+###  Публикация: 616825   (968601) от 15.02.2013
 
-U-KISS - 7 albums (2008-2011) [FLAC|Lossless]<KPop, Electropop, Dance>
+Mechanical Teddy - Mecharopolis (2010) [MP3|320 кб/с]<Melodic Death Metal\Metalcore\Electronic>
 
 >>East Asian Music
->>Asian Pop (Lossless)
+>>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2008-2011Жанр: KPop, Electropop, DanceПродолжительность: 00:47:34
+1. Silence Breaker (04:42)
+2. Still Fly (04:11)
+3. Waver Mind (04:08)
+4. Pictures smile (04:33)
+5. Falling flower (04:41)
+6. Myself is in Dark (04:12)
+7. In the last stage (03:44)
+8. Unlimited space (04:25)
+9. Existence of Shadow (Studio Live ver) (04:40)
+10. At the Time of the Lie (Studio Live ver) (04:06)(   Читать дальше...   )Жанр: Melodic Death Metal\Metalcore\ElectronicПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F1698424D8D61EF7F319E50FBBE638F066E897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618336   (966271) от 17.02.2013
+
+Hiroyuki Oda - Discography (2006-2012) [MP3|320 кб/с]<Trance>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:07:41
+01.		 Transmigration (2011 Mix) 	7:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F2608639E2C4643F5B17B8D6AD1FABF1BC7422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977497   (965418) от 21.01.2016
+
+Matenrou Opera - ChiKyu (2016) [MP3|320 кб/с] <Symphonic Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandora
+02. Burning Soul
+03. Chimeishou
+04. You & I(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9443ADB67835F3547603DD35C3BC0478543003A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621285   (962690) от 20.02.2013
+
+Matsushita Yuya - 2 альбома, 16 синглов (2008-2012) [MP3|320 кб/с]<J-Pop, J-R&B>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962690.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5D30B68D53322F1AD00C926A897E2918D115C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 170432   (962471) от 28.01.2010
+
+Joe Hisaishi - Another Piano Stories (2009) [MP3|320 kbps]<Instrumental>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Woman
+2. Four Gods (Love Theme of Taewangsashingi)
+3. Les Aventuriers
+4. Good gift (Prologue~Theme)
+5. Good gift (Prayer)
+6. Good gift (Theme of Departures)
+7. Ponyo on the Cliff by the Sea
+8. Turandot - Destiny of Us (from Musical Turandot)
+9. The End of the World - I.Collapse
+10. The End of the World - II.Grace of the St.Paul(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:35
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621273   (961305) от 21.02.2013
+
+Lia - 6 альбомов, 4 Best Albums, 10 компиляций, 2 Live Albums, 4 Remix Albums, 17 синглов (2001-2012) [MP3|192-320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961305.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-PopПродолжительность: 00:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E888AAB3AC3DFBBFB53B990E76F8BDBBF0FFC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621223   (958804) от 23.02.2013
+
+the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
+
+>>East Asian Music
+>>Asian Rock, Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JRockПродолжительность: 00:13:29
+01. I Just Can't Breathe... [05:09]
+ 02. It Really Makes My Day! [03:57]
+ 03. Tsumetai Hana -Acoustic Version- [04:23]
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66C2DB99B1879A7DA52041D21F322D694C51C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981348   (952511) от 31.01.2016
+
+Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Relax>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шикарный оркестровый инструментал с соло на китайском народном музыкальном струнном инструменте - Niko!1. Planet
+2. shizuku
+3. 水月
+4. 星の祭(   Читать дальше...   )Жанр: Instrumental Folk, New Age, RelaxПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C14923D31901B2787CFB4E87F742E20D66A5E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362565   (947840) от 24.02.2020
+
+BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro : Persona (02:51)
+02. Boy With Luv (feat. Halsey) (03:49)
+03. Make It Right (03:46)
+04. Jamais Vu (03:47)(   Читать дальше...   )Жанр: K-pop, Pop RapПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15DA5F5356EEED53E672C4E439C74B2BE2529C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983729   (939712) от 08.02.2016
+
+4minute - Дискография (2010-2015) [FLAC|Lossless|tracks + .cue] <KPop, JPop, Electropop, Dance, R&B, Hip-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939712.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:14] Lee Hyori - Bring It Back (feat. Bekah, Jiyoon)
+[03:19] Navi - Nunmuldo Akkawo (feat. Hyun A from 4minute)Жанр: KPop, JPop, Electropop, Dance, R&B, Hip-PopПродолжительность: 02:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA964F83F9308D6C6017A92E224BA5838A8647FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

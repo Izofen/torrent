@@ -1,48 +1,22 @@
-###  Публикация: 1208654   (779698) от 23.02.2018
+###  Публикация: 1208216   (780009) от 21.02.2018
 
-Болот Омурзаков | Как сделать ремонт без чужих рук (2018) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779698.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете понятные и подробные мастер-классы абсолютно по всем видам работ, которые необходимы во время большого ремонта или для поддержания своего дома в чистоте и комфорте. Каждая глава содержит пошаговые рекомендации и советы профессионалов по циклу ремонтных и отделочных работ потолка, стен, пола, окон, дверей, лестниц. Вы научитесь самостоятельно (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B535ED43495E2C7D280A326D84B741DDE1D83F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208696   (779697) от 23.02.2018
-
-Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
+Bus Driver Simulator 2018 (2018) [Ru/Multi] (1.3) Repack Other s
 
 >>След.
->>Action (FPS)
+>>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779697.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие триллера Alien: Isolation разворачивается спустя пятнадцать лет после событий оригинальной кинокартины Ридли Скотта «Чужой». И теперь уже дочери Эллен Рипли, Аманде, предстоит столкнуться с ужасом из космических глубин в попытке выяснить всю правду об исчезновении матери. В роли Аманды вы повстречаетесь с ослепленными паникой, доведенными до крайней степени (   Читать дальше...   )Тип издания: RepackРазработчик: The Creative Assembly, Feral InteractiveЖанр: Action (Survival horror), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Попробуйте себя в роли водителя пассажирского автобуса! Совершите рейсы по городу, чётко следуя расписанию. В некоторых сценариях вам нужно поторапливаться, в других же можно расслабиться.Тип издания: RepackРазработчик: KishMish GamesЖанр: Simulator, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAAA0DD627EF731A0F543808A78460A82D2D0D74
+magnet:?xt=urn:btih:C1A4B37E960E7739AA5A0CCD20B2DECF3A99FA05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208478   (779696) от 23.02.2018
+###  Публикация: 1208319   (780008) от 21.02.2018
 
-uTorrent Pro 3.5.3  Build 44358  Stable RePack (& Portable) by D!akov  [Multi/Ru]
+Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Multi] (1.0) Repack xatab
 
->>3
->>4
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779696.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Final Fantasy XII The Zodiac Age – HD-переиздание оригинальной Final Fantasy XII, вышедшей в 2006 году на консоли Playstation 2. Римейк базируется на Zodiac Job System из международной версии оригинальной игры, но кроме этого, полностью адаптированная версия для ПК, порадует вас похорошевшими моделями персонажей (как в игре, так и в роликах)Тип издания: RepackРазработчик: Square EnixЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Испанский и другиеЯзык интерфейса: Английский, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74AC770F3DD24FFF438960E7A4AFA1E7BE74BFDC
+magnet:?xt=urn:btih:ED99F16D6A0C7BBBCFAF24EDE62F4831B3196623
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,51 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208567   (779695) от 23.02.2018
+###  Публикация: 1208265   (780007) от 21.02.2018
 
-Смерть Сталина / The Death of Stalin (2017) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталин умер. Все прогрессивное человечество переживает глубочайшую скорбь, вызванную кончиной гениального вождя трудящихся всего мира. Перестало биться сердце того, чьи мысли и заботы охватывали весь мир, кто вдохновлял угнетенные империалистами народы на освободительную борьбу, кто нес им помощь и надежду в этой справедливой борьбе. В эти тяжелые для каждого свободолюбивого (   Читать дальше...   )Производство: Франция, Великобритания / Free Range Films, Main Journey, Quad Productions, Title MediaЖанр: КомедияРежиссер: Армандо ИаннуччиАктеры: Ольга Куриленко, Андреа Райзборо, Руперт Френд, Джейсон Айзекс, Стив Бушеми, Джеффри Тэмбор, Ричард Брэйк, Пэдди Консидайн, Майкл Пэйлин, Джонатан АрисПеревод: Любительский (двухголосый закадровый) Студия "Колобок"Субтитры: АнглийскиеПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D138833A73D2F9CBA612F83A02F64B5112C7623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208841   (779694) от 23.02.2018
-
-Тор: Рагнарёк / Thor: Ragnarok (2017) Blu-ray [H.264/1080p] [Custom]
+День сурка / Groundhog Day (1993) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779694.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Дублированный (iTunes)Субтитры: Английские, Французские, Испанские, Русские (Full-length, SDH, Forced iTunes)Продолжительность: 02:10:30
+Телевизионный комментатор Фил Коннорс каждый год приезжает в маленький городок в штате Пенсильвания на празднование Дня сурка. Но на этот раз веселье рискует зайти слишком далеко. Время сыграло с ним злую шутку: оно взяло да и остановилось.
+Теперь на календаре Фила чернеет одна и та же дата — 2 февраля, из которой он никак не может выбраться. Неунывающий ведущий (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: фэнтези, мелодрама, комедияРежиссер: Харольд РэмисАктеры: Билл Мюррей, Энди МакДауэлл, Крис Эллиотт, Стивен Тоболовски, Брайан Дойл-Мюррей, Марита Герати, Анджела Пэтон, Рик Дукомман, Рик Овертон, Робин Дьюк и др.Перевод: Профессиональный (многоголосый, закадровый) (Лицензия Groundhog Day 4K Blu-ray, ОРТ, РТР), Профессиональный (двухголосый, закадровый) (РЕН ТВ), Дублированный (Ленфильм), Авторский (одноголосый, закадровый) (Андрей Гаврилов, Сергей Визгунов, Matros CDV, Юрий Живов, Максим Ошурков)Субтитры: Русские, английскиеПродолжительность: 01:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7079848CC8A1A66E65E3895125558218C4D913EB
+magnet:?xt=urn:btih:CE8F5DF0329AF0328C00E0DE8F1D5B36E6A67A70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208582   (779693) от 23.02.2018
+###  Публикация: 1208183   (780006) от 21.02.2018
 
-Портал / The Gateway (2018) WEB-DL [H.264/1080p-LQ] [MVO]
+Квадрат / The Square (2017) HDTVRip [H.264]
 
->>3
->>След.
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779693.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Существует гипотеза, согласно которой в мире имеются параллельные вселенные. Некоторые из них - такие же, как наша. Двое ученых пытаются найти портал, ведущий в другой мир. В итоге им это удается. В параллельном мире живут их двойники, но с ними происходят другие события, которые доказывают, что телепортация ни к чему хорошему не приводит.Производство: Австралия / Filmscope EntertainmentЖанр: ФантастикаРежиссер: Джон В. СотоАктеры: Жаклин МакКензи, Майлс Поллард, Шеннон Берри, Хейли МакЭлхинни, Бен Мортли, Трой Кауорд, Адам Ти Перкинс, Джаг Панну, Джон МакФерсонПеревод: Любительский (многоголосый закадровый) HDrezka StudioСубтитры: АнглийскиеПродолжительность: 01:30:23
+«Квадрат» - новый экспонат шведской галереи, призванный вызывать у горожан приступы любви и альтруизма. По крайней мере, так задумал куратор Кристиан с внешностью и сладкой жизнью Марчелло Мастрояни: коллеги, арт-тусовка, девушки - все от него без ума.Производство: Швеция, Германия, Франция, Дания / arte France Cinéma, Coproduction Office, Det Danske FilminstitutЖанр: Драма, комедияРежиссер: Рубен ЭстлундАктеры: Клас Банг, Элизабет Мосс, Доминик Уэст, Терри Нотари, Кристофер Лессо, Софи Хэмилтон ...Перевод: Профессиональный многоголосый (студия "Мельница")Субтитры: ОтсутствуютПродолжительность: 02:25:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3CDE5E6EB51DF227A76CB018A9E74039CB5C3AF
+magnet:?xt=urn:btih:C3762B87216FFC319FB510611BBCC3E70C5BC09B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208589   (779692) от 23.02.2018
+###  Публикация: 1088255   (780005) от 21.02.2018
 
-Debian 9 Xfce Custom v2 2018.02.19 [amd64] 1xDVD
+Zombasite (2016) [En] (1.021/dlc) License GOG
 
->>3
->>11
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779692.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1) Сборка "толстая", т.е. означает подборку программ "на все случаи жизни"
-2) Уникальные измененные программы и "перепаки"
-3) Огромный набор утилит и инструментов для конфигурирования системы
-4) Отличная русская локализация(   Читать дальше...   )Язык интерфейса: Мультиязычный (русский присутствует)
+Zombasite - постапокалиптический экшен-рпг с зомби, действие которого происходит в динамичном, развивающимся фэнтези мире. Станьте лидером группы пытающихся выжить во время нашествия зомби, созданных тёмными эльфами. Легче сказать, чем сделать. Ваш отряд мал и потеря даже одного участника существенна. Эпидемия зомби очень заразная и мертвые быстро захватывают окрестные (   Читать дальше...   )Тип издания: LicenseРазработчик: Soldak EntertainmentЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C22B42C48908475FEA568AC43B392C50B4C8D317
+magnet:?xt=urn:btih:0F9473E07B0EA42C26130D17F467909EE105F1B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132243   (779691) от 23.02.2018
+###  Публикация: 1199329   (780004) от 21.02.2018
 
-Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/Multi] (1.8/dlc) Repack xatab [Season Pass Edition]
+Электрические сны Филипа К. Дика / Philip K. Dick's Electric Dream (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) Amedia
 
->>3
->>4
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779691.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом новейшем военном шутере вы отправитесь в тыл врага. Вы станете американским снайпером, заброшенным в Грузию вблизи границы с Россией. Вы сами сможете выбирать способы выполнения заданий в открытом мире, который не прощает ошибок. Отправляйтесь во вражеский тыл и расширьте возможности Sniper Ghost Warrior 3 вместе с сезонным пропуском.Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+Сериал основан на произведениях культового фантаста Филипа К. Дика. Каждая серия посвящена одному рассказу писателя: «Автофабрика», «Унылый незнакомец», «Проездной билет» и др.Производство: США, Великобритания / Channel 4, Sony Pictures TelevisionЖанр: фантастикаРежиссер: Дэвид Фарр, Франческа Грегорини, Том ХарперАктеры: Брайан Крэнстон, Стив Бушеми, Вера Фармига, Мирей Инос, Грег Киннир, Тимоти Сполл, Бенедикт Вонг, Холлидей Грейнджер, Ричард Мэдден, Лара Пулвер и др.Перевод: Многоголосый закадровый, профессиональный - AmediaСубтитры: русские, английские (полные, SDH)Продолжительность: ~00:52:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AF837BB701EDEC9E93389C97A1207CE4437347B
+magnet:?xt=urn:btih:07B1EAB17679002E139D484E09DD41E8E46D49C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,28 +155,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208928   (779690) от 24.02.2018
+###  Публикация: 1207916   (780003) от 21.02.2018
 
-Teddy Hill And His Orchestra - 1935 - 1937 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.1884 (Updated Feb 2018) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDEE56C058C9BF7626C9AF0D1D27C67DC9E5092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208460   (780002) от 22.02.2018
+
+Louisiana Rhythm Kings - 1929 - 1930 (2003) Classics [FLAC|Lossless|image + .cue] <Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779690.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lookie, Lookie, Lookie Here Comes Cookie [02:57]
-02. Got Me Doin' Things [02:50]
-03. When The Robin Sings His Song Again [02:51]
-04. When Love Knocks At Your Heart [03:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:03
+01. Futuristic Rhythm [03:01]
+02. Out Where The Blues Began [03:02]
+03. That's A Plenty [02:49]
+04. Ballin' The Jack [03:15](   Читать дальше...   )Жанр: SwingПродолжительность: 01:09:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A65064895618FE010AA4A7F3770FC238A544B229
+magnet:?xt=urn:btih:A68D697687874BD1FEC1B8F1913E3E9B0A121673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,251 +210,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208922   (779689) от 24.02.2018
+###  Публикация: 1208151   (780001) от 22.02.2018
 
-Mel Torme - Night At The Concord Pavilion (1990) 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing For Your Supper [05:03]
-02. You Make Me Feel So Young [03:57]
-03. Early Autumn [04:33]
-04. Guys And Dolls Medley [08:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED11A03C5CA27B7BC0995AAF7EAA687431BE2DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208817   (779688) от 24.02.2018
-
-VA - The Sounds Of The Underground 11 (Compiled and Mixed by Deeper82) (2018) [MP3|320 Kbps] <Progressive House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorgio Kioris - Linda (Ziger Remix)
-02. Anthony G - I Can Show You (Oscar Vazquez Remix)
-03. Dom Kane - Compound (Original Mix)
-04. Graumann - The Ants (Extended Mix)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D70166F45A0551380C1BB3E7BEE90AD83491FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208799   (779687) от 24.02.2018
-
-Николай Елин | Санька-рекордсмен (1976) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые и немножко грустные истории из жизни Сани Кручинина, мечтателя и фантазера.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F334E8E23CC7F521CBE8D1BA9CB013B8E15728BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208147   (779686) от 24.02.2018
-
-С.А. Малахов | Против троцкизма и меньшевизма в литературоведении (1932) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779686.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период развернутого социалистического наступления пролетариата и обостренной классовой борьбы выступления тов. Сталина помогли партии своевременно организовать отпор враждебной пролетариату идеологии и гнилому либерализму по отношению к ней. Так на основе выступления тов. Сталина на конференции аграрников-марксистов, на основе ленинского принципа, увязывания теории (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5410F0F1ED4AB444E651FFA634B17F7EFCAB0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208860   (779685) от 24.02.2018
-
-VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <Progressive, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marsh - Face To Face (Airdraw Intro Remix)
-002. Sunlight Project - Tierra Del Fuego (Original Mix)
-003. Zoo Brazil - From A Distance (feat. Wolf & Moon)
-004. Freedome - I Feel You (ReWorked Radio Edit)(   Читать дальше...   )Жанр: Progressive, Tech HouseПродолжительность: 10:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CFEE8E91C158F8D8126B37063815852A1EDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209058   (779684) от 24.02.2018
-
-VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake – God’s Plan 3:19
-02. Rudimental – These Days (Feat. Jess Glynne, Macklemore & Dan Caplen) 3:31
-03. Dua Lipa – Idgaf 3:38
-04. Portugal. The Man – Feel It Still 2:43(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220FF452A8450D219384E9E9D0D9669DE6EFD535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208138   (779683) от 24.02.2018
-
-Л.А. Леонтьев | Ленинская теория империализма (1969) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленинская теория империализма составляет одно из центральных достижений ленинского этапа в развитии марксизма в целом, марксистской экономической науки в частности. Эта теория дает ключ к пониманию глубины противоречий капитализма на последней его стадии и раскрывает содержание тех коварных приемов, с помощью которых господствующий класс стремится сохранить и продлить (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C0825230B987D067C1E840997B8A4AD1E9551A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208927   (779682) от 24.02.2018
-
-VA - Swing Trumpet Kings: Harry Edison, Buck Clayton, Red Allen, Roy Eldridge (1956, 1958, 1960) 2CD, 1996, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779682.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Harry Edison, Buck Clayton, Red Allen:
-01. Memories for the Count [08:53]
-02. Come With Me [05:54]
-03. Critics' Delight [06:51](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, New Orleans JazzПродолжительность: 02:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B6507B9EDB328447A2AF37A0054C2633E96A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208943   (779681) от 24.02.2018
-
-John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
+Funeral Winds - Koude Haat (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Passing Through
-2. Hello L.A., Bye Bye Birmingham
-3. Oobleedooblee Jubilee
-4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
+01 - When The Funeral Winds Cry For Revenge
+02 - Soul Harvest
+03 - Koude Haat
+04 - Carnage In The Temple Of Jeruzalem(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
+magnet:?xt=urn:btih:5B4B4DBD40EBC3206ED1CB12E0A3EDA12855462D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +239,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208883   (779680) от 24.02.2018
+###  Публикация: 1208128   (780000) от 22.02.2018
 
-VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+Thornesbreed - The Splendour Of The Repellent (2003) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchaining hatred
+02. Wandring through the ashes of thine
+03. Ruthlessly ordaind to S.H.I.V.E.R.
+04. Strenght increaseth(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33665A72738645F119DD451ED0AD605E6EADE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208442   (779999) от 22.02.2018
+
+Harold Vick - Steppin' Out! (1963) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Miss Brooks [07:30]
+02. Trimmed In Blue [06:13]
+03. Laura [04:42]
+04. Dotty's Dream [06:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC02A82CE2D5145BE005BFB8DEC7934CCBEB22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208437   (779998) от 22.02.2018
+
+Bob Brookmeyer And Friends (1964) 2017, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jive Hoot [04:44]
+02. Misty [05:19]
+03. The Wrinkle [05:22]
+04. Bracket [05:00](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262DA02C7667093CCBABCBD9EE64485E4AED14C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208401   (779997) от 22.02.2018
+
+In-Existence - Moonwater (1993) Apollo [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Electro, Techno Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Mood (07:05)
+02. Space Indian (06:54)
+03. Klewang (03:19)
+04. Eternal Lover (15:18)(   Читать дальше...   )Жанр: IDM, Ambient, Electro, Techno AmbientПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD472404D57508778DFD3468C759D358B2997FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208369   (779996) от 22.02.2018
+
+VA - Erased Tapes Collection III (2011) [FLAC|Lossless|WEB-DL|tracks] <IDM, Post Rock, Contemporary, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World's End Girlfriend - Teen Age Ziggy (04:58)
+ 02. Nils Frahm - Unter (01:37)
+ 03. Nils Frahm & Anne Müller - 7fingers (04:07)
+ 04. Rival Consoles - I Left The Party (05:18)(   Читать дальше...   )Жанр: IDM, Post Rock, Contemporary, AmbientПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613E5E6A1042912A888AB2DB0E7C93A2DBE13905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208084   (779995) от 22.02.2018
+
+Sadauk - A New Dawn (2017) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture - Ancient Lithdor
+02. Act 1 - Melhinis Death
+03. Act 2 - Cursed Land
+04. Act 3 - Battle a God(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E996DF9B99C5930F87B5205E13297FC8230366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208620   (779994) от 22.02.2018
+
+Milieu - Amtrax Plus (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Glitсh>
 
 >>Electronic
->>Easy listening
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779680.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Florito  -  Konja Tokyo De (feat. Anna Y.)  5:33
-02.  L'Art Mystique  -  Underwater Twilight  4:27
-03.  Maksim Biserov  -  Rumination  6:28
-04.  Madhukar  -  When Love Rules  5:04(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 03:06:22
+01. Afterschool Trak (Daycare Pops Mix) (04:21)
+ 02. Mono Field (02:43)
+ 03. Star Bath (04:32)
+ 04. Amtrac (Silverbus Mix) (03:43)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, GlitсhПродолжительность: 01:01:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1067442C442051109C7BC591FA6B455C82F7883
+magnet:?xt=urn:btih:BA3E854B3401DDBF01273568AF22E2D72821FB2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +442,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208364   (779679) от 24.02.2018
+###  Публикация: 1208135   (779993) от 22.02.2018
 
-И.А. Каиров и др. | Педагогика (1939) [PDF]
+VA - The Realm of Napalm Records Vol.III (2012) [FLAC|Lossless|image + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MOONSPELL - Lickanthrope
+02. MONSTER MAGNET - Gods and Punks
+03. HUNTRESS - Spell Eater
+04. ALESTORM - Death Throes Of The Terrorsquid(   Читать дальше...   )Жанр: MetalПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900F31D3A0ACDCF74DC555D82800F15C0460B932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208367   (779992) от 22.02.2018
+
+VA - Empire Records - Reggae (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francoise Sanders - I Will
+02. Lauren - Painting by Numbers
+03. Emelie Christiansson - Until The Wind Comes Again
+04. Dinah Eastwood - Your Love(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052AE254F4088CF3E73CFDD0C8613E76499FCB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208203   (779991) от 22.02.2018
+
+М. Г. Гайсинский | Борьба с уклонами от генеральной линии партии (1931) [PDF]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779679.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данная книга является учебным пособием для педагогических институтов и университетов.
-
-Авторский коллектив дает систематическое изложение курса педагогики, читаемого в вузах.
-(   Читать дальше...   )Жанр: История, политология, искусство, педагогика, психологияФормат: PDF
+Мы обращаемся к истории 13-летней фракционной борьбы после Октября. Изучение фактической истории показывает нам, как далеки представители правого уклона и троцкистские или полу-троцкистские элементы в пашей партии от ленинского толкования возникновения и развития уклонов в партии. Молодые члены партии и передовые беспартийные рабочие должны отбросить в сторону, как (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6072ED38822BD46C264AD3644F16C9EB007C2AD
+magnet:?xt=urn:btih:C1857287EDE8D2A1E502E6F68BC3D5B52B462AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +526,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208842   (779678) от 24.02.2018
+###  Публикация: 1208385   (779990) от 22.02.2018
 
-Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Cкелетон. Мужчины. 1-я и 2-я попытка (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779990.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 04:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Cкелетон.
+Мужчины. 1-я и 2-я попытка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562AD3F90BCA6B8CB089AAC2C4C89FC936A3A5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208322   (779989) от 22.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Командная Эстафета (15.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779989.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 15:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Санный спорт.
+Командная Эстафета(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F445116C402222AC1F5510E98BA775385B6A2507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208373   (779988) от 22.02.2018
+
+Death Angel - Relentless Retribution (2010) Japanese Ed., Reissued, 2015 [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779678.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. It's Not Too Late 6:27
-02. All The Young Girls Cry 5:00
-03. Leah 4:02
-04. The Angels Will Remember 4:34(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:01:01
+01. Relentless Revolution 4:28
+02. Claws in So Deep 7:44
+03. Truce 3:31
+04. Into the Arms of Righteous Anger 4:31(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:56:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
+magnet:?xt=urn:btih:7B30C5BA27E0D2FFF5BD71CC3CEAE723DB55CE04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,140 +613,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208924   (779677) от 24.02.2018
+###  Публикация: 1208207   (779987) от 22.02.2018
 
-Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Hanging In The Balance 18:03
-02. Working On Mystery Train (On A Bus) 1:49
-03. We All Need Some Light 5:25
-04. Dance With The Devil 9:03(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208843   (779676) от 24.02.2018
-
-Старше всех! (2017-2018) WEB-DLRip [H.264] (5 выпусков из ??) [MP4|1280x720] (Обновляемая)
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Старше всех!» — новое шоу талантов на Первом канале. Его участники, несмотря на возраст, бодры, веселы и готовы к приключениям. Все герои нового шоу старше 55 лет! Среди них уникальные гимнасты, повара, певцы, гримеры, силачи, танцовщики, токари, блогеры, путешественники… Бабушки и дедушки, чьи истории волнуют и напоминают нам, что возраст — бесценное богатство, (   Читать дальше...   )Производство: Первый каналЖанр: ТелешоуСубтитры: ОтсутствуютПродолжительность: ~ 01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041E3D51FCF0BAA4BD19C66E7D38B1BE67911C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209040   (779675) от 24.02.2018
-
-Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dovahkiin (Deepkomplekt Remix) (07:04)
- 02. Dovahkiin (Metzler Remix) (05:57)
- 03. Dovahkiin (Overcast Sound Remix) (07:58)
- 04. Dovahkiin (Rich Weller Remix) (05:42)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208309   (779674) от 24.02.2018
-
-MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ballad Of The Goddess (Skyward Sword)
-02 - Song Of Storms (Ocarina Of Time)
-03 - Hyrule Castle (A Link To The Past)
-04 - Gerudo Valley (Ocarina Of Time)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA4FE16104A88E28652574B78D7041DB7B9B9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208738   (779673) от 24.02.2018
-
-Б.Д. Есипов (ред.) | Основы дидактики (1967) [DJVU]
+В. Хохлов | Тактические разногласия среди большевиков в 1917 г. (1931) [PDF]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779673.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга является наиболее полным обобщающим трудом по теории образования и обучения. В ней рассматриваются основы содержания образования, методы и организационные формы обучения в общеобразовательной школе, освещаются методологические, психологические и дидактические основы обучения.
+Изучение опыта партии в 1917 г. дает богатейший материал в деле усвоения основ ленинской стратегии и тактики, в деле непримиримой борьбы со всякими уклонами от генеральной линии партии.
 
-Книга рассчитана на научных работников, аспирантов, преподавателей педвузов и педучилищ, (   Читать дальше...   )Жанр: История, искусство, педагогика, психологияФормат: DJVU
+Тактические разногласия внутри партии за период от Февраля к Октябрю были, по существу говоря, борьбой между тем, какая точка зрения — пролетариата или мелкого буржуа — восторжествует (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E88E040BC8934ABF6A330135D8E2A45C2CFB870
+magnet:?xt=urn:btih:6633E206414285FB91B14F9A17A3D52E8AEC371F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208456   (779986) от 22.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Сноуборд. Мужчины. Сноуборд-кросс. Финалы (15.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779986.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 07:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Сноуборд. Мужчины.
+Сноуборд-кросс. Финалы(   Читать дальше...   )Телекомпания: Матч! Игра HD Матч!Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44218BFF47DF138A4CB690376D71B04255A6C1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208382   (779985) от 22.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Санный спорт. Командная Эстафета (15.02.2018) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779985.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 15:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Санный спорт.
+Командная Эстафета(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E9CD5C4B164AC5BF523001580DBCF7CC1A7457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208413   (779984) от 22.02.2018
+
+TinkerTool System 5.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779984.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы macOS. С помощью этого приложения, вы сможете активировать скрытые функции операционной системы и некоторых встроенных приложений.
+
+Утилита позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2018Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A033D60F2DC0D7E68847C63244F037CD2F0F27A
 ```
 
 https://mybot314.ru/tekegram_catalog/

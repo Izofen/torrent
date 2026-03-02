@@ -1,3 +1,212 @@
+###  Публикация: 1079187   (296240) от 03.12.2016
+
+VA - German Top 100 Single Charts 02.12. (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296240.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'Bone Man - Human 3:19
+002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
+003. The Weeknd - Starboy 3:51
+004. Mark Forster - Chore 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F030C6FF069104C232255119927A3B65B766927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079065   (296123) от 03.12.2016
+
+VA - Billboard Hot 100 Singles Chart (10.12.) (2016) [MP3|320 Kbps] <Pop, Hip-Hop, RnB,  Indie, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. The Chainsmokers feat. Halsey - Closer 4:06
+003. Twenty One Pilots - Heathens 3:16
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, Hip-Hop, RnB,  Indie, Folk, DanceПродолжительность: 06:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112AB22100DD64014306232FD2A4EABC3964250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 159122   (296092) от 18.12.2009
+
+Монгол Шуудан - Сборник (До 2008) [MP3|192 kbps]<Панк рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - И красный, и белый, и чёрный
+02 - Полиметрия
+03 - По теме
+04 - Бабочка
+05 - Вопросы
+06 - Самара - городок 2
+07 - Узбечка Лейла
+08 - Первомай
+09 - Несколько странно для меня
+10 - Монгол Шуудану(   Читать дальше...   )Жанр: Панк рокПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423711   (295934) от 15.11.2020
+
+Hideki Naganuma, Richard Jacques, Guitar Vader - Jet Set Radio Future (2002) [MP3|320 Kbps] <Soundtrack>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Concept of Love
+02. Fly Like a Butterfly
+03. Funky Dealer
+04. Shape Da Future(   Читать дальше...   )Жанр: OSTПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC6316A06D4C53CFD6CD6AB4F445CFB50ADD24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424053   (295812) от 15.11.2020
+
+VA - Record Super Chart 662 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+02. Slava Marlow - Снова я напиваюсь (1:56)
+03. Tiesto - The Business (2:43)
+04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9295039EE03BAD3E26D5D54F632829A762FBDCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423952   (295643) от 15.11.2020
+
+VA - Music News vol.48 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295643.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. NK (Настя Каменских) - A Huevo (LeKiD Remix) (03:28)
+ 002. 3OH!3 feat. 100 Gecs - Lonely Machines (02:29)
+ 003. 369 feat. Agomel - Зеркала (02:28)
+ 004. a.Ja - Пусть Мой Дым (03:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 14:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDA6F9C63E573CAF97E452158EDDBE1A663AC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424068   (295558) от 15.11.2020
+
+VA - Громкие новинки Ноября 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_295558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anacondaz, кис-кис - Сядь мне на лицо (3:48)
+02. Anne-Marie - Problems (2:35)
+03. Armin van Buuren, Duncan Laurence - Feel Something (2:35)
+04. Aya Nakamura - Jolie nana (2:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCE5971B33E271E9814037B35761F0F6371FC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847295   (295515) от 05.12.2014
 
 VA - My Favourite Hits of 1970 (2014) (8CD) (2014) [MP3|320 кб/с]<Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard Rock>
@@ -545,209 +754,6 @@ VA - Beatport Trance Pack (04.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:412C8050044335690E2BE945BF6A9E0A92F620B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079328   (294540) от 04.12.2016
-
-VA - Beatport Trance Pack (03.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Emotional, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294540.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sneijder - The Only Place (Original Mix) 7:04
-002. Alexander Popov & Jonathan Mendelsohn - World Like This (Abstract Vision Remix) 3:51
-003. Abstract Vision - Comeback 3:34
-004. Curtis Young - Devil Tricks (ReOrder Remix) 3:04(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal, Emotional, UpliftingПродолжительность: 11:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9AE932C0B39A63B6F7C53854CF53B46FB68A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079271   (294538) от 04.12.2016
-
-VA - Заключительная осенняя дискотека. Версия 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Стрелки - Я Хочу Быть Худой 3:19
-002.Katy B Feat. Major Lazer & Craig David - Who Am I 3:25
-003.Emotion - Самая 3:25
-004.Олег Верд - Иду К Тебе 3:25(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39580F95B2C1E6A2441F5057EDFDE338336607FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331495   (294530) от 29.10.2019
-
-VA - 100 Rock Ballads Vol.3 (2019) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294530.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. White Lion - Cry For Freedom 6:04
-002. Europe - Dreamer 4:25
-003. Iron Maiden - Wasting Love 5:51
-004. Motley Crue - Home Sweet Home 3:51(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 08:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2437FCE06341A4B103F0500264C842EBB5861A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079307   (294380) от 04.12.2016
-
-VA - TOP 100 Deep House November (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294380.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phats - Turn Around (Hey What's Wrong With You) (Maison & Dragen Remix) 2:56
-002. Lushington - You Got Me Baby 2:59
-003. Joshua Calleja - Airshow (Original mix) 7:16
-004. Frank Pole - Anything 3:42(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 09:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF5DCD62E38AD9FD1BC304BBC47DD0FABE6CEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079295   (294378) от 04.12.2016
-
-VA - Музыкальный плен на Europa Plus. Часть 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Solange - Where Do We Go 4:25
-002.Сплин - Окраины 6:00
-003.Afrojack - Unstoppable 5:43
-004.Samsaboy - В Платье Малиновом 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860CC861B49D51A47B081FEB02A6EE8F719D1501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079432   (294358) от 04.12.2016
-
-VA - Beatport Top 100 Electronica / Downtempo November (2016) [MP3|320 Kbps] <Electronica / Downtempo, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294358.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Kollektiv Turmstrasse - Jupiter Sunrise (Original Mix) 4:09
-002.Bonobo - Kerala 3:58
-003.Ipek Ipekcioglu, Petra Nachtmanova - Uyan Uyan (Original Mix) 9:23
-004.B.Traits - North Shore 7:01(   Читать дальше...   )Жанр: Electronica / Downtempo, HouseПродолжительность: 09:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08304A73C2ED92D5E1B9D3129D3A444B7CF72904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140122   (294337) от 29.10.2019
-
-VA - Music Box (2002-2004) [MP3|320 кб/с] <Rock, Alternative, Metal, Punk, Rapcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hot Chili Peppers Music Box (2002)
-Oomph! Music Box (2002)
-Limp Bizkit Music Box (2002)
-Bon Jovi Music Box (2002)(   Читать дальше...   )Жанр: Rock, Alternative, Metal, Punk, RapcoreПродолжительность: 27:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE7A217AAF20159BCFCBA07CC5FBAAAA6CAC3CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

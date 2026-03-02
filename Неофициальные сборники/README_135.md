@@ -1,3 +1,200 @@
+###  Публикация: 1112746   (841222) от 09.03.2017
+
+Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Blues (With Harmonica)
+02. Voodoo Chile Blues
+03. Born Under a Bad Sign
+04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003828   (841170) от 04.04.2016
+
+Within Temptation - Angel A Best Of (2016) Compilation [MP3|320 кб/с] <Gothic Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841170.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Deceiver Of Fools
+2.Dark Wings
+3.Jillian (I'd Give My Heart)
+4.Stand My Ground(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 02:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63A3E41B63E8F365F232EDF8FE2CD523ADB69DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379246   (840977) от 28.04.2020
+
+VA - не Громкие новинки недели 65 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Дима Билан - Я Тебя Отвоюю (5:21)
+2.Инна Вальтер - А нужны ли вы мне теперь? (4:55)
+3.Александр Шоуа - Дыши (4:26)
+4.Дима Билан - Там За Рекою Лес (4:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0779DD73FE22A838070215A31DFC3C6E599B7418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500388   (840949) от 06.10.2021
+
+VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
+02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
+03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
+04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309840   (840913) от 16.03.2011
+
+Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/DanceПродолжительность: 06:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379223   (840746) от 28.04.2020
+
+Bonfire - 100% Bonfire (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotta Get Away
+02. Hold Me Now
+03. When an Old Man Cries
+04. Temple of Lies(   Читать дальше...   )Жанр: RockПродолжительность: 03:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1EB7B60E14D8ADE7BCB022513B3C3D005465C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309704   (840700) от 16.03.2011
+
+VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 kbps]<Pop/Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/DiscoПродолжительность: 07:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA52075B21BE17EF321B058C044F06BA661C04F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309688   (840659) от 16.03.2011
 
 VA - Как Это Было. Популярные Хиты 80-Х 90-Х. Выпуск 2 (2011) [MP3|256 kbps]<Pop/Disco>
@@ -539,209 +736,6 @@ VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112909   (840012) от 10.03.2017
-
-VA - Танцевальная вечеринка Хит FM. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лада Мишина - Мой Город 3:24
-002. Лариса Гордьера - Наш Рай 3:23
-003. Смирнов & Компания - До Новых Встреч 3:26
-004. Лариса Гордьера - Потерянное Солнце 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00079912C875704B67FBAC4AD30F2EAE675C4830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112873   (840008) от 10.03.2017
-
-VA - Amazing Vocal Future Bass 1 (2017) [MP3|320 Kbps] <Future Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3LAU feat. NEONHEART — Fire (Paris Blohm Remix) (3:13)
-02. ANGEMI & Becko — I’ll Catch You (3:55)
-03. CMC$ — Won’t Let You Go (3:08)
-04. Dream Hackers & JVSE feat. Thomas Daniel — Ready For The Night (4:12)(   Читать дальше...   )Жанр: Future Bass, ElectronicПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D183821B2E9D579E9DEC80A2F036B9E0DF79299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112912   (840004) от 10.03.2017
-
-VA - Лучший русский шансон. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840004.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Гурченко - Ча-Ча-Ча  Синьор 3:43
-002. Александр Юрпалов - Ты Моя Любовь 3:49
-003. Виктор Калина - Остаться Собой 3:49
-004. Сергей Сорокин - Цепи 3:45(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60E2FE640888A6D587365A9F6A2E7B0609F93CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003982   (839993) от 05.04.2016
-
-VA - Шальная 100-ка душевных песен (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Сорос - Прощай моя звезда
-02. Любовь Успенская и Николай Васильев - Верба
-03. Елена Ваенга и Интарс Бусулис - Нева
-04. Андрей Шишкин и Настя Капитонова - У порога(   Читать дальше...   )Жанр: PopПродолжительность: 06:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73225A534160D33BDCEF71B70BB250603BBCBEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004002   (839989) от 05.04.2016
-
-Марк Бернес - Актер и Песня (2001) [MP3|192 кб/с] <Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я люблю тебя, жизнь
-02. С чего начинается Родина
-03. Песенка фронтового шофера
-04. Темная ночь(   Читать дальше...   )Жанр: RetroПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999D87C77268354178356C4165FA32999846278A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112931   (839880) от 10.03.2017
-
-VA - Дискотека 2017 - Весеннее Настроение 85 хитов (2017) [MP3|256-320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839880.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alok & Bruno Martini Feat. Zeeba - Hear Me Now 3:12
-002. Arizona - I Was Wrong (Robin Schulz Remix) 3:41
-003. Cortes Feat. Andreea Balan - Uita-ma (Edit) 2:59
-004. Alexandra Stan - Ecoute 3:15(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B68FD136DD46665D0BF7F04114C4B9F5A88130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112902   (839871) от 10.03.2017
-
-VA - Хиты в тачку. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Archi-M - Неприкасаемый 3:18
-002. Dельфина - Текила И Соль 3:20
-003. Александр Прокофьев - Милая 3:13
-004. Инфинити Feat. Гена Дудин - Воланчик 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEBD8D0539318DE6E48787514D156DC252AE4A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

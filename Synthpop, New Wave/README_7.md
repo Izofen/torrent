@@ -1,3 +1,32 @@
+###  Публикация: 936216   (493859) от 12.09.2015
+
+Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Gods (feat. Mr Hudson)
+02. Last Night In The City (feat. Kiesza)
+03. You Kill Me With Silence
+04. Pressure Off (feat. Janelle Monáe & Nile Rodgers)(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7888DECD9D05E0B6D29A0BE5866ED2A67AC9103D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565591   (492461) от 24.07.2022
 
 Denner (FR) - Shades & Parasols (2022) [MP3|320 Kbps] <French Coldwave, New Wave, Post-Punk>
@@ -716,35 +745,6 @@ Liaisons Dangereuses - Liaisons Dangereuses (1981) Reissue CD, 2002, Hit Thing [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A3B629C910C3B30E7F606578F46195E06849C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066957   (408022) от 28.10.2016
-
-Empire Of The Sun - Two Vines (2016) Deluxe Edition [MP3|320 Kbps] <Electropop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before
- 02. High And Low
- 03. Two Vines
- 04. Friends(   Читать дальше...   )Жанр: Electropop, New WaveПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E72F0768CE115608D2366A052DF83419387CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

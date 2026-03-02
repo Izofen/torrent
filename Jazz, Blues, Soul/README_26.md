@@ -1,32 +1,3 @@
-###  Публикация: 1621143   (1031198) от 24.03.2023
-
-Malina Moye - Dirty - Dirty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y.A.T.O (You Ain't the One) (3:39)
-02. F.I.N.E (F'd Up, Insecure, Neurotic & Emotionally Unstable) (4:44)
-03. Over Ur Lies (3:44)
-04. Say My Name (3:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB51167808D365E8A2FDC8A52A8C77C5583F322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447929   (1031127) от 16.02.2021
 
 VA - Ladies Sing & Play The Blues Vol. 5 (2020) [MP3|320 Kbps] <Blues>
@@ -745,6 +716,35 @@ The Roadhouse Blues Band - Long Time Coming (2023) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451EF777D375102E88212AD184A63A234F48D90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622099   (1030515) от 27.03.2023
+
+Tom Raley - Tangled Up And Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangled Up And Blue (4:14)
+02. Late Night (3:50)
+03. Southbound Train (4:42)
+04. Tell Me You Love Me One More Time (3:00)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D404E6A4F5661824BB51B85DAD54FB57737D9C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

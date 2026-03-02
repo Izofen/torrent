@@ -1,108 +1,22 @@
-###  Публикация: 1577363   (356651) от 18.09.2022
+###  Публикация: 1071330   (357213) от 11.11.2016
 
-VA - 80s Top Tracks (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Everywhere (2018 Remaster)
-02. Starship - We Built This City
-03. Duran Duran - Notorious (Single Version)
-04. Spandau Ballet - True(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:57 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB56F8CA409AA1346520B380BDC258FA980F7836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577515   (356650) от 18.09.2022
-
-Double Commander 1.0.8 Build 191 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Double Commander - это свободный, с открытым исходным кодом, кроссплатформенный файловый менеджер с двумя панелями. Целью данного проекта является создание файлового менеджера, аналогичного по функциональности Total Commander и совместимого с его плагинами.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D8327E17C70EEA453E72D65E8B568F4ED9FB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577116   (356649) от 18.09.2022
-
-Infected Mushroom - IM25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Trance, Electronic>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Velvet [00:04:08]
-02. While I'm in the Mood [00:06:32]
-03. Business as Usual [00:02:55]
-04. Boss La Rosh [00:06:41](   Читать дальше...   )Жанр: Psychedelic Trance, ElectronicПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752F013D171181CB8A74667FE8F2A712F6E82BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329035   (356648) от 03.10.2019
-
-Ирина Селиванова | Оленьи сказки (2019) [MP3]
+Ольга Алешина | "В зеркале" и другие рассказы [Сборник] (2011) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356648.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лес молчаливо хранит свои тайны, сказка начинается…
-В ту ночь из замка не вышел никто, но троим предстоит вернуться. Город, так легко отпустивший своих детей, не примет их обратно. Одинокой лесничей с колдовскими зелеными глазами, бродячему охотнику, боящемуся быть узнанным, и олененку нет дороги назад.
-На скольких тропах предстоит заблудиться, чтобы понять, куда (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 09:26:34
+Девять разных рассказов Ольги Алешиной: мистических, детективных, фантастических, юмористических и сказочных объединены в эту  аудиокнигу. Рассказы читают Дарья Чегаева, Олег Шубин, Светлана Столичная, Мария Куликова, Наталья Григоренко и Элис. Захватывающий сюжет рассказов никого не оставит равнодушным, а герои - не только наши современники, но и предки, и потомки (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:06:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF0C358CF3CA1E6BC09BD9B5C1FADD8431B7B64E
+magnet:?xt=urn:btih:D740936C19FC41D619FB4C17C02E35FBBDD305EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329167   (356647) от 03.10.2019
+###  Публикация: 723121   (357208) от 17.11.2013
 
-VA - Uplift Recordings - Chapter 1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+Невеста с севера (1975) DVDRip [H.264]
 
->>Electronic
->>Trance
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356647.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steve Allen - Vorny (Original Mix)
-02. Steve Allen feat. Ana Criado & Solis & Sean Truby - Frozen River (Original Mix)
-03. F.G. Noise - Delphi (Original Mix)
-04. Steve Allen feat. Jess Morgan - Re-Given (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 04:09:26
+И в русских деревнях,и в армянских селах испокон веков повелось – невеста должна идти в дом к жениху. Но какая мать захочет отпустить единственную дочь за тридевять земель?
+Эксцентричная,увлекательная комедия о том, как многочисленные и разноликие родственники жениха из Армении сватали невесту в далекой русской деревне.Производство: CCCP, студия телефильмов «Ереван»Жанр: КомедияРежиссер: Нерсес ОганесянАктеры: Ара Бабаджанян, Наталья Беспалова, Армен Джигарханян, Инна Макарова, Станислав Чекан, Юрий МедведевПродолжительность: 01:14:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF373F03854D6AB37D8FBEB4F2FAB98D738A267A
+magnet:?xt=urn:btih:DE2C93D11605BD2C6E3C98E14ED34C6498CD6183
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,26 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329138   (356646) от 03.10.2019
+###  Публикация: 723264   (357205) от 17.11.2013
 
-Протоиерей Сергий Филимонов | Учебник для сестёр милосердия (2007) [FB2]
+Векторный клипарт - Календарь 2014-8 /  Calendar 2014-8 [EPS]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356646.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Протоиерей Сергий Филимонов — настоятель больничного прихода, доктор медицинских наук, кандидат богословия. Одновременно — председатель Общества православных врачей СПб. и духовник Сестричества св. мч. Татианы.
-Первые группы милосердия были созданы о. Сергием в 1993 году. Они состояли из христианок, желавших послужить в больнице. В 1995–1996 гг. батюшкой были основаны (   Читать дальше...   )Жанр: Христианство. Православие. Социальное служениеФормат: FB2
+Календари 2014Формат: EPS и превью в JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
+magnet:?xt=urn:btih:E35A5F1C658A624E4362D8AEC145713B89FE7704
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,27 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328833   (356645) от 03.10.2019
+###  Публикация: 723511   (357194) от 17.11.2013
 
-Т.В. Стрыгина | Библейские истории для детей (2018) [FB2]
+Вий / Вiй (1996) DVDRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356645.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как затеплить веру в сердце малыша? Эта Библия для самых маленьких станет настоящим помощником для родителей. Умная, простая и красивая книга, несущая через весь текст и иллюстрации послание детям о том, что Бог любит их, всегда защитит и поддержит.
-
-Для детей дошкольного и школьного возраста.Жанр: ПравославиеФормат: FB2
+По одноимённой повести Н. В. Гоголя.Производство: УкраинаЖанр: Рисованная анимацияРежиссер: Алла ГрачёваПеревод: ДублированныйПродолжительность: 00:19:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88B5188267AAD257032E22ED89F9B379E9210CAD
+magnet:?xt=urn:btih:5E5C465C6B3667CF8192902DCF61E843783F94EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,27 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329022   (356644) от 03.10.2019
+###  Публикация: 1577297   (357175) от 18.09.2022
 
-Монахиня Евфимия | Тайны монастырей. Жизнь в древних женских обителях (2015) [FB2]
+91 Suite - Back In The Game (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356644.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь за монастырскими стенами всегда была окутана ореолом мистической тайны. Эта книга даёт прекрасную возможность заглянуть внутрь русского монастыря и познакомиться с повседневной жизнью женских обителей по впервые публикующимся в печати архивным данным.
-
-Перед вашим взором пройдёт галерея игумений северных женских обителей, сестёр милосердия, монастырских воспитанниц. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+01. Starting All Over (4:24)
+02. Perfect Rhyme (4:35)
+03. Nothing Left For Us (5:12)
+04. Something About You (5:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:05:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
+magnet:?xt=urn:btih:3D89C3689AA2578AD5264EB6083D5DD82AFFE535
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
+###  Публикация: 1577375   (357174) от 18.09.2022
 
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Colour Haze - We Are (2019) remastered version, 2021, Electrohasch [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space Rock>
 
->>Other Styles
->>OST (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356643.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01. We Are (Remastered) [00:03:23]
+02. The Real (Remastered) [00:08:38]
+03. Life (Remastered) [00:08:44]
+04. Material Drive [00:04:31](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Space RockПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+magnet:?xt=urn:btih:9F39C9C07830CBDBC18810AB0D5DAB16969F48DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,28 +161,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329070   (356642) от 03.10.2019
+###  Публикация: 1577476   (357173) от 18.09.2022
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+Николай Носов | Как Винтик и Шпунтик сделали пылесос (2022) [MP3, Совушка Сонюшка]
 
->>Other Styles
->>OST
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356642.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+Коротышки Винтик и Шпунтик, одни из героев приключений Незнайки. В этот раз неугомонные механики решили смастерить пылесос. Всю ночь они его мастерили его и утром решили попробовать. Но так как они, за ночь, очень устали то вместе с пылью начали пылесосить личные вещи других коротышек.Жанр: Детская литература. СказкаПродолжительность: 00:05:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
+magnet:?xt=urn:btih:7AD5EE521D09FE0340A6BE09DBD0BDE00F205CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +187,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329115   (356641) от 03.10.2019
+###  Публикация: 1577304   (357172) от 18.09.2022
 
-Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+Palace - One 4 The Road (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 
->>Other Styles
->>OST
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356641.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seeker Of The Serpent's Eye (02:12)
-02. Starling (02:15)
-03. Mandy Love Theme (04:39)
-04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
+01. Fifteen Minutes (3:44)
+02. Westbound (4:13)
+03. Too Old For This (4:11)
+04. Money Can Kill (3:06)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:43:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
+magnet:?xt=urn:btih:3655E9B3B05E2B3B100E5A520FCDA2D05C0FC396
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,28 +216,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329169   (356640) от 03.10.2019
+###  Публикация: 1577347   (357171) от 18.09.2022
 
-Robert Nickson - Tellurian (2019) [MP3|320 Kbps] <Trance>
+Vogelfrey - Titanium (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte, Folk Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356640.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Robert Nickson - Arecibo (2:45)
-02. Robert Nickson - Iridium Flare (5:26)
-03. Robert Nickson with Thea Riley - Feed My Soul (3:44)
-04. Robert Nickson - California (4:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:57
+01. Flammenvogel (04:26)
+02. Stahlhammer (04:00)
+03. Nicht A (03:44)
+04. Nie Wieder Met (04:01)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Folk MetalПродолжительность: 00:43:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAD3858D1A8067226DA866C2930C95F3A5DDB91A
+magnet:?xt=urn:btih:46B86545D310981A2D823DF270EAFB779287C912
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,28 +245,340 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329080   (356639) от 03.10.2019
+###  Публикация: 1577300   (357170) от 18.09.2022
 
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Soundtrack>
+Crossing Rubicon - Perfect Storm (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Storm (3:33)
+02. Reason To Die (3:38)
+03. Scar (5:44)
+04. Too Late (5:15)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577372   (357169) от 18.09.2022
+
+Colour Haze - Sacred (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Space Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Turquoise
+02 Goldmine
+03 Ideologigi
+04 Avatar(   Читать дальше...   )Жанр: Heavy Psych, Stoner, Space RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577336   (357168) от 18.09.2022
+
+Warmaster - The End Of Humanity (2013) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massive Kill Capacity
+02. Nuclear Warfare
+03. Deadly Artillery
+04. Death Factory(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577324   (357167) от 18.09.2022
+
+Минтранс (17.09.2022) SATRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрипит и раздражает. Почему скрипят новые тормозные колодки? Что делать в такой ситуации? Как избавиться от неприятного звука?
+ Тест-драйв старенького «японца». Стоит ли покупать 10-летнюю Mazda CX-5 ?
+ Век живи - век учись. Надо ли сдавать экзамен после лишения прав?
+ Минтранс объясняет. Что будет, если ехать на ручнике? Как закрепить легкий груз в багажнике?  И что (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577301   (357166) от 18.09.2022
+
+David Paich - Forgotten Toys (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Forward (0:30)
+2. Willibelongtoyou (4:20)
+3. Spirit Of The Moonrise (4:53)
+4. First Time (5:06)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6237E46AF3435C002FEDCF06EF99FB2FCAD02228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577319   (357165) от 18.09.2022
+
+Главная дорога (17.09.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выжить вопреки: они нашли силы подняться после жутких аварий.
+Что крепче — пластмассовый домкрат или многотонный испытательный пресс? Андрей Федорцов и Денис Юченков проверили на прочность автомобильные домкраты. И, как это обычно бывает, не обошлось без сюрпризов.
+Премиальный японский седан с «детскими болячками»: все о Lexus IS 250 II 2008 года выпуска.
+Цифровая (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4833F948B0B4AE70885718E38103424A0C7649E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577146   (357164) от 18.09.2022
+
+Kruger - Бомба (2022) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бомба [00:06:11]
+02 - 2020 [00:05:51]
+03 - Боль и Трон [00:05:24]
+04 - День Гнева [00:04:12](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FD35D5A82C0B40BA85A6FFF048DA7C37D5D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577358   (357163) от 18.09.2022
+
+Край - 2 Albums (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Призрак бунта [00:03:50]
+02. Про любовь [00:04:01]
+03. Былые заслуги [00:03:43]
+04. Судьба [00:03:59](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267983021CD2B00AA145B8AE3C50F1D909808AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577277   (357162) от 18.09.2022
+
+Starcrawler - 3 Albums, 1 Single (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357162.jpg" />
+</div>
+
+
+###  Подробнее
+
+2018 - Starcrawler
+2019 - Devour You
+2022 - If You're Gonna Be Dumb, You Gotta Be Tough (From "Jackass 4.5") Single
+2022 - She SaidЖанр: Alternative RockПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F122DAB9CCBD51B2EAD0EAE6DADE6061D2AB8BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577749   (357158) от 19.11.2012
+
+100 девчонок и одна в лифте / 100 Girls (2000) [H.264] DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэтью, студент колледжа, знакомится с девушкой своей мечты в лифте. В чем проблема? В лифте не было света, зато был классный секс! И проснувшись утром, Мэтью видит, что электричество есть, а девушки нет. Он влюбляется в нее, не увидев ее лица. Все что известно — она одна из 100 девушек женского общежития. Герой решает проникнуть туда и отыскать её.Жанр: Мелодрама, КомедияРежиссер: Майкл ДэвисПродюсер: Эхуд Блайберг, Ричард Финни, Ицхак ГинсбергАктеры: Джонатан Такер, Эммануэль Шрики, Джеймс ДеБелло, Кэтрин Хайгл, Лариса Олейник,  Джейми Прессли, Марисса Рибизи, Джон Грин мл., Эйми Грэм, Эндж БиллманПеревод: Дублированный(киностудия «Мосфильм»)Продолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51B6E277E873289B0EB228812F2975E5C53BB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577683   (357156) от 19.11.2012
+
+Digital Juice - Juice Drops 47: merryCHRISTMAS (Full ISO)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 300 dpiФормат: ISO (PSD - 5175×3375)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182176E842E34CD9E6D6D65905505BB87F874782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577704   (357154) от 19.11.2012
+
+Kaspersky Virus Scanner 8.1.4 [Multi/Rus]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356639.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+Kaspersky Virus Scanner предназначен для защиты компьютеров, работающих под управлением операционной системы Mac OS X от воздействия вирусов и вредоносных программ. В программе реализованы следующие функции: Поиск вирусов, Обновление, Карантин, Резервное хранилище, Отчеты, Уведомления.
+
+При работе с Kaspersky Virus Scanner вы получаете полную информационную поддержку: программа выводит сообщения о состоянии защиты и предлагает вашему вниманию подробную справку. Ассистент безопасности, включенный в состав программы, позволяет получить полную картину текущего состояния защиты компьютера и перейти к немедленному устранению проблем.Название программы: Kaspersky Virus ScannerРелиз состоялся: октябрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: English, French, German, Italian, Japanese, Russian, Spanish
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80051EE18FCDC8DF28952439E6CD0F5C4C2D6B49
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -367,28 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329083   (356638) от 03.10.2019
+###  Публикация: 577622   (357153) от 19.11.2012
 
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+Точка отсчета (1979) SATRip
 
->>Other Styles
->>OST
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356638.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
+Бывший хулиган, от природы наделенный прекрасными физическими данными, стал безоговорочным лидером среди призывников. Очень скоро он добился звания младшего сержанта, и ему доверили отделение. Но когда наступили боевые учения, блатной лидер оказался беспомощным и бесполезным в достижении общей цели.Жанр: Военный, ДрамаРежиссер: Виктор ТуровАктеры: Петр Юрченков, Юрий Демич, Ольга Лысенко, Анатолий Ромашин, Николай Кочегаров, Василий Петренко, Андрей ГрадовПродолжительность: 01:36:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
+magnet:?xt=urn:btih:7F88790F8FCDA6430DAC2B10370082831D2967E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,28 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329071   (356637) от 03.10.2019
+###  Публикация: 577556   (357148) от 19.11.2012
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Ж.И.Риманова | Инструкция по обращению с этиловым спиртом [1985] [PDF]
 
->>Other Styles
->>OST (Lossless)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356637.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+Вашему вниманию представлены Приказ заместителя Министра обороны СССР – начальника тыла вооруженных сил СССР №73 от 19 июля 1985 г. О введении в действии инструкции по обращению с этиловым спиртом и собственно сама Инструкция.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
+magnet:?xt=urn:btih:582780B1BDC917FFAE7F62CE0DC3B766273079A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -425,106 +638,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329102   (356636) от 03.10.2019
+###  Публикация: 577677   (357144) от 19.11.2012
 
-Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивена Хокинга (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cambridge, 1963 (01:42)
-02. Rowing (01:42)
-03. Domestic Pressures (02:37)
-04. Chalkboard (01:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329096   (356635) от 03.10.2019
-
-Радости и печали маленького лорда (2003) DVD9
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом американском городке позапрошлого века растет восьмилетний мальчик, сын скромной учительницы музыки. Друзья уважают его за доброту и справедливость, и Седрик - так зовут мальчика, - дорожит их уважением. Равно как и памятью отца, которого он никогда не видел. Седрик привык думать, что мать и ее рассказы об отце это и есть вся его семья. Но однажды он (   Читать дальше...   )Производство: РоссияЖанр: Семейный, Сказка, ДрамаРежиссер: Иван ПоповАктеры: Станислав Сергеевич Говорухин, Ольга Будина, Олег Менделевич Шкловский, Сергей Ишханович Газаров, Алексей ВеселкинСубтитры: русские, английскиеПродолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3829FFA196D1CCCD6F3F816F80F8C23F786A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329065   (356634) от 03.10.2019
-
-Кирилл Андреев (сост.) | Новая сигнальная [Сборник] (1963) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биофизик Джордж Корин пять лет прожил в одиночестве на тихой уютной планете. Посетившие однажды планету космонавты обнаруживают Джорджа бесплотным. Что же случилось на планете, и куда исчез настоящий Джордж?Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BA10D18D05DC311606F37201D830485A3D8E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329029   (356633) от 03.10.2019
-
-BurnAware Professional 12.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Whos On My WiFi 2.0.9 [Английский + Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356633.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+Who Is On My Wifi - это инструмент для сканирование Wifi сетей на наличие злоумышленников и неопознанных ПК с вашей внутренней сети. Утилита покажет вам каждый компьютер в сети, и предупреждает вас если он обнаруживает компьютер который он не признает. Программа позволит вам защитить свою сеть от падения скорости интернета, злоумышленников и компьютеров которым вы не разрешали использовать ваше подключение.
+
+(   Читать дальше...   )Название программы: Whos On My WiFiЯзык интерфейса: Английский + Русский (переведены подсказки мастера настройки)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:886924DECA0E26D2F7E8AEFF687401A8F22B6F82
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,193 +666,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
+###  Публикация: 576575   (357141) от 19.11.2012
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329091   (356630) от 03.10.2019
-
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329063   (356629) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Зеленая креветка [Сборник] (1966) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырем африканцам и одному белому суд вынес смертный приговор. Но по слухам приговор не был приведен в исполнение, а заключенных отправили в специальную резервацию. Два друга решили освободить белого смертника и заодно разузнать, что же скрывается под маской резерваций-рудников…Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F16734B09DCC7DFA22DA68CE78EFC086857302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837514   (356618) от 03.11.2014
-
-Артур Древс | Миф о христе [2 тома] (1924-1925) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артур Древс (1865-1935) - немецкий философ, писатель, ученик Н. Гартмана, наряду с Б. Бауэром, А. Кальтхофом и др. принадлежит к известным немецким полемистам, отрицающим реальность существования Иисуса Христа в истории. Его произведение «Миф о христе» (1909) вызвало многочисленные открытые дискуссии, широкие протесты христианской общественности и резкую критику (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E62DF60FF83F6BAADF34C2FB04DA10D1FE47648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837313   (356613) от 03.11.2014
-
-Серебристый звон ручья (2013) HDTVRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Леся — сирота, живет в глухой деревушке на берегу ручья у своей старенькой бабушки Шуры, которую местные жители считают колдуньей. Но на самом деле Шура потомственная знахарка, обладающая даром лечить людей. Леся с детства помогает бабке собирать травы для целебных отваров, и сама лечит разнообразную живность, которую ей приводят односельчане.
-Однажды (   Читать дальше...   )Производство: Россия/"Weit Media"Жанр: МелодрамаРежиссер: Игорь КечаевАктеры: Татьяна Полосина, Ада Роговцева, Илья Ильин, Александр Пашков, Владимир Смирнов и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF4685928805BC2AF3ACFB0EF01DC588962AAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836849   (356610) от 03.11.2014
-
-Рейчел Хокинс | Духи школы (2014) [FB2]
+K-Lite Codec Pack 9.5.0 (Basic, Standart, Full, Mega, Update + x64) [En]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356610.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_357141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Духи школы».
-
-На острове Греймалкин уже более века работает таинственная Геката-холл – школа для оборотней, ведьм и фей, прозванная также Проклятой. Одна из новеньких учениц Софи Мерсер, оказавшаяся демоном, проходит здесь настоящий курс по выживанию, приобретает друзей среди охотников на монстров и в конце концов становится главой Совета экстраординариев. (   Читать дальше...   )Жанр: Фэнтези, МистикаФормат: FB2
+K-Lite Codec Pack - бесплатный пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E43EFBCE17997ABA58D094F4F5887475167B8488
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576450   (357140) от 19.11.2012
+
+Унесенные ветром / Gone with the Wind [70th Anniversary Edition] (1939) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_357140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Мелодрама, драма, военныйРежиссер: Виктор Флеминг, Джордж Кьюкор, Сэм ВудПеревод: Дублированный, Многоголосый закадровый, Одногоголосый закадровыйСубтитры: РусскиеПродолжительность: 03:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2624C1654647002D586A762B9ED7F9A54148A09
 ```
 
 https://mybot314.ru/tekegram_catalog/

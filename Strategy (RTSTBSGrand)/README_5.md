@@ -1,3 +1,29 @@
+###  Публикация: 1285307   (720381) от 26.02.2019
+
+The Settlers: History Collection (2018) [Ru/Multi] UplayRip R.G. Origins
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720381.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Settlers History Collection - это все семь игр из серии The Settlers, перевыпущенные под современные системы. Все игры коллекции поддерживают Windows 10, разрешение вплоть до 4К и доработанный многопользовательский режим. В честь 25-летия серии эксклюзивно для пользователей Uplay будет выпущено издание The Settlers History Collection.Тип издания: UplayRipРазработчик: Blue Byte, Red StormЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C3DF095CA39A7C78107D19C5154C83C74C7D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218875   (718970) от 11.04.2018
 
 Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) License GOG
@@ -643,32 +669,6 @@ StarCraft II – продолжение эпической саги о трех 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292031   (650007) от 27.03.2019
-
-Total War: Napoleon (2018) [Ru/En] (1.3.0) Repack xatab [Definitive Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650007.jpg" />
-</div>
-
-
-###  Подробнее
-
-От ранней Итальянской кампании до сражения при Ватерлоо, Total War: NAPOLEON – это два десятилетия непрекращающихся войн, в которых принимали участие армии гениального полководца. Сумеете ли вы превзойти легендарного Бонапарта - или одержать над ним победу?Тип издания: RepackРазработчик: The Creative AssemblyЖанр: Strategy (Real-time, Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFEB780C64709333BC621F161BD9977D64D11DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

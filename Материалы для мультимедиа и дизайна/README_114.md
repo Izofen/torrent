@@ -1,3 +1,31 @@
+###  Публикация: 1392721   (769085) от 27.06.2020
+
+Векторный клипарт - Adolable Cute Animals Collection Vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Милые животные
+10 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1061DFC07F684EA68D021BA42F1D8B7A65ED7DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392751   (769076) от 27.06.2020
 
 Векторный клипарт - Fabulous forest landscape with cartoon insects and animals [EPS]
@@ -667,32 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0488D61A9157BBED88D0AC6E0914CCD5BE5B7A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213704   (767341) от 18.03.2018
-
-Растровый клипарт - Tubes #95 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Tubes для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 141x525-1740x1185
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B3C1AFADCF93E42F7289ED9825BF0F96EF2B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

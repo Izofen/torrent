@@ -1,31 +1,3 @@
-###  Публикация: 1467323   (1017688) от 04.05.2021
-
-Pat Smillie - Last Chance (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart in a Headlock (3:04)
-02. Something on My Heart (5:31)
-03.Жанр: BluesПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684FCAAB4F6D5062B1A5B72313E6A06D2C6CF299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467325   (1017686) от 04.05.2021
 
 Peggy Scott-Adams - See You Next Weekend (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
@@ -744,6 +716,35 @@ Robert Hohner Percussion Ensemble - Far More Drums (2000) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A7FE1D72AB1397A8C13F05C8CEC82550EC8173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470125   (1015972) от 15.05.2021
+
+Lester Young - 1936 - 1943 (2003) Columbia [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoe Shine Boy [2:59]
+02. Boogie Woogie [3:15]
+03. He Ain't Got Rhythm [2:51]
+04. I Must Have That Man [2:56](   Читать дальше...   )Жанр: SwingПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15289C0F8D5E9905B1FA8BCE95253739625B1511
 ```
 
 https://mybot314.ru/tekegram_catalog/

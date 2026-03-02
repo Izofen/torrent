@@ -1,3 +1,32 @@
+###  Публикация: 1380100   (834626) от 02.05.2020
+
+VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen - Bohemian Rhapsody (2011 Mix) 5:54
+002. Europe - The Final Countdown 5:10
+003. Michael Jackson - Billie Jean 4:54
+004. a-ha - Take On Me 3:48(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 20:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2DDFC0584E076A9ECB76FCFAEFB7C407E3AF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004970   (834158) от 08.04.2016
 
 VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
@@ -717,35 +746,6 @@ VA - Galaxia: Indie Rock Collection (2020) [MP3|320 Kbps] <Rock Indie, Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B678FFA8D2FD25C2CEEEF2E95E9736F7B24930F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503118   (820962) от 18.10.2021
-
-VA - The Top 100 Most Played: Rock (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disturbed - The Sound of Silence
-02. Cage The Elephant - Ain't No Rest for the Wicked
-03. Nirvana - Come As You Are
-04. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: RockПродолжительность: 07:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB710DD75176095A83CDE3E74E5D4EC39E1E427
 ```
 
 https://mybot314.ru/tekegram_catalog/

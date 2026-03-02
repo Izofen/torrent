@@ -1,3 +1,32 @@
+###  Публикация: 1300625   (587952) от 08.05.2019
+
+Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas Rising
+02. Jawbreaker
+03. Love Zone
+04. Leather Rebel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552049   (587700) от 20.05.2022
 
 Владимир Ткаченко и Виктор Молчанов - Double Fantasy (2008) [MP3|320 Kbps] <Rock, Acoustic>
@@ -716,35 +745,6 @@ VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304128   (567075) от 24.05.2019
-
-VA - Rock Driving Music (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567075.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Iggy Pop - The Passenger
-2. KISS - Detroit Rock City - Edit
-3. Billy Idol - Rebel Yell - Remastered
-4. 3 Doors Down - Kryptonite(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FD5B9744353FB19465248C5DECA7BFA5D5F056
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1407381   (466017) от 07.09.2020
+
+NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.06
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных треков очищенных от "голосовых вставок" ("watermark").
+Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC537472D37CFAB00BD52B2F0B5012A1468CCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940561   (465955) от 25.09.2015
 
 Футажи - VideoHive - 10 Clean Transition Pack [MOV]
@@ -645,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E2F1514C138BE4C538F1BA5B6AEDED19E7328B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407662   (462588) от 09.09.2020
-
-Растровый клипарт - Elements Collage 117 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 155x372-2000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DA3F30109FECE439FAF118A859C65F28DDE6AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1697480   (118767) от 07.02.2024
+
+Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_118767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enemy On Earth (Vocoder Mix)
+02.  Land Of Nowhere
+03.  Fire On Ice
+04.  Hypermagic(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42A44BD66E077A2B7FD920869B2A4EABCD78373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697532   (118739) от 07.02.2024
 
 Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
@@ -746,35 +775,6 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB8398D1FD5E70B415A62CC4179B8CC8A833825F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772932   (71760) от 12.01.2025
-
-Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just A Dream
-02. Paranoid
-03. Twin Sun (Novan K's Club Mix)
-04. Cloudy Perfume In The Wind(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9932C7179E0AD94F3C5B902C91DE244CF5BE58BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

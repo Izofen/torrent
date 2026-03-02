@@ -1,25 +1,25 @@
-###  Публикация: 1358382   (969632) от 07.02.2020
+###  Публикация: 1362272   (949555) от 23.02.2020
 
-VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969632.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949555.jpg" />
 </div>
 
 
 ###  Подробнее
 
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+|02:37| 01. Wake the Girls
+|04:02| 02. Train North
+|02:31| 03. Skagway, Alaska
+|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
+magnet:?xt=urn:btih:D28C13B6B90E2B479CABEE820CAF563EB93E5376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,189 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358227   (969562) от 07.02.2020
+###  Публикация: 1362271   (949552) от 23.02.2020
 
-VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618300   (969541) от 14.02.2013
-
-Pucaramanta - Sound of the spirits (2010) [MP3|~190 кб/с (V2)]<Native American,New Age,Ethnic,Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Qapaq Nan
-02. Chirapaq
-03. The Last Mohican
-04. Ananau
-05. Sunquyman
-06. Tananka
-07. White buffalo
-08. Kabra Nawy
-09. Paway Anka
-10. Abiu Tusuy(   Читать дальше...   )Жанр: Native American,New Age,Ethnic,FolkПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D439EBB0390D647F8B82AC433BC82CEDFA65AD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744906   (969327) от 13.01.2014
-
-Dum Dum Girls - Too True (2014) [MP3|192 кб/с]<Indie Pop>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Cult Of Love (2:15)
-2. Evil Blooms (2:37)
-3. Rimbaud Eyes (3:31)
-4. Are You Okay (2:52)
-5. Too True To Be Good (3:05)
-6. In The Wake Of You (2:41)
-7. Lost Boys And Girls Club (3:25)
-8. Little Minx (2:31)
-9. Under These Hands (3:30)
-10. Trouble Is My Name (4:03)Жанр: Indie PopПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3801C2349FCD96E2070C4F204EC076277620F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745140   (969214) от 13.01.2014
-
-David Arkenstone - Journey of the Whales (2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:28)
-02. The Deep Blue (8:19)
-03. Breath of the Ocean (8:12)
-04. The Long Journey (8:22)
-05. Sparkles in the Sea (8:13)
-06. Majestic Giants (8:14)
-07. Waltz of the Whales (7:39)
-08. Floating (9:33)Жанр: New AgeПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC179FCF3879BF10797D631060E21EDF3E9DD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663203   (968921) от 13.01.2014
-
-Московская оперетта - Граф Орлов (2013) [MP3|192 кб/с]<Мюзикл>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Увертюра (Оркестр)
-02 - Ливорно (Андрей Белявский, Александр Маракулин, Сергей Ли)
-03 - Красотка (Александр Постоленко)
-04 - Чужая страна (Андрей Белявский)(   Читать дальше...   )Жанр: МюзиклПродолжительность: 01:43:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976576   (968650) от 18.01.2016
-
-VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с] <Soundtrack, Hip-Hop, Rap, R&B, Soul>
+John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968650.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Future - Last Breath (3:59)
-02. Meek Mill - Check (3:14)
-03. White Dave - Intolerant (3:34)
-04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: Soundtrack, Hip-Hop, Rap, R&B, SoulПродолжительность: 01:09:36
+|02:37| 01. Wake the Girls
+|04:02| 02. Train North
+|02:31| 03. Skagway, Alaska
+|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CD443B1C8A3A4591FDDA9D65322D9C7F8F66478
+magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,34 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 619019   (968551) от 15.02.2013
+###  Публикация: 1362470   (949503) от 23.02.2020
 
-Deep Forest & Rahul Sharma - Deep India (2013) [MP3|320 кб/с]<New age, World>
+Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
 
 >>Other Styles
->>New Age/Meditative/Relax
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Viva Madikeri (Karnataka) (5:52)
-02. Bihu (Assam) (4:45)
-03. Rajasthan (4:54)
-04. Dhol Lejhim (Maharashtra) (5:09)
-05. Thillelo (Kerala) (3:40)
-06. Punjab (5:59)
-07. The Village (Sindh) (6:43)
-08. Mountain Ballad (Jammu) (7:06)
-09. Sounds Of The Village (4:08)
-10. Viva Madikeri (Radio Edit) (4:01)Жанр: New age, WorldПродолжительность: 00:52:22
+|03:41| 01. Days Gone
+|03:36| 02. The Freakshow
+|03:36| 03. We've All Done Things
+|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:248D185379726E61B5EA85C9CD6A13B808048279
+magnet:?xt=urn:btih:D5558948E31206E3AE7B2B22376F048AA053D51F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,30 +85,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 619053   (968485) от 15.02.2013
+###  Публикация: 1088737   (948836) от 05.01.2017
 
-Deep Forest & Rahul Sharma - Deep India (2013) [APE|Lossless]<Ambient, World, New Age>
+NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
 
 >>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>OST
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Viva Madikeri (Karnataka)
-02. Bihu (Assam)
-03. Rajasthan
-04. Dhol Lejhim (Maharashtra)
-05. Thillelo (Kerala)
-06. Punjab
-07. The Village (Sindh)
-08. Mountain Ballad (Jammu)
-09. Sounds Of The Village
-10. Viva Madikeri (Radio Edit)Жанр: Ambient, World, New AgeПродолжительность: 00:52:21
+01.Party Next Door feat. Drake - Come and See Me (3:56)
+02.Drake - Hype (3:30)
+03.Drake - Pop Style (3:30)
+04.Majid Jordan - Every Step Every Way (3:35)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 133766   (948720) от 05.01.2017
+
+Григорий Гладков - Падал прошлогодний снег (Музыка к мультфильму) (1983) [MP3|128 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тема 1 (01:19)
+02. Тема 2 (02:36)
+03. Тема 3 (02:35)
+04. Тема 4 (01:28)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:15:51
 
 ## Скачать торент
 ```bash
@@ -287,57 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 745413   (968177) от 14.01.2014
+###  Публикация: 1362640   (948422) от 24.02.2020
 
-David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:07)
-02. Along the Shore (6:37)
-03. Swirling Pools (6:16)
-04. Beachcomber (5:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168685   (967578) от 23.01.2010
-
-Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossless]<Krautrock, Ambient, Jazz Noir, Drone>
+The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <Country>
 
 >>Other Styles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967578.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ta Grenier (4:14)
-02 - Une Cellier (11:08)
-03 - La Boudoir (4:18)
-04 - Aucun Cave (6:49)(   Читать дальше...   )Жанр: Krautrock, Ambient, Jazz Noir, DroneПродолжительность: 01:11:14
+01. A Sad Day to be You (02:57)
+02. Lost John Dean (02:42)
+03. Cold Foot Boogie (01:38)
+04. Song of the Bird (02:30)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F7B57621747F2B73F750D85DEC7CE4E9C1DA9EFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358712   (967311) от 09.02.2020
+###  Публикация: 1362584   (948416) от 24.02.2020
 
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack, Synthwawe>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967311.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+|01:47| 01. Doll
+|03:41| 02. Haunted
+|01:02| 03. Double Trouble
+|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
+magnet:?xt=urn:btih:AC3A587138523EE9C7AAADD119377D3D05C51F62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +201,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358713   (967229) от 09.02.2020
+###  Публикация: 1362643   (948413) от 24.02.2020
 
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desperado
+02. I’m Calling You
+03. Please Don’t Call Me Crazy
+04. Got A Lotta Love(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55590E52FFD1283F045DADF5F12784EB30FFF747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362585   (948411) от 24.02.2020
+
+Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Synthwawe>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967229.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
+|01:47| 01. Doll
+|03:41| 02. Haunted
+|01:02| 03. Double Trouble
+|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
+magnet:?xt=urn:btih:B73ABD9399CA6E710DB48C15E530FC587E2744DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,57 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 745789   (967218) от 15.01.2014
+###  Публикация: 1362576   (948315) от 24.02.2020
 
-VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilary Stagg - Inspirations (6:32)
-02. Paul Machlis - Nightblossom (3:43)
-03. Gary Malkin - The First Night (2:37)
-04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358716   (966978) от 09.02.2020
-
-VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundtrack>
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966978.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-|06:13| 01. Low Roar - Don't Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:30
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
+magnet:?xt=urn:btih:803CCEF48A563603C206C085A4320D222D70AACE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,34 +288,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 618767   (966675) от 17.02.2013
+###  Публикация: 1362577   (948313) от 24.02.2020
 
-VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|320 кб/с]<Soundtrack>
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [FLAC|Lossless|CD|tracks + cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948313.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362545   (948312) от 24.02.2020
+
+Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966675.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Katharine McPhee & Megan Hilty - Let Me Be Your Star (Extended Intro) (3:43)
- 2. Bernadette Peters With Sophia Caruso & Ensemble - At Your Feet (2:44)
- 3. Megan Hilty, Katharine McPhee & Ensemble - Smash! (2:15)
- 4. Katharine McPhee - Never Give All The Heart (3:11)
- 5. Katharine McPhee & Ensemble - The 20th Century Fox Mambo (2:42)
- 6. Magan Hilty & Ensemble - The National Pasttime (2:33)
- 7. Megan Hilty, Will Chase & Ensemble - History Is Made At Night (4:20)
- 8. Megan Hilty With Debra Messing, Nick Jonas, Christian Borle, Will Chase, Jaime Cepero, Phillip Spaeth & Ensemble - I Never Met A Wolf Who Didn't Love To Howl (3:45)
- 9. Megan Hilty & Will Chase - Mr. & Mrs. Smith (3:34)
- 10. Christian Borle & Ensemble - Don't Say Yes Until I Finish Talking (2:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:28
+|03:08| 01. Mortal
+|03:15| 02. Ecce Eric
+|04:12| 03. The Interrogation Scene
+|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A32A332D042DC660E78ADC2F2D4AA5E6A5A1EE24
+magnet:?xt=urn:btih:4DBE38861C41240D2E667EC150F66772745A6F07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 977175   (966478) от 20.01.2016
+###  Публикация: 1362553   (948307) от 24.02.2020
 
-Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3CD [MP3|320 кб/с] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
+Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary Instrumental, Ambient>
 
 >>Other Styles
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966478.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Ballade Pour Adeline  (2:34)
-02. Candle In The Wind  (5:10)
-03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C787D02E315DF00FB4BABF85B28198EA89B060DD
+magnet:?xt=urn:btih:15EC90E5876BDC4DBD6BA470565D8349F36B4E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358697   (966204) от 10.02.2020
+###  Публикация: 1362554   (948306) от 24.02.2020
 
-Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Contemporary Instrumental, Ambient>
 
 >>Other Styles
->>OST (Lossless)
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966204.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-|03:26| 01. What I Love About Nicole
-|03:43| 02. What I Love About Charlie
-|01:41| 03. Last Critique
-|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:364C92F40D8B6A89BBBBEEA8FD213160383DB1B7
+magnet:?xt=urn:btih:98AB0676DCE48632C0486039DEC1C4880A161AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358696   (966202) от 10.02.2020
+###  Публикация: 1361078   (948228) от 24.02.2020
 
-Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack>
+Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [MP3|320 кб/с] <Soundtrack, Score>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966202.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-|03:26| 01. What I Love About Nicole
-|03:43| 02. What I Love About Charlie
-|01:41| 03. Last Critique
-|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
+01. DOOMSDAY PREPPER (04:47)
+02. CLOCKMAKER (03:49)
+03. A MAN WALKS INTO AN INTRINSIC FIELD (01:34)
+04. SPLICE OF LIFE (00:36)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:02:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:275D7205F9C8CCEFC3128F2ED08B40B7474957C8
+magnet:?xt=urn:btih:1C94AD8B9806AB224AD9075FAE544573B5E80991
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358539   (966195) от 10.02.2020
+###  Публикация: 1362524   (948226) от 24.02.2020
 
-Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966195.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Are So Beautiful
-02. Right Here Waiting
-03. On The Wings Of Love
-04. The Rose(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:11
+|02:12| 01. He's Quite The Imposition
+|04:21| 02. South Of Fourteenth
+|05:57| 03. Edgar's Boys
+|04:39| 04. Elysium(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
+magnet:?xt=urn:btih:A68DC2077349E9D2163E02C89A9ACA642C2CC0A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 620138   (966182) от 17.02.2013
+###  Публикация: 1362635   (948224) от 24.02.2020
 
-V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop, Rock>
+The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Country>
 
 >>Other Styles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966182.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. USA For Africa - We Are The World
-02. Steve Perry - If Only For The Moment Girl
-03. The Pointer Sisters - Just A Little Closer
-04. Bruce Springsteen &The E-Street Band - Trapped(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
+01. Stoplight Kisses (02:17)
+02. You’re Dreaming (03:25)
+03. Queen of Them All (03:40)
+04. Clown Collector (02:22)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:34:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CBFE8EB3468A0932B93019F56AFD2719E7B03F74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358947   (966086) от 10.02.2020
+###  Публикация: 1362525   (948212) от 24.02.2020
 
-VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|320 Kbps] <Country>
+Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
 >>Other Styles
->>Folk
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966086.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948212.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dolly Parton - To Know Him Is to Love Him
-002. Zac Brown Band - Chicken Fried
-003. Willie Nelson - Whiskey River
-004. Blake Shelton - God Gave Me You(   Читать дальше...   )Жанр: CountryПродолжительность: 05:48:09
+|02:12| 01. He's Quite The Imposition
+|04:21| 02. South Of Fourteenth
+|05:57| 03. Edgar's Boys
+|04:39| 04. Elysium(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D63264EAA50E44AD7360D81C4E6E888856BAEF1
+magnet:?xt=urn:btih:EFCB592DF9F4DF6218AC1019E8F38D174168AB12
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358717   (965962) от 10.02.2020
+###  Публикация: 1362473   (948110) от 24.02.2020
 
-VA - Death Stranding (Songs from the Video Game) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Score>
 
 >>Other Styles
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965962.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-|06:13| 01. Low Roar - Don't Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:16
+|03:41| 01. Days Gone
+|03:35| 02. The Freakshow
+|03:36| 03. We've All Done Things
+|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:224D1D552E878545B66483111EF879C3CE0FC07A
+magnet:?xt=urn:btih:2BF58EA4DE069F1ACC0E8EE971330463B3768B55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 977539   (965684) от 21.01.2016
+###  Публикация: 982412   (948096) от 03.02.2016
 
-VA - Country Hitmix (2000) Mix [FLAC|Lossless|image + .cue] <Country>
+Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
 
 >>Other Styles
->>Folk (Lossless)
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965684.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mix 1 - 4:59
-1.1	United Cowboys - Let's Go Nashville
-1.2	Gordon Lange & Kactus - Lone Star State Of Mine
-1.3	Willie Nelson - On The Road Again(   Читать дальше...   )Жанр: CountryПродолжительность: 00:58:44
+01. Thirst For Life
+02. Rapture
+03. Drive
+04. What You Get(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:07:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8607AF4701B92BECEA5104DC238F00A16DFD376A
+magnet:?xt=urn:btih:D4F66A738FCF5DB704087FFDA4E1E0FCCA06BDBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -728,28 +578,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 977738   (965539) от 21.01.2016
+###  Публикация: 1361079   (947936) от 24.02.2020
 
-Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
+Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO Series) (2019) [FLAC|Lossless|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DOOMSDAY PREPPER (04:47)
+02. CLOCKMAKER (03:49)
+03. A MAN WALKS INTO AN INTRINSIC FIELD (01:34)
+04. SPLICE OF LIFE (00:36)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3914F96E75C539F96E19A4459DB1A7A76478B1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 750508   (947932) от 29.01.2014
+
+David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music From Series Three (2014) [MP3|256 кб/с]<Score>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965539.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prologue (02:00)
-02. Tsunami (02:37)
-03. Aftermath (02:41)
-04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
+01. How It Was Done (2:44)
+02. God Rest His Soul (1:44)
+03. Floating Dust (3:29)
+04. #Sherlocklives (2:49)
+05. Back to Work (2:57)
+06. Vanishing Underground (2:29)
+07. John is Quite a Guy (4:06)
+08. Lazarus (3:36)
+09. Lestrade - The Movie (3:07)
+10. To Battle (4:02)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
+magnet:?xt=urn:btih:3F443EEFF5A103835358536EBCFEB2777A101CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -757,28 +642,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359361   (964992) от 11.02.2020
+###  Публикация: 1090154   (947508) от 06.01.2017
 
-Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
+Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
 
 >>Other Styles
->>Other
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964992.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Матерные частушки, часть1
-2. Матерные частушки, часть2
-3. Матерные частушки, часть3
-4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
+01 -  Conscious Love [00:05:04]
+02 -  Healing Words [00:04:41]
+03 -  No More Fear [00:04:42]
+04 -  Clear Direction [00:04:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
+magnet:?xt=urn:btih:92B774F8D5B94205B77C80231DC640CD5CC4B160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982085   (947004) от 04.02.2016
+
+Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing In My Shoes 03:59
+02. World Turning 04:00
+03. Dead End 04:17
+04. Vaseline Machine Gun 03:11(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D273CB9D789E840B3ABE8A0003D4484191150FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090555   (945975) от 07.01.2017
+
+Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consciousness Shift (feat. Sika) [00:08:08]
+02. First Light (feat. Sika) [00:09:51]
+03. Forest Spirit (feat. Sika) [00:11:48]
+04. Pure (feat. Sika) [00:10:27](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8451A35F0F0A27028EF98A1F2C35146A0D9E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090517   (945857) от 07.01.2017
+
+Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
+02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
+03. Штурм Полоцка (01:26)
+04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
 ```
 
 https://mybot314.ru/tekegram_catalog/

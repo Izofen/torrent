@@ -1,3 +1,209 @@
+###  Публикация: 327139   (720370) от 24.04.2011
+
+VA - Drum & Bass Collection 22 (17.04.2011) [MP3|320 kbps]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpine Dub - Side My Channel (4:28)
+02. Asphexia - Nirvana (6:25)
+03. Asphexia - Sick Structure (5:30)
+04. Blokhe4d - Cretin (Prolix Remix) (6:57)
+05. Blokhe4d - Kisses and Lies (5:18)
+06. Camo & Krooked - Cliffhanger (Original Mix) (4:17)
+07. Cause 4 Concern - Lifelike (4:56)
+08. Chase & Status - Fool Yourself (feat. Plan B & Rage) (4:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56581802B952586A7749C5E3DCD8B08FF5E9A262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024201   (720315) от 07.06.2016
+
+VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni Verde - Heroes of Galaxy - Main Theme
+02. LifeBlood - Essence
+03. Toni Verde - Piano Moods
+04. Josh Freeman - A Cup of Tea(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023978   (720307) от 07.06.2016
+
+VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720307.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nat King Cole Trio - For Sentimental Reasons (I Love You) 02:52
+2. John Coltrane Quartet - A Love Supreme Part I Acknowledgement 07:42
+3. B.B. King - I Need Your Love 02:22
+4. Nina Simone - Black Is the Color of My True Love's Hair 03:24(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746F83D0424993D3DB515E63F7835B49E30F3576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024104   (720197) от 07.06.2016
+
+VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <Tech House, Tribal, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endorphine - Our Night (Tanya Aura Remix) 07:15
+02. Dennis GRKN - Winner (Original Mix) 05:21
+03. DJ Sandro Mix - The Sick (Original Mix) 05:00
+04. Abel Ramos & Hurt - Believe (Extended Mix) 04:42(   Читать дальше...   )Жанр: Tech House, Tribal, Electro, ProgressiveПродолжительность: 09:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024090   (720080) от 07.06.2016
+
+VA - Workout Mix vol.5 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Porn Kings vs DJ Supreme Feat. Spencer & Hill - Up To The Wildstyle (Alexx Slam Remix)
+02-DMX - Party Up (DJ Zarubin & DJ Chippon Remix)
+03-Fatman Scoop feat. Snavs & Tropkillaz - Here We Go Now (Max Maikon Bootleg)
+04-DJ Fresh x DJ Schimolli  - Power Dibby Sound (DJ Oleg Petroff & DJ Cvet Mashup)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632A07650403EB6957BDC8FD2CB810F031646A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024080   (719954) от 07.06.2016
+
+VA - Young, Fresh & Disco (2016) [MP3|320 кб/с] <Soulful House, Dance,Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Palma - Cada Vez (Remember & Feedback Radio Remix) (03:28)
+02. Solanos - Childish Freedom (05:37)
+03. Bug & Heck - Falling Stars (feat. J&J)Жанр: Soulful House, Dance,Nu-DiscoПродолжительность: 03:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9399D1DE4AE1A0E71EA73092359B6C615916DFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023847   (719950) от 07.06.2016
+
+VA - Высшая лига DFM 50x50 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Analise Feat. Alexis - I Love You
+02. Alloise - Deadman
+03. Серебро - Storm
+04. Алексей Воробьёв - Счастлив Сегодня И Здесь(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EC400792F6BBBF28EEF40AAABAF505FD49CB22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327471   (719674) от 24.04.2011
 
 Сборник - 30 Best Trance (2011) [MP3|320 kbps]<Trance>
@@ -547,209 +753,6 @@ VA - Vynil Rock Classic Mania (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91497423C5EC5D634127C5A5A105C2408BE2EBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129829   (718632) от 30.04.2017
-
-VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Ed Sheeran – Shape of You
-003. Burak Yeter – Tuesday (feat. Danelle Sandoval)
-004. Jason Derulo – Swalla (feat. Nicki Minaj Ty Dolla ign)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DC35AE439E8042C625B15DC69E119C1869AD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129907   (718612) от 30.04.2017
-
-VA - Record Super Chart #484 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Nash - Know My Love  4:23
-02.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
-03.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
-04.  Martin Garrix feat. Brooks - Byte  4:45(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB12A2F2282132D8A8935123915B982950C700E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285751   (718586) от 27.02.2019
-
-VA - Hit Music (весна 2019) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718586.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LMFAO - I'm Sexy and i know it (ART PRYDE Remix)
-002. Tim Schou - Acapella
-003. ДеЛайла - Парадайз
-004. Kaaze feat. Nino Lucarelli - I Should Have Walked Away(   Читать дальше...   )Жанр: PopПродолжительность: 11:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7DFECDB99FC39E207C5F4AD8B56D8FAD66E178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531851   (718549) от 17.02.2022
-
-VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booker T. & The MG's - Green Onions (02:55)
-02. Pink Floyd - Alan's Psychedelic Breakfast (2011 Remastered Version) (13:00)
-03. The Spencer Davis Group - Gimme Some Lovin' (Single Mix) (02:58)
-04. Al Kooper - Stop (04:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4026176BA57AD15B46996780C3BEF91166FC0310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129814   (718441) от 30.04.2017
-
-VA - Music Of Dreams: Original Relax Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718441.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Deep Sleep Hypnosis Masters - Massage Music  3:26
-002.  Xerxes & Phoenix - Scarecrow  4:04
-003.  351 Lake Shore Drive - Frozen Heart  6:51
-004.  Marga Sol - Ibiza Blue  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285431   (718385) от 27.02.2019
-
-VA - Club Dance Ambience vol.172 (2019) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718385.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #Неболира - На Твой Свет (Ivan Art Remix)
-002. 5&Dime, Left Of The Boom - Shackles Feat Janine Fagan  (Dj Bong Mash Up)
-003. A.Chal - Oooooo (Amice Remix)
-004. Aaron Smith - Dancin (Sladkoff & Andrienko Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65525067F7D5000A16F5624D422102723E4C640C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129927   (718354) от 30.04.2017
-
-VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco, Synthpop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roger Meno - I Find The Way  6:47
-02.  Modern Talking - Your'e My Heart, Your'e My Soul (Paul Masterson's Extended Remix)  7:19
-03.  C.C.Catch - One Night's Not Enough (Maxi Version)  5:17
-04.  K.B.Caps - Do You Realy Need Me (Extended Version)  6:36(   Читать дальше...   )Жанр: Disco, Euro-Pop, Italo-Disco, Synthpop, DanceПродолжительность: 13:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

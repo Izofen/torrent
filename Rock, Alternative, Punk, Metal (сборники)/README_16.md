@@ -1,3 +1,32 @@
+###  Публикация: 1126461   (765370) от 18.04.2017
+
+VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crowbar - Plasmic And Pure 5:38
+002. Heavenwood - The Juggler 6:43
+003. Bathsheba - At the End Of Everything 8:26
+004. Beelzefuzz - The Righteous Bloom 6:55(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 15:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126573   (765369) от 18.04.2017
 
 VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
@@ -716,35 +745,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522573   (758384) от 07.01.2022
-
-Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels Like Forever
-02. Every Time it Rains
-03. Too Cool
-04. Soul Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1D77AA282AB3D570D0ABD1FFB20C2FC0CCEF87
 ```
 
 https://mybot314.ru/tekegram_catalog/

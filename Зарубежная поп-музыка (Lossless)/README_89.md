@@ -1,3 +1,119 @@
+###  Публикация: 1749484   (104354) от 14.09.2024
+
+VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & OneRepublic - I Don't Wanna Wait
+02. Chika, Anderson .Paak & Fred again.. - places to be
+03. Charli Xcx - Apple
+04. BL3SS & CamrinWatsin Feat. bbyclose - Kisses(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E1EC1DA2585AE30AEE1CD6359A9BF00F31714C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749891   (104270) от 16.09.2024
+
+Jhene Aiko - Souled Out (2014) 10th Anniversary Edition, 2024, Def Jam Recordings [FLAC|Lossless|WEB-DL|tracks] <R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limbo Limbo Limbo [00:04:20]
+02. W.A.Y.S. [00:03:59]
+03. To Love & Die [00:03:23]
+04. Spotless Mind [00:04:29](   Читать дальше...   )Жанр: R&BПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCF4006902002E9CB55CF8EF88BCEE9577FE0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750712   (104180) от 21.09.2024
+
+Nelly Furtado - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showstopper
+02. Coraz¢n (feat. Bomba Est‚reo)
+03. Love Bites (feat. Tove Lo & SG Lewis)
+04. Better For Worse (feat. Gray Hawken)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A9E5F5B74FD35FF887F45E3A9DEE06F56C8BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752031   (104018) от 28.09.2024
+
+Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeling Good (3:56)
+02. Haven't Met You Yet (4:05)
+03. Sway (3:08)
+04. Everything (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FD3E903D399F4B823E8F3EDA9023621FED4ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753308   (103841) от 04.10.2024
 
 Army Of Lovers - Massive Luxury Overdose  (1991) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -650,132 +766,6 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457234   (78217) от 24.02.2012
-
-Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alejandro [04:00]
-02. Bad Romance [04:21]
-03. Born This Way [04:21]
-04. Eh, Eh (Nothing Else I Can Say) [02:56]
-05. Judas [04:10]
-06. Just Dance [04:03]
-07. Lovegame [03:37]
-08. Paparazzi [03:29]
-09. Poker Face [03:58]
-10. Telephone [03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456186   (77584) от 21.02.2012
-
-The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Keeps Me Wondering Why	3:43
-02. 		Abracadabra	5:10
-03. 		Something Special	3:35
-04. 		Give It Up	3:35
-05. 		Never Say No	3:37
-06. 		Things I Told You	3:15
-07. 		Young Girl's Heart	3:33
-08. 		Goodbye Love	2:53
-09. 		Cool Magic	4:23
-10. 		While I'm Waiting	3:26Жанр: Pop RockПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445155   (73499) от 01.02.2012
-
-Highland - Bella Stella / Dimmi Perche (2000, 2008) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавствовала в записи альбома "Bella Stella").
-Коллектив соединяет в своей музыке поп, дэнс и рэп с элементами псевдооперы и шотландским фолком. Получается очень интересный коктейль, сдобренный своеобразным и глубоким вокалом, исполняемым на итальянском и английском языках со (   Читать дальше...   )Жанр: PopПродолжительность: 01:32:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773939   (71628) от 18.01.2025
-
-Cock Robin - Precious Dreams (2024) 3xCD [FLAC|Lossless|image + .cue] <Pop-Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cock Robin - американская поп-рок-группа, наиболее популярная в 1980-х годах, особенно в континентальной Европе, где она добилась большого успеха с синглом The Promise You Made. Группа была основана певцом и автором песен Peter Kingsbery в 1982 году, распалась в 1990 году и реформировалась в 2006 году. Их наиболее успешные синглы того периода также включают When (   Читать дальше...   )Disc One - Cock Robin:
-01. I Thought You Were On My Side (4:19)
-02. When Your Heart Is Weak (4:40)
-03. Just When You’re Having Fun (3:43)(   Читать дальше...   )Жанр: Pop-Rock, New WaveПродолжительность: 03:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 ```
 
 https://mybot314.ru/tekegram_catalog/

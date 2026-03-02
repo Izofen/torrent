@@ -1,22 +1,25 @@
-###  Публикация: 1819532   (1487) от 22.09.2025
+###  Публикация: 1819147   (1793) от 20.09.2025
 
-3D print - Vae Victis Miniatures - Cold Steel and Magic Spells [STL]
+The Hoochie Coochie Men - For A Good Time Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1487.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Меч или Магия — выбирайте. Сторона Силы представлена ​​бандой разбойников (5 готовых или собранных из доступных деталей), команда Магии состоит из: Хрономанта (и его ученика), Прорицателя и Аптекаря.Формат: STL
+01.  Something's Got A Hold On Me (3:32)
+02.  You Got No Business (4:32)
+03.  Soothe Me (3:37)
+04.  Sneakin' (6:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD7B51055B94A1E84A37D27E75037596F7B17AC8
+magnet:?xt=urn:btih:65BCFF812B304305A259C6669A4C637627DC1F07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819443   (1486) от 22.09.2025
+###  Публикация: 1819061   (1792) от 20.09.2025
 
-3D print - Cults3D - Abe3D - Bayonetta [STL]
+VA - 100% Ibiza (The Beach Club Closings 2025) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1486.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фигурка Байонетта из одноименной известной компьютерной игры.Формат: STL
+01. Living Room - Your Tears 05:19
+02. Paulsen & Stryczek - Stranger Space Inside My Heart 04:32
+03. Chris Le Blanc & Gary B;karmaloft - Mindful Reflections 02:57
+04. Andrea Miller & Alejandro Fernandez Lecce - Don't Go Away 04:37(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:00:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DB38F1AB4174D547C87DE5596DF298F294BC29D
+magnet:?xt=urn:btih:38585151106571C1C799D4A94155D70B0B871FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819524   (1485) от 22.09.2025
+###  Публикация: 1819066   (1791) от 20.09.2025
 
-iZotope - RX 11 Audio Editor Advanced 11.3.0 STANDALONE, VST 3, AAX (x64) RePack by R2R [En]
+Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1485.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компания iZotope выпускает обновлённую версию софта для восстановления звука, который может похвастать инновационными возможностями машинного обучения и инструментами, предназначенными для потоковой передачи музыки.Язык интерфейса: Английский
+01. Better Broken
+02. Gravity
+03. The Last to Go
+04. Only Way Out Is Through(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB983C9EC8AD9E1ADE1A1750AD0B63F92111201C
+magnet:?xt=urn:btih:DCAA56F592870F31C95CB3732E7F024CA82DBC16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819509   (1484) от 22.09.2025
+###  Публикация: 1819149   (1790) от 20.09.2025
 
-Erik. Herman | Optimizing Prompt Engineering for Generative AI (2025) [PDF] [EN]
+Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
 
->>Компьютерная литература
->>
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book equips readers with the knowledge to effectively design, test, and refine AI prompts that lead to more accurate, engaging, and ethically aligned AI interactions. From the basics of prompt construction to advanced techniques for specific industries, the content covers a broad spectrum. Each chapter builds on the previous one, starting with an introduction (   Читать дальше...   )Жанр: Учебное пособие, искусственный интеллект, нейронные сетиЯзык: АнглийскийИздательство: Mercury Learning and InformationФормат: PDFКачество: Изначально электронное (ebook)
+01. KINGS OF STRIP CLUB [00:04:07]
+02. Сама так хотела [00:02:45]
+03. S1000RR [00:02:50]
+04. Не такая [00:02:55](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D188114C74F90670C06A2C9CC99119AD9EEE59A
+magnet:?xt=urn:btih:74041FEAC7352AED641DCCAF46480B02BEE46845
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819453   (1483) от 22.09.2025
+###  Публикация: 1819153   (1789) от 20.09.2025
 
-3D print - ArtStation - Nomnom Figures - Naked Snake - Metal Gear Snake Eater - eR6nqb [STL, LYS]
+The Jesse Williams Band - Keep Steady (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Боевая фигурка на мотоцикле, созданная для скрытности и силы, прямо на ваших полках.Формат: STL, LYS
+01.  Making Headway (6:14)
+02.  Quit Quiet (6:04)
+03.  Lessons We Learn (4:52)
+04.  These Days (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73BAEBC7B6D9BCB88BA4F0170C5BAD983244F3CB
+magnet:?xt=urn:btih:BF65E4C4BC1DCE9FB764CA9F87F45D76FBA41000
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819541   (1482) от 22.09.2025
+###  Публикация: 1819179   (1788) от 20.09.2025
 
-R-Wipe & Clean 20.0.2527 RePack (& Portable) by elchupacabra [Ru/En]
+Paradise Lost - Ascension (2025) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1482.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Serpent On The Cross
+02. Tyrants Serenade
+03. Salvation
+04. Silence Like The Grave(   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 01:01:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E1DE2A3F9A1608D74AD6BB8EE0915E3E163BB36
+magnet:?xt=urn:btih:205A9FA40778F54618584BF309419D8D51762B55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819533   (1481) от 22.09.2025
+###  Публикация: 1819068   (1787) от 20.09.2025
 
-Remini / Улучшение Фото v3.7.1126.202516929 Mod by Mixroot [Ru/Multi]
+Любовь и слёзы / Ask ve Gozyasi (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Зарубежные сериалы
+>>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1481.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 22.09.2025Разработчик: Splice Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Мейра — дочь одной из самых богатейших семей Турции. Она получила престижное образование в США и решила вернуться на родину. Девушка хочет добиться уважения в обществе своими силами и поэтому устраивается на работу в торговый центр, тщательно скрывая свое истинное происхождением. Именно здесь она и знакомится с Селимом — юристом, из компании ее отца. Между молодыми (   Читать дальше...   )Производство: Турция / O3 Turkey MedyaЖанр: драма, романтикаРежиссер: Энгин ЭрденАктеры: Ханде Эрчел, Барыш Ардуч, Ознур Серчелер, Берк Джанкат, Шенай Гюрлер, Санем Челик, Лорин Мерхарт, Афра Карагёз, Сенан Кара, Мерт Денизмен и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DBC0F121088C729650D50D9D06783A026C8065E
+magnet:?xt=urn:btih:1513198054A71C530B2960514881A77614D27498
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819469   (1480) от 22.09.2025
+###  Публикация: 1819070   (1786) от 20.09.2025
 
-Videomass 6.1.20 Portable [Multi/Ru]
+VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1480.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Свободный, мощный, многозадачный и кроссплатформенный графический пользовательский интерфейс для FFmpeg , разработанный для продвинутых и начинающих пользователей, он предлагает широкий спектр возможностей и функций, что делает его комплексным программным решением.Язык интерфейса: Русский, Английский и другие
+01. Sir Simon Rattle - Short Ride in a Fast Machine Fanfare for Orchestra (4:26)
+02. Mariss Jansons - Symphony No. 10 in E Minor, Op. 93 II. Allegro (4:19)
+03. Paavo Järvi - Symphonic Dances from West Side Story IV. Mambo (2:25)
+04. Sir Simon Rattle - The Firebird, KC. 10, Tab. I Dance of Kashchei's retinue under Firebird's spell (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E4631C7ABAAC283EC145798048FA79390ED4A41
+magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,234 +227,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819439   (1479) от 22.09.2025
+###  Публикация: 1819073   (1785) от 20.09.2025
 
-Плюмбум, или Опасная игра (1986) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плюмбум (в переводе с латыни — свинец) — кличка пятнадцатилетнего Руслана Чутко, решившего стать «санитаром общества». Однако, увлекшись ролью борца со злом, он переступает границы дозволенного в детской игре, безжалостно вторгается в судьбы людей.Производство: СССР / МосфильмЖанр: драмаРежиссер: Вадим АбдрашитовАктеры: Антон Андросов, Елена Дмитриева, Елена Яковлева, Зоя Лирова, Александр Пашутин, Александр Феклистов, Владимир Стеклов, Алексей Зайцев, Лариса Шинова, Сергей СеровПродолжительность: 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0644015B825EC4366F2F530797820E1F90192252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819528   (1478) от 22.09.2025
-
-В.П. Часовских, В.А. Усольцев, Е.В. Кох | Естественный и искусственный интеллект как инструмент преобразования данных (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1478.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии авторы определяют естественный интеллект, как функцию головного мозга человека. Рассматриваются основные характеристики головного мозга для использования в цифровом моделировании при построении ИИ. Концептуальная основа естественного интеллекта авторов основана на философии И. Канта. В монографии используется определение ИИ из «Национальной стратегии (   Читать дальше...   )Жанр: Монография, искусственный интеллект, нейронные сетиИздательство: АМБ, МЦИТОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C679102908B638D00B56161D0F13912C29588CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819414   (1477) от 22.09.2025
-
-Вальсируя с Брандо / Waltzing with Brando (2024) TS [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марлон Брандо нанимает архитектора спроектировать первый в мире экологический курорт на необитаемом островке неподалеку от Таити.Производство: США / Deano Productions, Fallout Entertainment, Billy Zane ProductionsЖанр: драмаРежиссер: Билл ФишманАктеры: Джон Хидер, Билли Зейн, Ричард Дрейфусс, Элейна Хаффман, Роб Кордри, Камилль Раза, Софи Буи, Джеймс Джаггер, Вуди Фу, София МассонПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:18Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A9BC92A05C3FDF5E41D86A50D5DA8D28DD71D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819423   (1476) от 22.09.2025
-
-RAM Saver Professional 25.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1476.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D534B92E08AF7373430FBE527C561C79C9365C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819536   (1475) от 22.09.2025
-
-Пробуждение / Awakenings (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Малколм Сэйер, застенчивый врач и ученый, использует экспериментальные препараты, чтобы «пробуждать» обездвиженных жертв редкого заболевания.Производство: США / Columbia Pictures Corporation, Parkes/Lasker productionsЖанр: драма, биографияРежиссер: Пенни МаршаллАктеры: Роберт Де Ниро, Робин Уильямс, Джон Хёрд, Джули Кавнер, Пенелопа Энн Миллер, Макс фон Сюдов, Брэдли Уитфорд, Петер Стормаре, Рут Нельсон и др.Перевод: Дублированный (Voize), многоголосый (1-й канал, СВ-Дубль, R5, НТВ+)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C01540148B471BD91A680A9285FC4A9AB4CFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819463   (1474) от 22.09.2025
-
-Trayy 2.0 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечтали ли вы когда-нибудь о том, чтобы некоторые приложения «убирались» из системного трея?
-Встречайте Trayy — новый «поворотник» на вашем рабочем столе!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65EA99C9D78EC3E93CBA90023E17A82A4A474940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819489   (1473) от 22.09.2025
-
-Журнал | Историк №9 (129) (сентябрь 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1473.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E6BF1A1E74602970323A765C9DB0134EA712B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819531   (1472) от 22.09.2025
-
-SnapEdit - AI photo editor v7.4.6 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1472.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 22.09.2025Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D922137E94ECB2523DAF3800F20C8B88DEDB661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819479   (1471) от 22.09.2025
-
-Следствие вели... (20.09.2025) WEBRip [H.264/1080p]
+Главная дорога (20.09.2025) WEBRip [H.264/720p]
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1471.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Третья лишняя».1977 год. В Вологодской области убит молодой мужчина, а его жена и младший брат бесследно исчезли. Кто они — преступники или жертвы? Что за странный разговор подслушали соседи незадолго до трагедии? И какую роль в этой истории сыграла путевка на курорт?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
+Таксистам грозит до 10 лет тюрьмы: где бомбилы работают по старым понятиям?
+ Алюминиевые диски и медная смазка: что это — защита от прикипания или убийственная гальваническая пара? Многие зрители жалуются на то, что после посещения шиномонтажа или сервиса их дорогие легкосплавные диски разъедает. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков выяснили, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE0EB6D4DEB345EDB1E76F5830A59F188CA5F888
+magnet:?xt=urn:btih:317A1209EBF9C4E6E0D2B48055C4BE222ED27FEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,237 +254,486 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819537   (1470) от 22.09.2025
+###  Публикация: 1819014   (1784) от 20.09.2025
 
-Шрифты - Creative Market - Avita | Geometric Sans Typeface [OTF, TTF, WOFF, WOFF2]
+Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320 Kbps] <Native American, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulse of Elsewhere [03:46]
+02. Between the Veil [03:22]
+03. Light Without Origin [03:18]
+04. Sliding Through Stillness [03:22](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819069   (1783) от 20.09.2025
+
+Ravager - From Us With Hate (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks Out Of Control
+02. Alone We Won't Survive
+03. Curse The Living, Hail The Dead
+04. Aggressive Music For Aggressive People(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73AB874D21E092E33ACF243ED2886940C678F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819036   (1782) от 20.09.2025
+
+I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Synthetic Soul (4:30)
+02. - NWO (2:41)
+03. - Pray (3:12)
+04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819103   (1781) от 20.09.2025
+
+Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.June(1:58)
+02.Major Arcana(6:38)
+03.Ravenous(6:28)
+04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819047   (1780) от 20.09.2025
+
+Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Death [00:03:26]
+02. Become The Blade [00:03:13]
+03. The Shield [00:03:08]
+04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819111   (1779) от 20.09.2025
+
+Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zaklínání poslední zimy [00:09:00]
+02. Klíč k noci [00:07:09]
+03. Skrze brány věčnosti a zapomnění [00:04:41]
+04. Obrození ve stínech [00:05:48](   Читать дальше...   )Жанр: Melidic Black MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6F2374373D42A038573D5583DAE7FFC9A2D107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819034   (1778) от 20.09.2025
+
+King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Girl Violence (2:16)
+02. - Jaime (2:23)
+03. - Origin (2:14)
+04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819102   (1777) от 20.09.2025
+
+Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (2025-09-18) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dosem - Digital Futures
+02. Frenckel & Ton TB - Dark Cloud
+03. Woo York featuring Mark Tarmonea - Feeling (Korolova Remix)
+04. Rebūke - Glow(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819137   (1776) от 20.09.2025
+
+Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't Gonna Tell You (3:11)
+02.  Just for Myself (3:29)
+03.  At Your Mercy (3:01)
+04.  Love Your Recipe (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90260B7D7FDCBD4690C90539ACE9751B9EA03458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819076   (1775) от 20.09.2025
+
+Волгоград: соленый Эльтон, Мамаев курган, стейк из арбуза и подземный трамвай | «Поедем, поедим». Выпуск от 20.09.2025 WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились в Волгоград. В городе-герое ведущий посетил Мамаев курган и увидел самую высокую скульптуру в Европе «Родина-мать зовёт!». А еще итальянец полакомился горчицей, хлебом из горчицы и даже горчичным пряником, ведь где еще, как не на родине русской горчицы это делать! Федерико опробовал на себе лечебную грязь Эльтона, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8034A541CBC319B0D881BEECA5D7DE6482C625A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819049   (1774) от 20.09.2025
+
+Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Men In Bed (3:39)
+02. - The May (2:57)
+03. - Gen (3:44)
+04. - Woodeneye (3:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819141   (1773) от 20.09.2025
+
+Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Going To Find Me A Lover (3:53)
+02.  Selfish Kind Of Gal (3:47)
+03.  You Should't Have Been There (5:20)
+04.  Just Like That (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9DAE3D1F256B4E7E1897C1C40B679CE92ECBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819121   (1772) от 20.09.2025
+
+Отказ тормозов после замены — Минтранс (20.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1772.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸Отказ тормозов после замены в автосервисе. Кого обвинят в аварии и кто будет платить за ремонт?
+🔸Volkswagen Jetta 2008: подержанный «немецкий старичок». Ест ли он масло? И почему в салоне всегда жарко?
+🔸Лишили прав за рубежом! Останется ли возможность сесть за руль дома?
+🔸Лайфхак: как быстро очистить тормозные диски от ржавого налёта (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA0BAEBDBD8830714333F7AB2770A44D6E03945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819146   (1771) от 20.09.2025
+
+Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Go Get Gone (3:13)
+02.  Little Pretty Baby (2:32)
+03.  Wanna Keep You (4:07)
+04.  I Like Your Style (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819118   (1770) от 20.09.2025
+
+Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, progressive hard-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Ether [00:05:18]
+02. I Am Just One [00:04:41]
+03. Alive [00:05:04]
+04. Firefly [00:03:57](   Читать дальше...   )Жанр: Alternative Metal, progressive hard-rockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72453BB84781DA7CDE9D35FA37A58A28896954E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819136   (1769) от 20.09.2025
+
+Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Company (3:57)
+02.  Now I'm Lovin' You (4:13)
+03.  Tear It Down (5:15)
+04.  Cowboy Gucci (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819177   (1768) от 20.09.2025
+
+Шрифты - MyFonts - OV Cotin Serif [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1470.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая версия Avita была создана в 2022 году, а в 2024 году она была переработана и улучшена в версии 2.0, возродившись с более острыми линиями и космическим взглядом. Этот геометричный гротеск — не просто шрифт; он нечто большее, сплетая чистые формы в танец точности и фантазии. Высокая высота букв x и игривый выносной элемент гарантируют, что он идеально впишется (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+OV Cotin — вневременной шрифт с засечками, имеющий классическую основу и нотки современности. Украсьте свои проекты с помощью OV Cotin и позвольте его универсальному очарованию проявиться в любой версии. Откройте для себя сочетание традиций и инноваций с этой обновлённой версией!Формат: OTF, TTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C7C67534962002319185340A45FAAEC146142B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750516   (1469) от 22.09.2025
-
-Imminence - Studio Albums (8 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imminence — шведская металкор-группа из Мальмё и Треллеборга, основанная в 2009 году.2013 - Return to Helios (EP)
-2014 - I
-2017 - This Is Goodbye
-2019 - Turn the Light OnЖанр: MetalcoreПродолжительность: 07:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0C51341AFAD9BFC01D60DD75781C8B7EB6C688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819493   (1468) от 22.09.2025
-
-Serif Affinity Designer 2.6.3.3322 Portable by 7997 [Multi]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Все функции, инструменты, панели и параметры этого приложения, которое создавалось с нуля на протяжении более пяти лет, разработаны с учетом потребностей специалистов творческих профессий. В результате непрерывных инноваций и совершенствования (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C10C8C8BAC1CFD3F27E625343400FFD4EC1D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819515   (1467) от 22.09.2025
-
-Фотография - Proko - Poses for Artists - Hands [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позы рук для художников: мужские и женские. Они отлично подходят для практики рисования рук и изучения анатомии. Независимо от того, изучаете ли вы жесты, структуру, ракурс, штриховку, пропорции или просто ищете референс для иллюстрации.Формат: JPGРазрешение файлов: 1080x1920 - 4500x3375
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A02163DD169CE6545846B2F73E48F4CC0E1634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819425   (1466) от 22.09.2025
-
-Сергей Вялов | Желчь & Ферменты (2023) [MP3, Максим Чечель]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный гастроэнтеролог и гепатолог Сергей Вялов развеет мифы и средневековые предрассудки, а также ответит на вопросы о том, нужно ли гнать желчь и сколько ферментов понадобится для того, чтобы пищеварение работало правильно!
-Нужно ли гнать желчь? Сколько требуется ферментов для правильного переваривания пищи? Интернет переполнен противоречивой информацией на (   Читать дальше...   )Жанр: Гепатология, Диагностика и лечениеИздательство: АСТПродолжительность: 07:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515AF060E06AF14FC2F154E3392741A71D6A8B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819466   (1465) от 22.09.2025
-
-Мой дорогой убийца / Mio caro assassino (1972) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неуловимый убийца устраняет каждого, кто хоть на дюйм приблизится к его тайне — к давнему нераскрытому делу о похищении и последующем убийстве девочки и её отца. Душителю противостоит инспектор Лука Перетти. Он встречается с людьми, которые хоть как-то могут помочь в расследовании, а следующей же ночью приходит убийца... Как же найти маньяка, если его основная улика (   Читать дальше...   )Производство: Италия, Испания / B.R.C. Produzione S.r.l., Kramot Cinematografica, TecisaЖанр: триллер, детективРежиссер: Тонино ВалерииАктеры: Джордж Хилтон, Сальво Рандоне, Уильям Бергер, Марилу Толо, Мануэль Сарсо, Пэтти Шепард, Пьеро Лулли, Хельга Лине, Туллио Валли, Данте Маджио, Дана Гиа, Альфредо Майо, Моника РандальПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, итальянскийСубтитры: АнглийскиеПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C9FEC0D13CDF9897AE1766EA629CD8A410E2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819501   (1464) от 22.09.2025
-
-3D print - Nomnom Figures - Demon Slayer Extra Models [STL, LYS]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1464.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом месяце мы выпустили три мощных Хашира из Demon Slayer. Каждая скульптура была разработана с учетом их уникального присутствия: от тяжелых цепей Гёмея до яростной стойки Санеми и плавного спокойствия Муичиро в бою.Формат: STL, LYS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0266BBAB15C7F3FCD6407530F2C54F3A860294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819444   (1463) от 22.09.2025
-
-Декстер: Воскрешение / Dexter: Resurrection (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-10 из 10) NewStudio, HDrezka, Novamedia, LostFilm, WStudio, TVShows, LE-Production
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чудом избежавший смерти Декстер Морган отчаянно хочет сблизиться с сыном Гаррисоном, но боится ему навредить, ведь на мужчину ведет охоту бывший сослуживец. А в городе тем временем появляется опасный враг: миллиардер-психопат, манипулирующий людьми, и его телохранительница. Дорога к семейному счастью для Декстера рискует вновь стать кровавой.Производство: США / Counterpart Studios, Showtime StudiosЖанр: криминал, драмаРежиссер: Маркос Сига, Моника РеймундАктеры: Майкл С. Холл, Джек Элкотт, Нтаре Мвине, Джилл Мари Лоуренс, Джейсон Алан Карвелл, Дэвид Магидофф, Брайан Лиллис, Кристен Риттер, Джон Мария Гутьеррес, Уилл РоджерсПеревод: Многоголосый (NewStudio, HDrezka, Novamedia, LostFilm, WStudio, TVShows, LE-Production)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced,Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF4FACAB4BB4274FE24E10B6F21654851FCFF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819486   (1462) от 22.09.2025
-
-Смерть коммивояжёра / Death of a Salesman (1985) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионная экранизация одноимённой пьесы Артура Миллера о стареющем коммивояжёре-неудачнике. Вилли не вполне успешный коммивояжёр. Однако принять это не собирается. Биф, сын Вилли, хочет пойти по стопам отца, но попытки оказываются безуспешными. Кроме того, Биф узнаёт, что его отец изменяет матери. Ещё одна проблема - Вилли начинает ставить в пример Бифу своего (   Читать дальше...   )Производство: США / Punch Productions Inc., Roxbury ProductionsЖанр: драма, экранизацияРежиссер: Фолькер ШлёндорфАктеры: Дастин Хоффман, Кейт Рид, Джон Малкович, Стивен Лэнг, Чарльз Дёрнинг, Луис Зорик, Дэвид С Чандлер, Джон Полито, Кэтрин Россеттер, Том СигнореллиПеревод: авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 02:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9182A3DC436955C6B919D3706F5C83454C57CD15
+magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
 ```
 
 https://mybot314.ru/tekegram_catalog/

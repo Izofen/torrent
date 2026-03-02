@@ -1,3 +1,90 @@
+###  Публикация: 1623131   (1029629) от 31.03.2023
+
+Memoir Sonata - Seven Hills of Rome (2023) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ancien Régime [00:05:29]
+02 - Vitruvian Man [00:05:49]
+03 - The Rōnin [00:06:34]
+04 - Lawrence of Arabia [00:05:47](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC820F85FB5CF14D288B207361B54ABACAFCD130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622882   (1029602) от 31.03.2023
+
+Lordi - Screem Writers Guild (2023) [MP3|320 Kbps] <Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead Again Jayne [00:04:33]
+02 - SCG XVIII- Nosferiuz Horror Show [00:01:04]
+03 - Unliving Picture Show [00:03:47]
+04 - Inhumanoid [00:03:43](   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55961CAEC1E1DEA8B37A171F769DAA78D126AFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449903   (1029593) от 23.02.2021
+
+Balate - El Quemadero (2021) [MP3|320 Kbps] <Stoner, Doom Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Botas anchas, soga al cuello [00:06:58]
+02 - Gettin' old [00:06:10]
+03 - Raccoon Verbena Horror [00:06:34]
+04 - Procesionaria [00:04:33](   Читать дальше...   )Жанр: Stoner, Doom Metal, RockПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6F70B85E29CE3C75E5C9C4EF072708CBC99246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449659   (1029590) от 23.02.2021
 
 Caskets Open - Concrete Realms of Pain (2021) [MP3|320 Kbps] <Gothic Metal, Doom Metal>
@@ -658,93 +745,6 @@ Liquid Tension Experiment - LTE3 (2021) [MP3|320 Kbps] <Instrumental Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7440DFAF270F34EA04DD30CE8ADB6E18832F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457173   (1024640) от 25.03.2021
-
-Renacer - En Versiones Vol. 2 (2021) [MP3|320 Kbps] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deseando Destruir y Matar (04:38)
- 02. Tu Eres Su Seguridad (05:09)
- 03. Devastacion (05:45)
- 04. Duro Invierno (03:26)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA78FBF5EA88B54285931C7D888C6A55AC072F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457299   (1024435) от 26.03.2021
-
-Manntra - Monster Mind Consuming (2021) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Invocation [00:01:41]
-02 Heathens [00:03:45]
-03 Ori Ori [00:03:12]
-04 Slave [00:02:55](   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD7DEFD8E6C06B68FF06219E074F175368B781B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457282   (1024397) от 26.03.2021
-
-Ghosts of Atlantis - 3.6.2.4 (2021) [MP3|320 Kbps] <Symphonic Gothic Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Third Pillar [00:05:05]
-02. Halls of Lemuria [00:05:04]
-03. False Prophet [00:04:42]
-04. The Curse of Man [00:04:39](   Читать дальше...   )Жанр: Symphonic Gothic Metal, Melodic DeathПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C35130AD9CF2157631C5DB5CCA6DF02E2923ED6
 ```
 
 https://mybot314.ru/tekegram_catalog/

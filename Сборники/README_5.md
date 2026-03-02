@@ -1,3 +1,32 @@
+###  Публикация: 1809568   (4483) от 04.09.2025
+
+Сборники - Marco Ibanez - Super Combo: Ultimate Boudoir Posing guide + Original Dark and Moody LR Presets + Dark & Moody LR Presets Vol.2 [XMP, PDF]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что вам нужно для создания и редактирования потрясающих будуарных фотографий:
+
+Руководство по позированию, включающее более 100 различных поз (стоя, сидя, на полу, на кровати, на ягодицах и на диване) с точными инструкциями о том, как позировать клиентам, настраивать камеру и выбирать источники света.
+Original Dark and Moody LR Presets — 31 теплый тон, черно-белый (   Читать дальше...   )Формат: XMP, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F1E15FFFB20D57E4D4FE3EA0E01E2EFB9874D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816417   (4305) от 05.09.2025
 
 Сборники - Design Syndrome - Black Bundle [PSD, AI, SVG, PNG, ABR, EPS]

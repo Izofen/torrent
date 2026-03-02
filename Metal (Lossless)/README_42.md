@@ -1,3 +1,206 @@
+###  Публикация: 435874   (982391) от 13.01.2012
+
+Evanescence - Greatest Hits (2008) [FLAC|Lossless]<Gothic Metal, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982391.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Weight Of The World (3:35)
+2.Haunted (3:07)
+3.Where Will You Go (3:47)
+4.My Last Breath 	(4:06)(   Читать дальше...   )Жанр: Gothic Metal, Alternative |Продолжительность: 01:19:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355556   (982357) от 27.01.2020
+
+White Ward - Futility Report (2017) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deviant Shapes (7:23)
+02. Stillborn Knowledge (8:04)
+03. Homecoming (6:36)
+04. Rain As Cure (3:11)(   Читать дальше...   )Производство: Debemur Morti Productions – DMP 0151Жанр: Black Metal, Shoegaze, Post Black Metal, Atmospheric Black MetalПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759DC13DAFE0D3DCCD6B422D6AB59BD275A9F4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355559   (982356) от 27.01.2020
+
+White Ward - Origins (2016) Сompilation [FLAC|Lossless|Web-DL|tracks] <Black Metal, Post Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walls MMXV (8:02)
+02. When Gift Becomes Damnation (6:50)
+03. Inhale My Despair (7:53)
+04. Drowned In Cold (7:41)(   Читать дальше...   )Жанр: Black Metal, Post Metal, Atmospheric Black MetalПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F975A86F6B4E839B4BD96A0CE13D478260373783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792253   (982287) от 27.01.2020
+
+Fear My Thoughts - Vulcanus (2007) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accompained By Death [03:52]
+02. Blankness [03:46]
+03. Culture Of Fear [06:43]
+04. Accelerate Or Die [04:11](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083CAD32E30E1A80CEC7AE6D954FE75C9BCC7937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972663   (982081) от 06.01.2016
+
+Burning in Hell - 2 альбома (2004 - 2006) Discography Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Freedom
+02.Shadows of the Wars
+03.The End of the World
+04.Forever I'll Be Here(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1E5F82AB8B8A368C78BD99D843B4BB955E0F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972501   (982078) от 06.01.2016
+
+Rocka Rollas - Pagan Ritual (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Punic Wars (06:05)
+02. Gaulic Boare (04:25)
+03. Demigod (04:52)
+04. Lost In The Enchanted Forest (07:08)(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A3ADC58608806CE05C7538F58791414DE04F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972622   (982072) от 06.01.2016
+
+Kuni - Rock (2011) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Take off the Masque
+02.Freedom
+03.In the Dark
+04.Sweet & Danger(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1CED86DE91F394995ABD2B6F3B734C8A779416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972065   (982069) от 06.01.2016
 
 Casket - 3 альбома (1997 - 1998) Discography [FLAC|Lossless|image + .cue] <Gothic Metal>
@@ -570,212 +773,6 @@ Hate - Solarflesh (2013) Limited Edition [FLAC|Lossless]<Death Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614916   (975959) от 09.02.2013
-
-Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]<Alt.Metal >
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975959.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. This Time It's Different
-02. Crawl Inside
-03. Thank You
-04. Beyond The Stars
-05. Graveyard Of Empires
-06. Alone Not Lonely
-07. In The Shadow
-08. Live To Die(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt.MetalПродолжительность: 00:42:54 >>>
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974548   (975793) от 12.01.2016
-
-Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Man's Path
-02. Soul Razer
-03. Imperium (Kill Force Rising)
-04. Corporate Weaponry(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747EA57B4B16373D474B0C676355C9F6A2B8F938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974161   (975745) от 12.01.2016
-
-Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angst (Pride and Fall) 05:43
-02. Archer (Sun of the Sleepless) 04:29
-03. Game Over (Germ) 06:02
-04. Warp (Encephalon) 05:12(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BC68B15B7B9A79A5D63455D3D157CF3D886E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357036   (975452) от 02.02.2020
-
-Metallica - Helping Hands... Live & Acoustic At The Masonic (2019) [FLAC|Lossless|image + .cue] <Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disposable HeroesЖанр: AcousticПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5FEDBB5DEC986C2A4371600553C8B2474B283A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357215   (975376) от 02.02.2020
-
-Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Speed Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975376.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Armed To The Teeth [4:26]
-2 - The Attitude [4:02]
-3 - Psycho Ward [4:39]
-4 - I Am Warfare [4:47](   Читать дальше...   )Жанр: Thrash Metal, Speed Metal, Groove MetalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3944ADDD99EE1A541FD504CC1E09EE13031D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357031   (975280) от 02.02.2020
-
-Metallica ‎ - ..And Justice For Jason (Limited Edition, Enhanced and recovered bass sound!) (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackened (6:42)
-02. ... And justice for all (9:47)
-03. Eye of the beholder (6:28)
-04. One (7:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2742E30CBAD15E8691706ECA82F65D97BFE1F8CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904055   (974120) от 03.02.2020
-
-Wolfpakk - Discography 5 Releases (2011-2020) [FLAC|image +.cue]< Heavy Metal, Hard Rock >
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfpakk - немецкий проект, основанный вокалистами Mark Sweeney (CRYSTAL BALL) и Michael Voss (MAD MAX) исполняющий отменный тевтонский мелодичный хэви. В качестве гостей в записи альбомов принимали участие: Mark Fox (Shakra), Mark Boals (Malmsteen), Rob Rock (Impellitteri), Paul Shortino (Quiet Riot), Paul Di’Anno (Iron Maiden), Jeff Scott Soto (Talisman), Tony (   Читать дальше...   )01. Sirens 04:56
-02. Dark Horizons 04:19
-03. Lost 06:45
-04. Slam Down the Hammer 04:23(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 04:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CBF5FF5945BE4AAFFE696135F4E83AD79FC72F
 ```
 
 https://mybot314.ru/tekegram_catalog/

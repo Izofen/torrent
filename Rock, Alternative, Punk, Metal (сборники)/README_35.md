@@ -1,3 +1,32 @@
+###  Публикация: 1079472   (290158) от 06.12.2016
+
+Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. И на камнях растут деревья (256 Kbps)
+02. Кен и Барби (256 Kbps)
+03. Весна (256 Kbps)
+04. Камни (256 Kbps)(   Читать дальше...   )Жанр: Рок, фолкПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263402   (288010) от 19.11.2018
 
 VA - Back In Your Life (2018) [MP3|320 Kbps] <Alternative, Punk, Punk Rock>
@@ -717,35 +746,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6044E3363C882FE9C5D22FD1335EAB6D8D57DF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191010   (265764) от 11.12.2017
-
-VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265764.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. King Diamond - At the Graves (1989) (8:58)
-02. Innerwish - Spacerunner (1998) (4:31)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 07:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46DEB293AF28435FF365F821FD3D9B6107FB231
 ```
 
 https://mybot314.ru/tekegram_catalog/

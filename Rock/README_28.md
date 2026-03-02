@@ -1,3 +1,61 @@
+###  Публикация: 1283057   (741054) от 15.02.2019
+
+Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Head Games (Live)
+2. Feels Like the First Time (Live)
+3. Cold as Ice (Live)
+4. Hot Blooded (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021516   (740990) от 29.05.2016
+
+Mudcrutch - 2 (2016) [MP3|320 кб/с] <Rock, Country Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trailer    03:17
+02. Dreams of Flying    03:58
+03. Beautiful Blue    06:36
+04. Beautiful World    03:08(   Читать дальше...   )Жанр: Rock, Country Rock, Folk RockПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F012C5AFC0534CD1E60A560504010233B94C3AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021343   (740985) от 29.05.2016
 
 VA - Girls! The Ultimate Female Rockin' Rollin' Jivin' Album (1990) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
@@ -691,70 +749,6 @@ Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3B819C0F53C7B8C6601A0F7618075CBAA0BBAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207073   (723188) от 05.06.2010
-
-SAM GOPAL - Escalator (1969) [MP3|320 kbps]<Old Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Embrace (3:20)
-02. The Dark Lord (3:40)
-03. The Sky Is Burning (2:30)
-04. You're Alone Now (3:41)
-05. Grass (4:03)
-06. It's Only Love (4:18)
-07. Escalator (2:49)
-08. Angry Faces (4:03)
-09. Midsummer Night's Dream (2:14)
-10. Season Of The Witch (4:27)(   Читать дальше...   )Жанр: Old Psychedelic RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218729   (721385) от 10.04.2018
-
-Mgzavrebi - Krebuli (The Best) (2018) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Me Movigone
-2. Gaigvidza Bunebam
-3. Dzala Ertobashia
-4. In Vino Veritas(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D69FB90E0DCB748E0BF1A192D8F0290C9DE8F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

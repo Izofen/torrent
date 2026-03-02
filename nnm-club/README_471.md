@@ -1,25 +1,22 @@
-###  Публикация: 1602306   (1046143) от 05.01.2023
+###  Публикация: 1839388   (1046466) от 28.11.2025
 
-Paul Constable - Warmer Places (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Тоннель (2025) WEBRip [H.264] (сезон 1, серии 1-2 из 8) (обновляемая)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046143.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Warmer Places (2:55)
-02. Pay to Play (3:09)
-03. Hold On (4:08)
-04. Wasting Time (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:29
+Неподкупная таможенница Света Суворова всегда была слишком принципиальной для маленького городка, где всё решается по дружбе. По крайней мере до тех пор, пока финская мафия не похитила её мужа. Есть шанс вернуть его, но для этого Свете придется забыть о принципах и пойти на сделку с совестью.Производство: Россия | Team FilmsЖанр: Триллер, криминал, драмаРежиссер: Флюза ФархшатоваАктеры: Елизавета Боярская, Сергей Гилёв, Даниил Страхов, Таисья Калинина, Мамука Патарава, Влад Фурман, Александр Аверин, Кирилл Болтаев, Александр Семчев, Артём Рагузин и др.Продолжительность: ~00:46:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:931068AEE2EEE4148AA6045303C958BC22CE772A
+magnet:?xt=urn:btih:AB1F667C37EE45F8891D5A831A9F1E9043882E93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602278   (1046142) от 05.01.2023
+###  Публикация: 1839392   (1046465) от 28.11.2025
 
-Aerovokzal - Пропасть (2022) [MP3|320 Kbps] <Alternativo, New Wave>
+MInstAll v.27.11.2025 By Andreyonohov (ISO) [Ru]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Софт и оболочки для специалистов, Прочее
+>>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046142.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Мечта [00:04:22]
-02 - Я знаю [00:02:44]
-03 - Двери [00:03:20]
-04 - Письмо [00:03:15](   Читать дальше...   )Жанр: Alternativo, New WaveПродолжительность: 00:30:07
+Перед Вами обновленный 27 Ноября 2025 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD08FC8631C50DF4FE6EBBE90BE1CCD89D119D35
+magnet:?xt=urn:btih:41086A97C4416ECBD496B692AEF1176161B3427B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602286   (1046141) от 05.01.2023
+###  Публикация: 1839384   (1046464) от 28.11.2025
 
-Viky Abyss - В голове (2022) [MP3|320 Kbps] <Industrial Metal>
+Камеди Клаб / Комеди Клаб / Comedy Club (2025.11.28) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046141.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - В путь! [00:00:54]
-02 - Болен мечтой [00:03:45]
-03 - Весна [00:04:14]
-04 - Взрыв [00:03:30](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:27:08
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:45:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ABEFA12C670E078EF755698B4C565E663050718
+magnet:?xt=urn:btih:E7AB9A3B1241E4686E4F23EEAFA89F05CB5D4E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602505   (1046140) от 05.01.2023
+###  Публикация: 1839343   (1046463) от 29.11.2025
 
-Frostbitt - Machine Destroy (2023) [MP3|320 Kbps] <Nu-Metal, Math Metal, Progressive Metal, Djent>
+Россияне массово жалуются на сбой в WhatsApp
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046140.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. MACHINE DESTROY [00:03:40]
-02. Masked Ghost Host [00:03:25]
-03. Full Body Plutonium [00:04:11]
-04. Skeleton Dance [00:03:59](   Читать дальше...   )Жанр: Nu-Metal, Math Metal, Progressive Metal, DjentПродолжительность: 00:40:09
+По данным сервиса мониторинга «Сбой.рф», за сегодняшние сутки зафиксировано 944 жалобы на работу WhatsApp. Больше всего обращений пришлось на Москву (39 %), Санкт-Петербург (17 %), Свердловскую область (6 %), Московскую и Новосибирскую области (по 5 %). Также о проблемах сообщают пользователи из Татарстана, Башкортостана, Краснодарского и Красноярского краев, ряда (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:811C767AC04CBB8C271DDA7B44BD0696E5F927B1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602271   (1046139) от 05.01.2023
+###  Публикация: 1839003   (1046462) от 28.11.2025
 
-24x96 - Toxic Indie (2023) [MP3|320 Kbps] <Experimental Rock>
+Visualcapitalist: Китай опередил Европу по потреблению электроэнергии на душу населения на 30%
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046139.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Древесные слухачи [00:02:28]
-02 - Ксв [00:02:33]
-03 - Руморэ латино [00:03:36]
-04 - Редько-хреновый джем [00:01:14](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:32:05
+На основании данных обозревателя мирового энергетического сектора Ember’s Electricity Data Explorer Visualcapitalist составил мировой рейтинг стран по потреблению электроэнергии на человека в 2024 году в основных экономиках мира по сравнению с показателями 2000 года.На первом месте по потреблению электроэнергии на человека Канада: объем потребления в 2024 году – (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC29C4CA5DCA1DA3973BDAC7558155F29A03281E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,201 +128,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602450   (1046138) от 05.01.2023
+###  Публикация: 1601403   (1046461) от 01.01.2023
 
-Чарли Чейз. Его деревянная свадьба / His Wooden Wedding (1925) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли собирается жениться, и его шаферу (подлый интриган!) нужны две вещи: невеста Чарли и семейный бриллиант, который Чарли подарил ей в качестве подарка на помолвку. Поэтому он пишет Чарли анонимную записку, что у его невесты деревянная нога. Звучит глупо? Да, но это работает и следует несколько озорных,  веселых эпизодов.
-
-Прелесть великолепных комедий Чарли Чейза (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Гэйл Генри, Фред Десильва, John Cossar, Лэсси Лу Ахерн, Хелен Гилмор, Энн Ширли, Дороти Ширли, Лайл ТайоПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BF075668D92B54FD3EF824B63AB04BC037BA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602302   (1046137) от 05.01.2023
-
-Mark Pocket Goldberg - Off-Balance Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Matter of Time (4:03)
-02. What You Gotta Have (3:46)
-03. Babblin' Blues (4:10)
-04. Face in Disguise (3:46)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B274803356B7AC69C3F0184AC08C48E7C91374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602424   (1046136) от 05.01.2023
-
-In Reach - Waterline (1992) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterline
-02. Faded Love
-03. My Heart
-04. The Other Fall Of Cambrai(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E68F03C2EAB8E0755D821386E6ED2382BA1973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602295   (1046135) от 05.01.2023
-
-Lightnin' Malcolm - Eye of the Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lord Above (3:29)
-02. Crawlin Baby (3:55)
-03. Eye of the Storm (5:43)
-04. Modern Reminder (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386560CE383B1D1771C1A94B1435C561A139FF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602299   (1046134) от 05.01.2023
-
-Malaya Blue - Blue Credentials (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Act Has Worn Thin (2:56)
-02. Wrong Kinda Love (3:40)
-03. Oh What a Fool (3:50)
-04. I Can't Find No Love (4:47)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C3D051C7F36CF231559E212AF1F43EABC6B179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602300   (1046133) от 05.01.2023
-
-Замшелые Ягодицы - 3 Albums (2019-2022) 3 EP [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Интервенция отсев
-2021 - Энтропия
-2022 - Пытки музыкойЖанр: Progressive RockПродолжительность: 3 CD, 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48D485AD5C1756EE2784C5ACC5F8A488B19A19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602471   (1046132) от 05.01.2023
-
-Absolom - La Era del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+Doomster Reich - Blessed Beyond Morality (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046132.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ascension
-02. Relatos de la Humanidad
-03. La Era del Caos
-04. Rasputin(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:43:42
+01 - Discover Self-Love (13:39)
+02 - Spleen LXXIX (11:42)
+03 - Wish You Weren't Here (10:08)
+04 - Rape! (11:29)(   Читать дальше...   )Жанр: Psychedelic Doom MetalПродолжительность: 00:58:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FF6D3B35DF92AA1B8D9366191DA233BEAAB3205
+magnet:?xt=urn:btih:DD5EC797DD7CCE7182B004FA63A88274702F64A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +157,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602395   (1046131) от 05.01.2023
+###  Публикация: 1601273   (1046460) от 01.01.2023
 
-Astronoid - Radiant Bloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046131.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Admin
-02. Eyes
-03. Sleep Whisper
-04. Sedative(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:46:07
+01. UNMASKED (feat. Matt McDougal) [00:03:51]
+02. HYBRID PROCESS (feat. Landon Tewers) [00:04:16]
+03. NUMB LOCK [00:01:26]
+04. FUTURE DOOM [00:03:54](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 2 CD, 00:35:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7D70C107F730CB2C20387C571A4A583CD0D6840
+magnet:?xt=urn:btih:BEE0C42D19992E9046681D14C11B672D8ACEC4C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +186,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602303   (1046130) от 05.01.2023
+###  Публикация: 1601642   (1046459) от 01.01.2023
 
-Нет Крови - 3 Albums (2019-2023) [MP3|320 Kbps] <Gothic, Heavy Metal>
+Павел Сурожский | Строль и Фиериль (2021) [MP3, Маленький Фонарщик]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046130.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2019 - Под луной, Part 1 (Version 2019)
-2020 - Под Луной, Pt.2
-2022 - Под Луной, Pt. 3Жанр: Gothic, Heavy MetalПродолжительность: 3 CD, 02:48:07
+Сказка о Бабочке и Лучике Солнца. Была опубликована в 1923 году в книге П.Сурожского «Ветка полыни».
+Музыкальное сопровождение - Марк Манчина «Августовская колыбельная».Жанр: Детская литература. СказкаПродолжительность: 00:16:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E19B40B1643D69105269F0CB2354A1AD5EE5CC44
+magnet:?xt=urn:btih:CBF7EC5C8DC828D28F322694E42E62DB09AF0D3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +213,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602294   (1046129) от 05.01.2023
+###  Публикация: 1601567   (1046458) от 01.01.2023
 
-ДекаЛог - 2 Albums (2019-2022) [MP3|320 Kbps] <Industrial>
+Хоккей. НХЛ 2022-2023. Монреаль Канадиенс - Вашингтон Кэпиталз (31.12.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046129.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Нам нужна любовь [00:04:46]
-02. Ты далеко [00:03:58]
-03. Кто ты [00:03:16]
-04. Ад для нас [00:04:32](   Читать дальше...   )Жанр: IndustrialПродолжительность: 2 CD, 01:35:52
+1 января 2023, воскресенье. 00:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада)Телекомпания: NBCSWAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B92909552D611A3646B9B069005673C7230E56A
+magnet:?xt=urn:btih:08B4A4C67486C779871D092182763710AE2466B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,231 +240,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602266   (1046128) от 05.01.2023
+###  Публикация: 1601652   (1046457) от 01.01.2023
 
-Istomin - Пустошь (2023) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Предисловие [00:01:25]
-02 - Аспид [00:05:12]
-03 - Первый полет [00:04:40]
-04 - Обречены [00:04:33](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC2A4E3227D6FBAB8BC20E9E29622BA4B548504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602301   (1046127) от 05.01.2023
-
-Maria Katseva - My First Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1 (2:50)
-02. Ny (4:25)
-03. Ma Gal (4:01)
-04. Cause (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD293379DDC02F1515C82D1022EF412D9F52A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602279   (1046126) от 05.01.2023
-
-Треснул Шлем - Мой компас загружен (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Прет барсук [00:04:10]
-02 - Препарат [00:03:22]
-03 - Гавайи [00:04:08]
-04 - Волшебник [00:03:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0AD4924FD089DC2A1DAA18AED1D960443B0DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602281   (1046125) от 05.01.2023
-
-Оле Лукойе - Танцы железных дорог (2022) [MP3|320 Kbps] <Alternative, New wave, Post-punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Танцы железных дорог [00:07:57]
-02 - Наблюдатель [00:04:26]
-03 - Это приказ! [00:04:33]
-04 - Поля Великой Любви [00:03:54](   Читать дальше...   )Жанр: Alternative, New wave, Post-punkПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BDC611290D1FDF9C3FD6E65563A3AFD72CE9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602258   (1046124) от 05.01.2023
-
-Sicarios - Крысиный король (2023) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:01:44]
-02 - Триггер [00:03:51]
-03 - Плоть [00:04:06]
-04 - Бэд Трип [00:03:48](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C63A0DF51C5560CF6290883A8212C94E7965D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602492   (1046123) от 05.01.2023
-
-Радиант - Легенды далёких миров (2022) [MP3|320 Kbps] <Power Metal, Symphonic Metal, Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Пролог [00:04:11]
-02 - Радиант [00:04:38]
-03 - Первый шаг [00:04:41]
-04 - Долг и честь [00:05:18](   Читать дальше...   )Жанр: Power Metal, Symphonic Metal, Metal OperaПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539C41BBEB28DA81BD94C2778DCCAEAE46E6B78A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602426   (1046122) от 05.01.2023
-
-V.A. - Soothing Sounds: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Estacion Del Mar – Bajo Un Sombrero De Paja
-02. Ann Grace – Transmisiones
-03. Matt Sour – Celebrating The Last Day
-04. Free Spirit Muse – Waves Of Shambala 432Hz(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7363520B5D4CEBC1F4E55657C34B349D9BB2E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602503   (1046121) от 05.01.2023
-
-Dario Mollo / Tony Martin - The Cage (1998) Japanese Edition, Reissue, 1999, King Records [FLAC|Lossless|image + .cue] <Heavy Metal>
+Crowbar - The Serpent Only Lies (2016) [FLAC|Lossless|image + .cue] <Sludge, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046121.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект экс-вокалиста Black Sabbath01. Cry Myself To Death
-02. Time To Kill
-03. The Cage / If You Believe
-04. Relax(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:13
+01. Falling While Rising
+02. Plasmic And Pure
+03. I Am The Storm
+04. Surviving The Abyss(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:45:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C10D3AB7E0C6E5EF6D61D5D0195382076ED2ACDA
+magnet:?xt=urn:btih:CCE29BF6F5B021608DD9E028A2220BB7890AEE45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,57 +269,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602499   (1046120) от 05.01.2023
+###  Публикация: 1601625   (1046456) от 01.01.2023
 
-Гардарика - Летопись (2022) [MP3|320 Kbps] <Hard'N'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Наша доля [00:04:35]
-02 - Медовый день [00:05:38]
-03 - Город [00:05:35]
-04 - Ария Дождя [00:04:54](   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFAD4C39E2226ABEF8856CA8B03A2E029F9B4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602332   (1046119) от 05.01.2023
-
-Lee Wiley - Sings The Songs Of Rodgers & Hart And Arlen (1940 - 1943) 1986, Audiophile [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Eric Reed - Everybody Gets The Blues (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046119.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Baby's Awake Now [3:12]
-02. Here in My Arms [3:25]
-03. You Took Advantage of Me [2:53]
-04. A Little Birdie Told Me So [3:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:12
+01. Everybody Gets the Blues [3:49]
+02. Cedar Waltzin'/Don't You Worry 'Bout a Thing [8:23]
+03. Naima [5:28]
+04. Martha's Prize [7:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0262E1D2BAF6CDCFB4A81DD3A3B17839F2D46ABF
+magnet:?xt=urn:btih:9438A4AFCFB9E9F96F59D4846E8B25807248C814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +298,434 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602494   (1046118) от 05.01.2023
+###  Публикация: 1601534   (1046455) от 01.01.2023
 
-Поднебесье - Вслед за мечтой (2022) [MP3|320 Kbps] <Heavy Metal>
+Combat Shock - Everything Goes Wrong (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046118.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Вслед за мечтой [00:03:21]
-02 - Две звезды [00:03:52]
-03 - Город [00:05:00]
-04 - В поисках истин [00:05:29](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:31
+01. Power Abuse [00:03:23]
+02. Enemy [00:03:44]
+03. Digital Warfare [00:02:09]
+04. Crusade (Against This World) [00:03:17](   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:24:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6A0E16E87560CFC1FEFF6EE738C5387E9DCA825
+magnet:?xt=urn:btih:FB6B6597532B1ECAFB78FA206C3EAB62F01D26C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601452   (1046454) от 01.01.2023
+
+Randall Breneman & Lincoln Grounds - Hell For Leather (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul & Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things You Forget (2:45)
+02. Get It Got It Gone (3:23)
+03. Gasoline Road (3:07)
+04. Deadpan Rain (3:31)(   Читать дальше...   )Жанр: Blues, Soul & FunkПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803D2B3C7953DB621ED19776E096857FC1A98D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601678   (1046453) от 01.01.2023
+
+Green King - Hidden Beyond Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gates of Annihilation (03:54)
+02 - Godkiller (05:08)
+03 - Prelude to Massacre (01:19)
+04 - Steel on Ice (04:37)(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046A29E7F459C3919C45B4BB30A5B0E2CA8DF190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601619   (1046452) от 01.01.2023
+
+Crowbar - Zero And Below (2022) [FLAC|Lossless|image + .cue] <Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fear That Binds You
+02. Her Evil Is Sacred
+03. Confess To Nothing
+04. Chemical Godz(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8BB382834C961EAB70AEDEF907BBD19AF9C5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601600   (1046451) от 01.01.2023
+
+A Vintage Death - Gruesome Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Glimpse of Penance (6:30)
+02. Vetusto I (6:02)
+03. Vetusto II (4:39)
+04. Vetusto III (4:38)(   Читать дальше...   )Жанр: Blackened Doom, Death MetalПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F22ABE04B1BD1FB9B83CCD27DC3100B6F8C8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601470   (1046450) от 01.01.2023
+
+Zavala Sol - Zavala Sol (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Lovin Blues (3:46)
+02. Momma Says (3:54)
+03. 25 to Life (3:34)
+04. Big Legged Woman (5:49)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B17E605A0169091C65C6B85AA7048B86D7F599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601467   (1046449) от 01.01.2023
+
+The Hangan Brothers - Mars Market (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slippery Road (5:32)
+02. Blues for Christmas (4:29)
+03. Jive-7 (3:07)
+04. Mercy (Might Not Be Enough) (4:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49601E5A5FFE491F26D92D01B06D755B179E2BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601455   (1046448) от 01.01.2023
+
+Rob Galbraith - What's A Half Step Among Friends? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Been Down (live in studio) (4:35)
+02. One Way Lovin (live in studio) (5:33)
+03. Oh Me Oh My (4:40)
+04. One Room Country Shack (5:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5008E6A0138BAB9CF191DA4E668E0BEEEA236BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601651   (1046447) от 01.01.2023
+
+Energema - Hunter of Immortals (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mirrors in the Dark (Overture) (01:26)
+02 - Dracula (03:56)
+03 - Castelul Bran Caprice (01:13)
+04 - Hunter of Immortals (05:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015328A62E3B507244769609C28851D16E59B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601445   (1046446) от 01.01.2023
+
+Nalani Rothrock - The Rock House Sessions (Extended Cut) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Close My Eyes (4:43)
+02. Fool for You (3:36)
+03. Just Before I Go (3:19)
+04. Hold On (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0381F6E88EC6EF7D2F90D58364E01E9F23D9CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601461   (1046445) от 01.01.2023
+
+Sancho - A Good Time Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boring Autumn Rain (4:49)
+02. Lucky Man (3:49)
+03. I Love You (4:07)
+04. You Can Stop (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7DDFADFDE7420AAD2AA2115BE7FD4C6397AB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601522   (1046444) от 01.01.2023
+
+Най - Bloodyвосток 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Местное время 20:22 [00:01:07]
+02. В мавзолее пересменка [00:03:14]
+03. Танцы [00:04:22]
+04. Война будет... (Extended Mix) [00:04:11](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BD8AEA42F32DC806CD1F6D60E1C98550656FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601532   (1046443) от 01.01.2023
+
+Joe Riley - The Axeman Unleashed (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psycho Clown [00:04:12]
+02. In Black [00:04:30]
+03. Loud as Hell [00:03:04]
+04. Fine Line [00:04:16](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8092635D2C3229C7CC66C1A68A26CDF29AE9930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601447   (1046442) от 01.01.2023
+
+Randall Breneman & Lincoln Grounds - Gun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul & Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edge Of Destruction (2:58)
+02. Trouble (3:34)
+03. Wake Up (2:48)
+04. Gun (3:06)(   Читать дальше...   )Жанр: Blues, Soul & FunkПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2390AFE7F975C3D8B8999E7C19977F7ACF959237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601465   (1046441) от 01.01.2023
+
+Stan Mosley - No Soul, No Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Back To Collect (4:12)
+02. Blues Man (No Soul, No Blues) (3:40)
+03. I Can't Get Next To You (4:10)
+04. This Train (1:26)(   Читать дальше...   )Жанр: R&B, Soul, BluesПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8A0EE4580B6BB597554575A75A1DECB5C25EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1205825   (783132) от 11.02.2018
+
+3D модели - Daz 3D - Victoria 8 Pro Bundle - 43677 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Victoria 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53A694A20DEEBD175CBABCEA68368843E150168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390572   (782674) от 16.06.2020
 
 Растровый клипарт - Elements Collage 79 [PNG, PSD, JPG]
@@ -667,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0EBC2688723B780C7699B04D730AC09AFD4BEDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206467   (782085) от 14.02.2018
-
-Растровый клипарт - Deeezy - Funny Furry 3D lettering / Смешной пушистый 3D алфавит [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смешной пушистый алфавит в 3D, цветной. Латиница.Формат: PNGРазрешение файлов: 1000 x 1000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBD6BD5D8A1713DF750589F9CBC604919104914
 ```
 
 https://mybot314.ru/tekegram_catalog/

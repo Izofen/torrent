@@ -1,3 +1,29 @@
+###  Публикация: 1176573   (369206) от 22.10.2017
+
+Экшены - GraphicRiver - Tech Sketch Photoshop Action - 20729681 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tech Sketch - этот экшен фотошоп поможет вам создать реалистичный карандашный эскиз изображения из ваших фотографий. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53765D8558D86C2DB7762CF66B4A0F586ED7990C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176616   (369196) от 22.10.2017
 
 Digital Juice - Jump Backs: Volume 20 - Subtle Impact [MOV]
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A67474F156FECFA241ECC091FAB0280DEDB1BF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070651   (366541) от 07.11.2016
-
-Экшены - GraphicRiver - Ninja Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ninja - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07D063FBBB6C0A532AD457EED10D1DA275D1007
 ```
 
 https://mybot314.ru/tekegram_catalog/

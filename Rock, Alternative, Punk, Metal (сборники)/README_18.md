@@ -1,3 +1,32 @@
+###  Публикация: 1530101   (730769) от 09.02.2022
+
+Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation Album) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Darkwave, Gothic Rock, Post-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalt
+02. Glimmer Og Aska
+03. Lítil Dýr
+04. Næturdætur(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Post-PunkПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDA606581BC786DDC220419D23D0C7647B34727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127586   (730595) от 22.04.2017
 
 VA - Hits of My Soul Vol. 26 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
@@ -719,35 +748,6 @@ Cryptic Abyss - Feed 'Em To The Sea (2016) [MP3|320 кб/с] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2A66C3A72E83DF98B5F13219B7D68703E86D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025591   (710107) от 12.06.2016
-
-Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blacker Than
-02. A Nightmare Phantasm
-03. Klendathu
-04. The Horror In Clay(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3B7F5078B9DD24E4A13114C2F30337CDD3E14B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1290763   (674328) от 22.03.2019
+
+Alice Merton - Mint (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learn to Live (03:56)
+02. 2 Kids (03:31)
+03. No Roots (03:57)
+04. Funny Business (03:06)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855E7508CF07E8DF98BC879357617767DE26E08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536278   (672657) от 13.03.2022
+
+Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Happy It Hurts (3:35)
+02. Never Gonna Rain (3:18)
+03. You Lift Me Up (3:08)
+04. I've Been Looking For You (2:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D1D6AEA2800F9CFC5AE768FDAAFAE2D423D499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291286   (672460) от 23.03.2019
+
+VA - Miami Heat (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Cut The Music (Original Mix)
+02. Audio Jacker - I Believe (Original Mix)
+03. Serial Thrilla - Waitin' (Original Mix)
+04. Discotron - Head Nod Ish (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C67CD9FF1C5F98D0991E7055D2A4368798ADDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030684   (672294) от 01.07.2016
+
+VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Funk, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Candle In The Wind
+02. George Michael - You Have Been Loved
+03. Lisa Stansfield - Don't Cry For Me
+04. Seal - Kiss From A Rose(   Читать дальше...   )Продолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA8E0A187AA85849F6C23E1B126C9C873DC27C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291275   (672222) от 23.03.2019
 
 VA - Car Hits: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Disco>
@@ -629,122 +745,6 @@ The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224676   (664868) от 11.05.2018
-
-John Travolta - John Travolta (1998) 2001 Compilation, Reissue [FLAC|Lossless|image + .cue] <Ballad, Rock & Roll, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.		All Strung Out On You
-2.		Big Trouble
-3.		Greased Lightnin'
-4.		Let Her In(   Читать дальше...   )Жанр: Ballad, Rock & Roll, Pop RockПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF11DD7CCA0A81B840E2251F78A48CBEF310412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224631   (664862) от 11.05.2018
-
-The New Seekers - The Best Of The New Seekers (2000) [FLAC|Lossless|image + .cue] <Pop, Ballad, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I get a little sentimental over you
-  2. You won't find another foll like me
-  3. Fire and rain
-  4. All Right My Love(   Читать дальше...   )Жанр: Pop, Ballad, Easy ListeningПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDD03B60C8C36A747369B3BC7A2B47BC02B8C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138535   (664214) от 29.05.2017
-
-Stars On 45 Proudly Presents The Star Sisters - Tonight ! 20.00 Hrs. Remix (2007) [FLAC|Lossless|image + .cue] <Europop, Schlager, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Sisters Remix 2007  (03:44) 
-02. A Tribute To Marilyn Monroe  (04:23) 
-03. Alexander's Ragtime Band  (03:07) 
-04. Cry Me A River  (03:53) (   Читать дальше...   )Жанр: Europop, Schlager, EurodanceПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4637E5D81BCF9496F545ED64B2A31EAEF047C25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538002   (663289) от 20.03.2022
-
-VA - Delicious Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maroon 5 - Sugar
-02. OneRepublic - Counting Stars
-03. Shawn Mendes - There's Nothing Holdin' Me Back
-04. Katy Perry - The One That Got Away(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE77C0CA1ADAD43F30C0E133803F7E50088C1CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

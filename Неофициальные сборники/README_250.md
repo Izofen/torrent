@@ -1,3 +1,207 @@
+###  Публикация: 894531   (707306) от 02.05.2015
+
+VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2illusions - The Feeling Dance (05:01)
+002. Gold Lounge - On the Sea (05:38)
+003. CJ RcM - My Love (Original Mix) (05:10)
+004. Sine - Wolke 7 (04:17)
+005. Fowler & Branca - Turning Leaves (04:18)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A005A5FA03ECFEF082A20B9C76B4D92A4245BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286976   (707120) от 05.03.2019
+
+VA - Mastodon (2019) [MP3|320 Kbps] <Hard Rock, Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707120.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Old Red Skin - Three Plagues
+002. Warmarshal - Armageddon Awaits
+003. Serpents Kiss - Dragon Lord
+004. Kobra And The Lotus - Losing My Humanity(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 11:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E8B75F8C0C1686C75FC8EA7753B5B4ADBD7244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287051   (707107) от 05.03.2019
+
+VA - Partybreaks and Remixes - All In One November 001 (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Electronic, Eras>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jeff92 & Sumania  Alan Cook - Do You Want To Stay (Jeff92 & Sumania Redrum)
+002. Collini  Basslovers United - A+ Superstar (C - Baumann Remix)
+003. Jeff92 & Sumania  Company B - Fascinated (Jeff92 & Sumania Redrum)
+004. Frankie Steel   Clean Bandit,  Julia Michaels - I Miss You (Trp Remix)(   Читать дальше...   )Жанр: Disco, Funk, Soul, Electronic, ErasПродолжительность: 10:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287026   (707105) от 05.03.2019
+
+VA - Brooklyn Bounce (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707105.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 22Bullets - Konichiwa
+002. Max Grade - Emotion (Original Mix)
+003. Albatros 67 - Play pen
+004. Zafer Atabey - A Sad Song (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D8013C99A3003D3E896EF7DDA1B81534B97387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287060   (707101) от 05.03.2019
+
+VA - не Громкие новинки недели 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Саша Санта - Не Улетай
+02. Ольга Горбачева - Оля Оля
+03. T1One & Inur - Вино Помогает
+04. Rode - Fuck You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BFC6549D611BC200462CFC61FAF83BBDADF535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131633   (707082) от 06.05.2017
+
+VA - Club Dance Ambience Vol.107 (2017) [MP3|256-320 Kbps] <Club House, Vocal House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707082.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alaa VS Mark Krupp & Deeroll - Fire Of Us  (Mark Krupp Rework 2017) 5:38
+002. Alan Walker & Dj Prezzplay - Faded (Dj Brunett Mashup) 4:27
+003. Alex Mica - Daleina (Art Fly & O'Neill Official Remix) 3:48
+004. Alex Ross Ft. Dakota & T-Pain - Dreams (Original Mix) 3:18(   Читать дальше...   )Жанр: Club House, Vocal House, Electro HouseПродолжительность: 07:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADF90A90C8A8D84A95062E19401D44CB82CDDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533222   (707043) от 23.02.2022
+
+VA - Good Feeling 10s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WALK THE MOON - Shut Up and Dance
+02. Delta Goodrem - Sitting on Top of the World
+03. One Direction - What Makes You Beautiful
+04. P!nk - Raise Your Glass(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A3ECE395A34C027359D70267F4CFD54EFB99FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287109   (706976) от 05.03.2019
 
 VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
@@ -553,209 +757,6 @@ VA - New Age Style. Mystical Dance. 2CD [Бутлег] (2009, 2010) [MP3|192-320
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401986   (705608) от 12.08.2020
-
-Rave The Reqviem - Darkly, powerfully (best) (2014-2018) Compilation Album [MP3|320 Kbps] <Industrial, Drum n Bass, Dubstep>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon
-02. Black Dog Baptized
-03. Heroin(E)
-04. Ikaros(   Читать дальше...   )Жанр: Industrial, Drum n Bass, DubstepПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963B0A9911D0B57FFBC1DED1CEBA7A9212304379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287174   (705521) от 06.03.2019
-
-VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rеd Sеа Grооvеs - Thе Futurе Is Unwrittеn
-002. Gt 55 - Rеd Cоlоr
-003. Sоul Brоthеrs - Summеr In Thе Citу
-004. Piеr 17 - Dосk (Originаl Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08 :00 :11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D6B1EC51E938CBF79673C29BB0E7C9517726F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131799   (705403) от 07.05.2017
-
-VA - Драйвовый молодежный весенний музон выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705403.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимур Спб - Лучшая Подруга 3:27
-002. Евгений Дворянинов - На Желанье 3:25
-003. Наталья Морозова - Холодом 3:25
-004. Егор Крид & Molly - Если Ты Меня Не Любишь 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0339EFC21C6974BD342D7BF07DC4F68B2B3BF06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131801   (705390) от 07.05.2017
-
-VA - Русский отрыв Русского радио. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705390.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Swanky Tunes - Летели Облака 2:27
-002. Tommy Feat. Helena-Shadia - Притяжение 4:40
-003. Пропаганда - Мяу 3:27
-004. Автобус - Слышишь 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AA42F77D6E06B2B226151477BF4E07FAEB22E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131797   (705388) от 07.05.2017
-
-VA - Весенняя 100-ка популярных треков выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Саша Санта - По Платьицу 3:39
-002. Прогульщики - We Are Young 4:03
-003. Samoel - Я Не Такой 3:58
-004. Егор Крид - Самба Белого Мотылька 3:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CEDFFB554294E727918B7BFDD29E67A3A44953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287176   (705364) от 06.03.2019
-
-VA - New Music Releases Week 9 (2019) [MP3|192-320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705364.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Chainz, Ariana Grande - Rule The World
-002. 2 Chainz, Travis Scott - Whip
-003. 3LAU, Justin Caruso, Iselin - Better With You
-004. 68 Beats, Robbie Rivera - Jack To The Bassline (Robbie Rivera Remix)(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 10:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6353C5EE407E9BE033E44959C27EDA68622182C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131806   (705229) от 07.05.2017
-
-VA - Весенний хит русского шансона выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Бородин - Старый Альбом 4:00
-002. Сергей Рудов & Леонид Рудов - Родной Поселок 3:59
-003. Ирина Коган - Мани 3:55
-004. Слава Прибрежный - Костюм В Полосочку 3:57(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3F9C5DDBFF054F6E546A69948500062FF45E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1106060   (873831) от 19.02.2017
+
+VA - Зимняя русская радиоволна. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873831.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alekseev - Держи Меня 4:37
+002. Supernova - Я И Мои Девочки 3:09
+003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
+004. Султан (Sultan) - Она Моя 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C1E325ABF4FDFFA36A0E5F7AA550ED1D58DD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997487   (873771) от 17.03.2016
+
+VA - 100 Hits Winter  Vol.2 (2016) [MP3|320 кб/с] <Pop, Dance, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yall feat Gabriela Richardson- Hundred Miles.mp3
+002. Julian Perretta- Miracle.mp3
+003. Jain- Come.mp3
+004. Madcon feat Ray Dalton- Don't Worry.mp3(   Читать дальше...   )Жанр: Pop, Dance, Hip-Hop, RnBПродолжительность: 05:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC16C2CB9FD1B546FCFA96A29115D9B84AA2F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106055   (873748) от 19.02.2017
+
+VA - Зимняя сотка хитовая. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873748.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Орлова - Девушка Простая 3:35
+002. Потап & Настя - Золотые Киты 2:13
+003. Alexno - Перенапряжение 3:16
+004. Гена Селезнев - Ливни 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208147425645150281E7C875C36A034B1134813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106272   (873746) от 19.02.2017
+
+VA - Empire Records - Dancenudisco 9 (2017) [MP3|243-320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Millett, Juan Kidd, Felix Baumgartner vs Siente - Now Youre Gone (Gumanev & Cosmos DeepTool)
+02. Sterling Void - It's All Right (Eric Kupper Remix)
+03. Melih Aydogan - You Tell Me (7Even Remix)
+04. Alien Disco Sugar - What You Feel(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B6AC856AFF6291A0C868DF52696952BD7B6D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106318   (873745) от 19.02.2017
+
+VA - Euphonic Traveller: Tropical Chill Zoone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bananaquit - Hold Me Up
+002. Soda Lounge - The Love We Share (Radio Edit)
+003. Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)
+004. Omaya - We All Do - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 10:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A5ACE72CF916A7CD2D5F45D66E1575C7BA7C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106037   (873742) от 19.02.2017
+
+VA - Зимние лучшие блатные песни. Сборник № 8 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Централ - Соскучился 4:08
+002. Андрей Шпехт - Придет Весна 3:52
+003. Максим Апрель & Светлана Тернова - Глупая 3:37
+004. Смирнов & Компания - Роман 3:24(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F73D4EB070ABA602760758A573243AB6C8204A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106262   (873741) от 19.02.2017
+
+VA - Club Dance Ambience Vol.102 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Tujamo - Boom ( BimBo & El Matex Bootleg )  4:06
+002.  Armin van Buuren & Sharon Den Adel - In And Out Of Love (DJ Ramirez & YASTREB Remix)  4:13
+003.  Lx24 - Уголек (Premium  Art Remix)  4:32
+004.  Martin Garrix & Dua Lipa - Scared To Be Lonely (DJ DMC Remix)  5:12(   Читать дальше...   )Жанр: House, Mash Up, Dance, ClubПродолжительность: 07:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118E13D67190E0AB98075F61A18D1E8F2B7D79EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106133   (873739) от 19.02.2017
 
 VA - Снегопад новинок. Выпуск 10 (2017) [MP3|256 Kbps] <Pop>
@@ -540,206 +743,6 @@ VA - The Herbal Chillout (2021) [MP3|320 Kbps] <Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF5082D1BFC6A084279C12F4F81BEF7BBD5C70CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496394   (873195) от 17.09.2021
-
-VA - A New Harmony: Experimental Electronic (2021) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873195.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tlabs - Let Loose
-002. Forty Cats - Ledokol
-003. Shay De Castro - Watching Me
-004. Bitler - Rhytmichally(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 11:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E440B3522D971474E1425AF8B4CF135DB7798E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300939   (873124) от 26.02.2011
-
-VA - Союз весенний (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8A97975C6D47085C154BC4B37922B83E5B8C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496441   (873030) от 17.09.2021
-
-VA - Summer Escape: Deep House Mixtape (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Magitman - Knock About
-002. Joe Morris - Moments In The Snow
-003. Gmj - Rite Of Passage
-004. Xxxy - Eroma(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410A6149EDB3BBDD3989AA1E518EA8B459FF3731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496449   (873026) от 17.09.2021
-
-VA - The Sedated Harmony (2021) [MP3|320 Kbps] <Vocal House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873026.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Riot Ten & Whales - Save You
-002. Yves V - Echo
-003. Belcampo - Your Kissing
-004. Laminin Music - Moments Of Bliss(   Читать дальше...   )Жанр: Vocal House, Club, DanceПродолжительность: 07:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8197D781DE746837423E90D5B72872D8A14529E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496212   (873014) от 17.09.2021
-
-VA - Mega Hits Austria (2021) [MP3|320 Kbps] <Dance, Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Follow You
-02. Glockenbach, ClockClock - Redlight
-03. twocolors - Lovefool
-04. Rea Garvey, Vize - The One(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 05:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09A68664D15B3C547ABFBC55B10F1A6A54EF4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496411   (873012) от 17.09.2021
-
-VA - Hip Hop Caramel (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Madlib - Sound Ancestors
-002. Josylvio Ft. Lijpe - Day One
-003. Lil Peep - Beat It
-004. Sullynomad - Cult Classic(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 08:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8CCE485FC8252BDF66C2F78AEEF8814AA8269E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374390   (872985) от 10.04.2020
-
-VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dayseeker - Already Numb
-002. Dylan Leblanc - I See It In Your Eyes
-003. Temples - It's All Coming Out
-004. Scott Lavene - Modern World(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 06:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
 ```
 
 https://mybot314.ru/tekegram_catalog/

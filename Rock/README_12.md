@@ -1,3 +1,61 @@
+###  Публикация: 1490617   (917523) от 21.08.2021
+
+Dangerous Curves - Summertime Highs (2021) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In Those Eyes [00:03:45]
+02 - My Oh My (Get What You Need) [00:03:28]
+03 - I Like It [00:02:56]
+04 - Good and the Bad [00:04:04](   Читать дальше...   )Жанр: Hard-Rock, Glam-MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77153204C513B95225DFB4931A194F51EEDC3CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490642   (917518) от 21.08.2021
+
+Saga - 6 Albums (1978-1985) Remastered 2021, earMUSIC [MP3|320 Kbps] <Progressive-Rock, Crossover-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Loose (4:13)
+02. Time's Up (4:03)
+03. Wind Him Up (5:48)
+04. Amnesia (3:29)(   Читать дальше...   )Жанр: Progressive-Rock, Crossover-ProgПродолжительность: 6CD, 04:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9687BFADE1B8334F3D669A22FCFAA96888CA2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989226   (917371) от 22.02.2016
 
 Conqueror - Madame Zelle (2010) [MP3|320 кб/с] <Rock, Prog Rock>
@@ -681,64 +739,6 @@ Andy Logan & The O.C. 75s - Transistors of Mercy (2016) [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB424C9525B38151BCA56A3E7F38C682D52BD96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369315   (903495) от 23.03.2020
-
-Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Shook Me All Night Long
-02. T.N.T.
-03. Dirty Deeds Done Dirt Cheap
-04. Highway To Hell(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112383708EE5FB698940A3E6A1FACD62E6033316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369345   (903129) от 23.03.2020
-
-Deep Purple - Best Of (2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke On The Water
-02. Hush
-03. Woman From Tokyo
-04. Knocking At Your Back Door(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6454D8FB913741F1C87713645FF6E5E9465114B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

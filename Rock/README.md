@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1855527   (1058749) от 26.02.2026
+
+Altin Gün (Altin Gun) - 5 Albums (2018-2026) In Turkis [MP3|320 Kbps] <Anatolian-Rock, Psychedelic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+(2018) On
+(2019) Gece
+(2021) Yol(   Читать дальше...   )Жанр: Anatolian-Rock, Psychedelic-RockПродолжительность: 5 CD, 03:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371F390D7011CD2983D4782E9F9AB16DEF196C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856149   (1058746) от 26.02.2026
+
+The Neal Morse Band - L.I.F.T. (2026) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning (06:48)
+02. Fully Alive (05:02)
+03. I Still Belong (03:32)
+04. Gravity's Grip (02:03)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445EEBCD4971561DF2AB87583423AA5ABFEAACAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853693   (1056580) от 14.02.2026
 
 The Beach Boys - We Gotta Groove - The Brother Studio Years (2026) Super Deluxe Edition [MP3|320 Kbps] <Pop-Rock>
@@ -687,64 +745,6 @@ Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6BB07881C18F6E4AEFD89279C181B8C689E506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605468   (1044811) от 18.01.2023
-
-Eric Clapton - Time Pieces - The Best Of Eric Clapton (1982) Remastered, 2014, Audio Fidelity [OGG Vorbis|470 Kbps] <Rock, Blues Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Shot the Sheriff
-02. After Midnight
-03. Knockin' on Heaven's Door
-04. Wonderful Tonight(   Читать дальше...   )Жанр: Rock, Blues Rock, Soft RockПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1873F46E09B7995119E65FC2EBF7C56DF9B13FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606098   (1044642) от 20.01.2023
-
-Billy Preston - The Collection (1988) [MP3|320 Kbps] <Funk, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bus
-02. How Long Has The Train Been Gone
-03. It's Alright Ma ( I'm Only Bleeding )
-04. Blackbyrd(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C254C2CC7B8D35B0C894CDD89BC1FCB6F04731BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

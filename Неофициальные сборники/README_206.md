@@ -1,3 +1,206 @@
+###  Публикация: 1279600   (765466) от 30.01.2019
+
+VA - German Top 50 Party Schlager Charts 28.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Kerstin Ott - Regenbogenfarben
+04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA464CC1C067BA665749BF424BD026AC53DD9BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394094   (765426) от 03.07.2020
+
+VA - Music News vol.25 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765426.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aina - Хризантемы (04:03)
+ 002. Григорий Лепс - Городской Романс (02:10)
+ 003. Alex Adair - Real For Me (03:00)
+ 004. Alexandra - Волны Моря (03:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E355E6DD682D8F9DB47C387F4099D9FF68CCEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126642   (765420) от 18.04.2017
+
+VA - Лучшая дискотека на Europa Plus выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rozhden - Планы На Любовь 3:58
+002. Галина Боб - Сладкие Вещи 3:04
+003. Melinda - Бесконечность 4:08
+004. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5914ED5177DFA2830B5E41DBC90C46E7ACA891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279591   (765394) от 30.01.2019
+
+VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765394.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tchilla - Gentleman Drivers
+002. Tantsui - Beautiful Day
+003. Tevo Howard - Make It Right
+004. The 5Th Galaxy Orchestra - A Place Between Us(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 11:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437652CFBF9A99895ED5AE5CBAAD14A4BA96D287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126467   (765375) от 18.04.2017
+
+VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Batalion d'Amour - Bez Nas 5:56
+002. Bitterfeldt - Eines Tages 8:47
+003. Bitterfeldt - Nordlicht 9:35
+004. Bliss In The Abyss - The Book Of Silence 7:16(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 08:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126565   (765371) от 18.04.2017
+
+VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 13Tries - Burned Down 4:22
+002. Al Atkins - Heavy Thoughts 6:12
+003. Almah - Capital Punishment 4:01
+004. Ancestral - Lust For Supremacy 5:50(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126461   (765370) от 18.04.2017
+
+VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crowbar - Plasmic And Pure 5:38
+002. Heavenwood - The Juggler 6:43
+003. Bathsheba - At the End Of Everything 8:26
+004. Beelzefuzz - The Righteous Bloom 6:55(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 15:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126573   (765369) от 18.04.2017
 
 VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
@@ -539,209 +742,6 @@ VA - Сотка популярных весенних хитов на Europa Plu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BB49A48C05DB4FFB4E3B949640683B0CADE453C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126818   (764609) от 19.04.2017
-
-VA - Sunrise Energy Melodies (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Energy, Harmonic, Euphoric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sam Laxton - Decadence (Extended Mix)  6:22
-02.  Paul van Dyk - Touched By Heaven (Extended)  7:30
-03.  DJ T.H. & Natalia Meister - Where We Belong (Original Mix)  7:15
-04.  Fady & Mina - Akemi (Extended Mix)  8:22(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Energy, Harmonic, EuphoricПродолжительность: 02:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357F8998C868D08084FAA95CB92F589F40267745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126912   (764608) от 19.04.2017
-
-VA - Empire Records - Dancenudisco 14 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)
-02. Arilena Ara - Nentori (Beverly Pills Remix)
-03. El Mukuka feat. Kayla Jacobs - Bottle of Loneliness (Filatov & Karas Remix Extended)
-04. LP - Tightrope (Regard Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DF693DCB6C19D8B5D7C23587AD00FEBB91505E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126933   (764558) от 19.04.2017
-
-VA - Empire Records - Dancenudisco 15 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Ramone Feat. Minelli - Love On Repeat (Filatov & Karas Radio Edit)
-02. Fialta - Another Lonely Heart (Mark Lower Remix)
-03. Dr. Beat - House Orgy (Radio Edit)
-04. Dogus Cabakcor - Trouble (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281866CCD29DD24877D2558D1380B9AAB5C80841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279639   (764548) от 31.01.2019
-
-VA - Empire Records - Fake 4 (2019) [MP3|320 Kbps] <Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eryon Stocker - High Speed (Radio Edit)
-02. Tranceye - Kinesis (Radio Cut)
-03. Dk Project - Blue Skies (Radio Cut)
-04. Estivia - Solena (Radio Edit)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 02:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20829BCAA06E7149C3E27FB19097CF53F2ED1B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279715   (764534) от 31.01.2019
-
-VA - Hands Up Dance Music (2019) [MP3|320 Kbps] <Dance, Club, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cezаrаni - Brаve
-002. Briаn Theоdоre - Originаl Gаngstа Mke
-003. Christiаn Bаrtаsek - Hаnds Uр
-004. Abсd - Pаssiоn(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 08 :19 :02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547CABCE8BED753E7372467E23773B92AA08DB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279840   (764530) от 31.01.2019
-
-VA - Better World (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764530.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zikim - Kоut Djеl
-002. Aldubb - Dub13
-003. Mаikеl Dеlасаllе - Rерlау
-004. Nуnо Vаrgаs - Diсеn Dе Mi(   Читать дальше...   )Жанр: Reggae, Dub, SKAПродолжительность: 08:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA8692AD31B15922C6C7C3D27B1C756F67CCF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126839   (764491) от 19.04.2017
-
-VA - Club Dance Dependence vol. 6 (2017) [MP3|320 Kbps] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Dont Say (Original Mix)
-02. Rag'n'Bone Man - Skin (Original Mix)
-03. Matoma & MAGIC! feat D.R.A.M. - Girl At Coachella
-04. Mike Wit feat. Brenda Be - Hold Me Now (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 06:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB465C63DB0C159ACF9C50586B3D36154027D9F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

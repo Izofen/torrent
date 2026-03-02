@@ -1,3 +1,32 @@
+###  Публикация: 1508913   (796219) от 10.11.2021
+
+VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ironwill - Breakout
+002. Fiona - Where The Cowboys Go
+003. Distilled Tongues - Drawing Shapes
+004. Andrйs Calamaro - Bohemio Con Julio Iglesias(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 09:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4250AED739403E9EEEFF3964D1CE5F56B0B8F571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385824   (795985) от 27.05.2020
 
 VA - Ancient World: Modern Alternative Rock (2020) [MP3|320 Kbps] <Rock, Alternative>
@@ -716,35 +745,6 @@ Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F038E683F2B3AF1B0D2D86BC3CB1604D602A1642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276661   (787206) от 18.01.2019
-
-Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787206.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marie
-002. Sang pour sang
-003. Ça ne change pas un homme
-004. Diego, libre dans sa tête (Live à Paris-Bercy / 1990)(   Читать дальше...   )Жанр: RockПродолжительность: 05:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1542CFA20BD942630F6387A2842AEF7D1906E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

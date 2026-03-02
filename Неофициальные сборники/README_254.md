@@ -1,3 +1,206 @@
+###  Публикация: 1287708   (701214) от 08.03.2019
+
+VA - EuroHit Top 40 - 100 лучших песен XX века (2019) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roy Orbison - You got it (3:30)
+002. PRINCE & The Revolution - Purple rain (4:02)
+003. БРАВО - Верю я (3:03)
+004. Bob Marley & The Wailers - I shot the sheriff (3:46)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB8EB2FF7F316253CA2EB2496FDD56E9F7CD888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132384   (701162) от 09.05.2017
+
+VA - Зажигай вместе с Europa Plus. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Бузова - Улететь 3:01
+002. Роза Мажонц - Выше Облаков 3:57
+003. Рома Штайн - Проблем 3:56
+004. Станислав Сорока - Иди За Мной 3:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F1375DE22FD160F2896EB6699AAF7A5AF47E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132381   (701144) от 09.05.2017
+
+VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701144.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amun - Red Eyes 4:23
+002. Chill 2 U - Nightwalker 4:54
+003. Amure - Intim 5:40
+004. Crystal Morgan - Do It 5:58(   Читать дальше...   )Жанр: Chillout, Lounge, DountempoПродолжительность: 07:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132634   (701118) от 09.05.2017
+
+VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
+002. Deeppirate Feat. Vilia - Love (Audio Luxury Remix) 5:41
+003. Ilkay Sencan - Back To Life 3:11
+004. Loungetronic - Ready Or Not - Nu Deep Mix 3:15(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 08:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132368   (701018) от 09.05.2017
+
+VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 20 Fingers Ft. Roula - Lick It (Block & Crown & Mike Ferullo Remix) 5:26
+002. Alaia & Gallo, Kevin Haden - Go (Original mix) 5:56
+003. AlexEnn - Come In Time  (Original mix) 3:20
+004. Alok - Never Let Me Go (Extended Mix) 4:14(   Читать дальше...   )Жанр: Club House, Vocal House, HouseПродолжительность: 07:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A99340F0DE0391B1DA2AE12ECFAC04127AEFBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132416   (701003) от 09.05.2017
+
+VA - Club Dance Dependence Vol.7 (2017) [MP3|256-320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701003.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexco - Cry Your Name (Original Mix) 6:19
+002. Mike Williams feat. Brezy - Don't Hurt (Original Mix) 3:38
+003. Alok - Never Let Me Go (Extended Mix) 4:14
+004. Felix Cartal &. Clockwork - The Fire (NoizBasses &. TERROR BOYZ Bootleg) 4:04(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 07:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50C7AE5849A920DBC64C405849208306017D4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132392   (700847) от 09.05.2017
+
+VA - Best-of-ka на Шансоне выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Валерий Юг - Колея 3:22
+002. Евгений Куневич - Мамины Руки 4:57
+003. Сергей Родня - Запутаю 3:20
+004. Стас Михайлов - Я Столько Не Выпью 3:21(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8716E5BE2B2A088FF4395E6C6244C9D0A031E759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132358   (700716) от 09.05.2017
 
 VA - Deep House Collection vol.120 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -542,209 +745,6 @@ VA - Metasphere: The Sound Of Psychedelic Trance (2019) [MP3|320 Kbps] <Psychede
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54F584CD3C37431ADBF4D41F7A79E2CC0C4B85C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402546   (699831) от 15.08.2020
-
-VA - The Official UK Top 40 Singles Chart 14.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Head & Heart (feat. MNEK)
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. Nathan Dawe - Lighter (feat. KSI)
-04. Cardi B - WAP (feat. Megan Thee Stallion) (New Entry)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707011803C1E8C8484F46FF8269DFCDDA54889D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402549   (699824) от 15.08.2020
-
-VA - German Top 100 Single Charts 14.08.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
-02. Apache 207 - Bläulich
-03. KitschKrieg & Jamule - Unterwegs
-04. Samra - 24 Stunden(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BF430A7345E93C5DC15908A127EA19DF4B199F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287942   (699772) от 09.03.2019
-
-VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Yarranton - Meridian
-002. Michael Hooker - Melindas Secrets (Original Mix)
-003. Moscoman - Song for Bourdain
-004. DeeJay PARTYman - U.F.O. (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287964   (699770) от 09.03.2019
-
-VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Volkan Erman - Hope (Original Mix)
-002. Jamie Roy - Movin'
-003. Caravaca - Gotcha
-004. Sante Sansone - Keep Movin'(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 09:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE52AE8F266B08F23C9239EB3D73C79D64F001B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287963   (699634) от 09.03.2019
-
-VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobby Kalphat & The New Establishment - Adis A Wa Wa
-002. Glen Washington - One Day
-003. Mister Bis - Champagne A Flot
-004. Nomad - Celebration(   Читать дальше...   )Жанр: Reggae, Dub Ska, SoulПродолжительность: 09:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287940   (699632) от 09.03.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 08.03.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lil Peep & XXXTentacion  -  Falling Down
-02.  Denis First & Reznikov feat. Bright Sparks  -  Shameless
-03.  Triplo Max  -  Shadow
-04.  Leonid Rudenko feat. Alina Eremia & Dominique Young Unique  -  Love & Lover(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D024F7F9A08459F2C189AE4B5F23B9AD0005EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287727   (699629) от 09.03.2019
-
-VA - Trap Pro V.02 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Trap, Future Bass, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yerbownik - Save Me (Original Mix) [4:34]
-02. Julius Kasa & No ExpressioN, Stephen Geisler - Never Be The Same (Original Mix) [3:28]
-03. EBEN & Calli Boom - Exhale (Original Mix) [3:08]
-04. Barren Gates & Beauz feat. Harley Bird - Tomorrow [2:35](   Читать дальше...   )Жанр: Trap, Future Bass, ElectronicaПродолжительность: 02:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329D0F95D7CC1D29AE5CFDF8FACAF4FEAF88EDD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

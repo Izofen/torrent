@@ -1,3 +1,119 @@
+###  Публикация: 1022773   (727361) от 03.06.2016
+
+Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Dontcha?
+ 02. It Just Happens
+ 03. Good Karma
+ 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898A3D86BC92C20FA32A8DF68D11DBF22EBC536A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022755   (727243) от 03.06.2016
+
+Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Don'tcha? (2:45)
+02. It Just Happens (3:46)
+03. Good Karma (3:19)
+04. This One (3:11)(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Soft RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4441E12694DF9D2DDD9017C8EDB892E1AE4220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023392   (726701) от 04.06.2016
+
+Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You (3:52)
+02. A Little Bit of Pain (2:55)
+03. Mess Around (3:52)
+04. Make You Love (4:26)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E806772A3CE08FEE1A1BD8D8BF6AA29747299D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284650   (726542) от 23.02.2019
+
+Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotions
+02. If It's Over
+03. Someday
+04. Vision Of Love(   Читать дальше...   )Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128729   (726254) от 26.04.2017
 
 Gipsy Kings - The Real... Gipsy Kings (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
@@ -629,122 +745,6 @@ VA - The 90s Music Generation Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C259483B93E5AAEE1C426CD283B2A358985D0AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285607   (718687) от 27.02.2019
-
-Julio Iglesias - De Julio 100 (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Quiereme Mucho
-02. Un Canto A Galicia
-03. To All The Girls I've Loved Before(   Читать дальше...   )Жанр: PopПродолжительность: 06:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE479553F8108072D1FE4361249E2B680753583E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129900   (718507) от 30.04.2017
-
-The Chainsmokers & Coldplay - Something Just Like This (Remix Pack) (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Just Like This (Alesso Remix) (4:13)
- 02. Something Just Like This (R3hab Remix) (2:43)
- 03. Something Just Like This (Dimitri Vegas & Like Mike Remix) (3:51)
- 04. Something Just Like This (Don Diablo Remix) (3:51)(   Читать дальше...   )Жанр: Pop, Electropop, HouseПродолжительность: 00:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00D3482A26514A455F31D7F04DC00C5BA16620D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129883   (718503) от 30.04.2017
-
-The Chainsmokers - Memories... Do Not Open (2017) [FLAC|Lossless|tracks + .cue] <Pop, Electropop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One (2:58)
- 02. Break Up Every Night (3:28)
- 03. Bloodstream (3:44)
- 04. Don't Say (3:48)(   Читать дальше...   )Жанр: Pop, Electropop, HouseПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B27B87E3F990C40EB59F9B56BE7B32CD6862ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129967   (718425) от 30.04.2017
-
-VA - NRJ Spring Hits (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - весенний сборник (   Читать дальше...   )CD1:
-01. Ofenbach - Be Mine  (2:42)
-02. Petit Biscuit - Sunset Lover  (3:57)
-03. Sean Paul feat. Dua Lipa - No Lie  (3:42)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC94108D638DB5456CD4242D313C7BBC1B0298E
 ```
 
 https://mybot314.ru/tekegram_catalog/

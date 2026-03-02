@@ -1,32 +1,3 @@
-###  Публикация: 1487104   (1004053) от 03.08.2021
-
-Keith Richards - Blues (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Babe (2019 – Remaster)
-02. Big Town Playboy (2019 – Remaster)
-03. I Could Have Stood You Up (2019 – Remaster)
-04. Key To The Highway(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86ADF10722C6475A9826C23BFB6522043E838493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350148   (1003853) от 04.01.2020
 
 Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Contemporary Jazz, Dark Experimental>
@@ -665,41 +636,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 655747   (1002268) от 10.08.2021
-
-Fitz and The Tantrums - More Than Just A Dream (2013) [FLAC|Lossless]<Indie Pop, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of My League (03:29)
-02. Break The Walls (03:36)
-03. The Walker (03:53)
-04. Spark (03:19)
-05. 6am (04:30)
-06. Fools Gold (03:35)
-07. Keepin Our Eyes Out (03:08)
-08. Last Raindrop (04:03)
-09. House On Fire (03:28)
-10. The End (03:46)(   Читать дальше...   )Жанр: Soul, Indie PopПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3389CA2CAD8034F0DA018751A867BF3378B5882A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351502   (1002225) от 10.01.2020
 
 John Gary - Sings Cole Porter (1994) Audiophile Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
@@ -751,6 +687,64 @@ VA - Luxury Soul 2020 [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35560A6641CDC3E5680090E56F45A5BA72FDE880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351663   (1002003) от 11.01.2020
+
+John Gary - The Essential John Gary (2001) RCA [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. While We're Young [2:30]
+02. I'll Remember Her [2:57]
+03. You Never Kissed Her [2:14]
+04. I'll Be Seeing You [3:10](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCAC02CBB34A0C566CBF663E482606A1FF1A751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351967   (1001695) от 12.01.2020
+
+Eddie ''Lockjaw'' Davis - Four Classic Albums Plus 1952 - 1959 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001695.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Very Saxy [8:20]
+02. Lester Leaps In [6:16]
+03. Fourmost [5:23](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 02:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCFA4E082669E5BC6F571E599F31201588582AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

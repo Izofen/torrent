@@ -1,3 +1,31 @@
+###  Публикация: 1184985   (297027) от 19.11.2017
+
+Векторный клипарт - Happy New Year and Merry Christmas [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С Новым годом и Рождеством
+18 files EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FBC39BAC3492E21699E1ECA2A6C4F723037E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262280   (296772) от 14.11.2018
 
 Шаблоны - GraphicRiver - Christmas Gold Party 2018 - 22751575 [PSD]
@@ -646,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5297323E550E01CFA4566A37A2F37EA1B4162CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262364   (294792) от 15.11.2018
-
-Шаблоны - Creative Market - Art On Walls Scene Creator Bundle V3 - 1501639 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблоны детской комнаты, игрушек и мебели а так-же
-Настенные - холсты, рамкиФормат: PSDРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD726B9B70FBC47D47DE6B1C707968552053D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

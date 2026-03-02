@@ -1,3 +1,61 @@
+###  Публикация: 1612732   (1040172) от 16.02.2023
+
+Solence - Hope is a Cult (2023) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Down (4:07)
+02. Best For You (3:41)
+03. Demons (3:48)
+04. Waves (3:12)(   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3479DC1611F3C5897236F285E7D769705945433D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612731   (1040170) от 16.02.2023
+
+Creye - III: Weightless (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glorious (4:07)
+02. Air (3:39)
+03. One Step Away (3:39)
+04. The Game (3:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D11A1045021959B4E1A4336AF571F286A33C79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439301   (1040115) от 12.01.2021
 
 Trevor Bolder - Sail The Rivers (2020) [MP3|320 Kbps] <Rock>
@@ -690,64 +748,6 @@ Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03641D89B5EA6D4FE729564F4AAA368270B123B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443319   (1035779) от 28.01.2021
-
-Vierzig Grad - Vierzig Grad (1981) LP [MP3|320 Kbps] <Krautrock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vorbei (3:44)
-02. Nachtleben (3:39)
-03. Niemand (5:38)
-04. Raus Hier (3:18)(   Читать дальше...   )Жанр: Krautrock, Pop RockПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42658B7350E87B8DB9D38ABFD816C96C63645627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443526   (1035469) от 29.01.2021
-
-Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild and Free (04:44)
- 02. Run (04:49)
- 03. My Loveless Lullaby (05:04)
- 04. Waltz for the Movies (01:43)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7808B8D21B55F0061B90B8A7D11842BD4770DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

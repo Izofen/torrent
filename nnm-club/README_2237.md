@@ -1,682 +1,22 @@
-###  Публикация: 599277   (999205) от 06.01.2013
+###  Публикация: 598792   (999736) от 05.01.2013
 
-Крутой (2012) SATRip
-
->>След.
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каверин, некогда служивший в ОМОНе, начинает работать на себя – он перевозит грузы и никогда не спрашивает заказчика о том, что внутри. Однажды, доставив груз, Каверин видит, что в чемодане, который он вез – связанная девочка. Люди заказчика похитили ее и Каверин, сам не зная о содержимом посылки, доставил девочку главарю банды. За девочку требуют выкуп, саму же ее хотят убить, чтобы избавиться от свидетеля. Среди бандитов – Брыль – бывший сослуживец и враг Каверина. Каверин вступает в схватку с бандитами, ему удается отбить у них девочку, и скрыться. Каверин, преследуемый бандитами, идущими по пятам, начинает поиск родителей девочки.Жанр: БоевикРежиссер: Максим ДемченкоАктеры: Максим Дрозд, Анна Лутцева, Сергей Гамов, Михаил Сидаш, Михаил Полосухин, Виктор СмирновПеревод: Не требуется (Русский)Продолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295F5BF6AEB1B41434DC14FE9CB1C495B7F20058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585615   (999204) от 06.01.2013
-
-Doom 3: BFG Edition [Ru/En] (RePack/1.1400.346456) 2012 | R.G. Games
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999204.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды – семь уровней под общим заголовком The Lost Mission.
-С Doom 3 BFG Edition игроки смогут еще глубже погрузиться в атмосферу легендарного шутера. Оптимизация графики под современные платформы, улучшенные рендеринг и освещение, поддержка стереоскопического 3D и звука 5.1, новая система сохранения в контрольных точках, а также поддержка достижений Xbox LIVE и призов PlayStation Network – все это позволит игрокам насладиться Doom 3, как в первый раз.
-Наконец, в качестве особого бонуса для самых верных фанатов серии Doom 3 BFG Edition содержит также оригинальную дилогию Doom.
-
-(   Читать дальше...   )Тип издания: RePackРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st Person / CompilationЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598811   (999203) от 06.01.2013
-
-Андрей Бернацкий | Практика Резиновой Верстки Сайта [2012] [unpacked]
-
->>След.
->>Компьютеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы желаете, чтобы Ваш интернет-сайт отображался одинаково привлекательно и шикарно в всех браузерах самой разной версии и независимо от форматов мониторов, с помощью которых он будет просмотрен тогда Вам несомненно поможет в этом обучающий видеокурс Практика резиновой верстки. Изучив данное видео пособие вы совместно с специалистами, пошагово будете обучаться на настоящих кейсах — разбирая и наново собирая проф сайты разнообразной трудности.Жанр: Обучающее видеоФормат: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1CD76AEF3C61C84684877CBF56430739F0F3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599724   (999194) от 07.01.2013
-
-Санчес - Torover (EP) (2013) [MP3|256-320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Предвестник (при уч. tyura)
-2. Всего лишь шаг
-3. Ещё (при уч. Рем Дигга)
-4. Оскал (при уч. Слепро)
-5. При своём
-6. Поиск (при уч. Килла Куплет)
-7. Давай забудемЖанр: RapПродолжительность: 00:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AE5B484C3AFF4EFC4C2CA3FA480D912343EE54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600011   (999193) от 07.01.2013
-
-Журнал | АиФ. Спецвыпуск. Общество № 21 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами очередной выпуск "100 ответов от "АиФ", где вы найдете всю самую полезную, честную и объективную информацию. Как сохранить свою дачу зимой, можно ли вырастить ананас на подоконнике, обязаны ли дети платить налоги, как украсить дом, не потратив ни копейки, какие блюда можно сделать из тыквы, а также как воспитывает сразу четверых детей Мария Шукшина - многодетная одинокая мать.
-Обо всем об этом, а также еще о многих других интересных и полезных вещах вы узнаете из постоянного издания, уже полюбившегося всем читателям "Аргументов и фактов" и просто хорошим людям.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA3956FCCFBF2E370D12AE6E627554AA0EC242B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600060   (999191) от 07.01.2013
-
-Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 23 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год - такое время, когда особенно хочется предстать преображенной и блеснуть красой перед своими коллегами, друзьями и близкими. Задача эта вполне выполнимая - даже если до праздничного боя курантов осталось совсем немного времени.
-Для того чтобы стать красивой, совсем необязательно изводить половину семейного бюджета на чудодейственные средства и дорогостоящие процедуры в салоне красоты.
-Домашний уход может дать такие же результаты, как и профессиональный. Не верите? Читайте советы экспертов, из которых составлен сегодняшний номер спецвыпуска "Аргументов и фактов".Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A0DB664E6869EAAE2B67DE1864B4216B461268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599687   (999188) от 07.01.2013
-
-Denny Newman - Sleepwalking With You (2007) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' For the Past
- 02. Sleepwalking With You
- 03. This World Keep Turning
- 04. Burying Ground
- 05. I'll Get Over You (When You Get Over Getting Over Me)
- 06. The Case Is Closed
- 07. Frenchman
- 08. Potato Boat Blues
- 09. When the Sun Don't Shine
- 10. Goin' DownЖанр: BluesПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599580   (999187) от 07.01.2013
-
-VA - Trance. Vocal Fascination 42 (2013) MP3 (2013) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light On - Waterfall (Original Mix)
- 02. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix)
- 03. Marcel Woods - Everything (Marcel Woods Treatment)
- 04. MaRLo - Megalodon (Original Mix)
- 05. Mike Shiver feat. Bo Bruce - Still Here
- 06. Moonbeam feat. Avis Vox - Disappearance (Dis Play Remix)
- 07. Moonbeam feat. Blackfeel Wite - In Your Eyes (Original Mix)
- 08. Neev Kennedy - The Unknown (DNS Project Extended)
- 09. Nuera feat. Szen - Stuck
- 10. Ralphie B - IcarusЖанр: TranceПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B7F15982CEBFAFECA8E7AB5A1C0514751164E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599693   (999182) от 07.01.2013
-
-Devil's Hollow - Devil's Hollow (2010) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Charm
- 02. Treated Bad
- 03. Demons Down
- 04. Time Will Tell
- 05. Into The Red
- 06. Heinous
- 07. Ketchup's Boogie
- 08. This Way
- 09. I Never Knew (Something Wasn't Right)
- 10. Water To WineЖанр: BluesПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599675   (999180) от 07.01.2013
-
-The Rubettes - The Very Best Of (1999) [MP3|~245 кб/с (V0)]<Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sugar baby love [00:03:30]
-02 Tonight [00:03:42]
-03 Juke box jive [00:03:03]
-04 I can do it [00:03:20]
-05 Foedeeohdee [00:03:02]
-06 Little darling [00:03:18]
-07 Youre the reason why [00:02:34]
-08 Under one roof [00:04:32]
-09 Baby i know [00:04:21]
-10 My buddy holly days [00:03:16](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788ECADA2E098EDEBCF008E8F87DCED89022D72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599679   (999178) от 07.01.2013
-
-Dave Nevling - Sweet Bijou (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's All That (5:10)
- 02. Upside (4:07)
- 03. Lenora (7:16)
- 04. Sweet Bijou (4:21)
- 05. Vieux Carre (4:13)
- 06. Drink You Away (3:35)
- 07. Josiah (5:25)
- 08. Connie's Cafe (4:31)
- 09. Night Into Day (4:26)
- 10. I Need Love (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598010   (999173) от 07.01.2013
-
-VA - В ритме танца. Фиеста (3CD) (2010) [MP3|320 кб/с]<Latino>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999173.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1. Ласковое солнцеЖанр: LatinoПродолжительность: 01:06:53
-43. Brazil
-44. Pais Tropical
-45. Lambada (Llorando See Fue)
-46. Macarena
-47. La Rapsa
-48. Tipiton
-49. Soca Pa Ti
-50. Abusadora
-51. Merengue Hi(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009113FD5A47BAF5496178320049F9B5B6DAC5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599697   (999168) от 07.01.2013
-
-FreeFileSync 5.11 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью которых можно исключать файлы из процесса или, наоборот, включать в него.Название программы: FreeFileSyncЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597321   (999165) от 07.01.2013
-
-VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excelsior Groove - Honey - Excellence in Rhythms Mix
-02. Stardeep - Slow Food - House Sonique Deep Mix
-03. FG 2 - New York Sensations
-04. Deep Lovers - Mouse Music - Manhattan Deep Mix
-05. The Groove Boyz feat. Cadillac - Com the House - Progression Vocal Mix
-06. Modell & Mercier - Prisoner - Love On Love Mix
-07. 2W - Light
-08. Alexander Prince - The Prince of the River - Ultradeep Mix
-09. Caesar Anthony Feat. Barra Lopez - We Can Dance - Modell & Mercier Mix
-10. Claude Sine - B-Ass - David Heaven Filter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599677   (999164) от 07.01.2013
-
-WinISO Standard 6.3.0.4754 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999164.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinISO Standard - программа для работы с образами CD и DVD дисков. WinISO работает с форматами BIN и ISO, может редактировать эти форматы и конвертировать из одного в другой. С помощью WinISO вы сможете с легкостью добавлять / удалять / переименовывать / извлекать файлы из образов. Программа имеет очень удобный и понятный интерфейс, который еще сильнее облегчит и без того простую работу в этой программе. Предназначенная для работы с образами BIN и ISO программа WinISO является лидером в ряду софта, разработанного для клонирования и создания образов оптических носителей информации.Название программы: WinISO StandardЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600045   (999161) от 07.01.2013
-
-Mojosoft BusinessCards MX v.4.76 Update [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуализация BusinessCards MX 4.x -> 4.76 (07.01.2013)
-- исправлена ошибка в мастере визитной карточки
-- проведены некоторые настройки и улучшенияНазвание программы: Mojosoft BusinessCards MX UpdateЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598969   (999157) от 07.01.2013
-
-Kaare Norge - Beatles From My Heart (2011) [MP3|~245 кб/с (V0)]<Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let It Be
-02 - And I Love Her
-03 - Here There And Everywhere
-04 - Penny Lane
-05 - Norwegian Wood (This Bird Has Flown)
-06 - Yesterday
-07 - Girl
-08 - Hey Jude
-09 - All My Loving
-10 - Eleanor Rigby(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B038BFAAE37E0CA5C691F8843A2E3247DD8B6D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598023   (999154) от 07.01.2013
-
-VA - В ритме танца. Движение чувств (3CD) (2011) [MP3|320 кб/с]<Easy Listening>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999154.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1. Движение ЧувствЖанр: Easy ListeningПродолжительность: 01:08:47
-47. My Prayer - Claude Blouin and his orchestra
-48. Yours (Quiereme Mucho) - Ambros Seelos and his orchestra
-49. Mexicali Rose - Peter Hope and his orchestra
-50. Silver Moon - Claude Blouin and his orchestra
-51. Spanish Eyes - Alberto Mendez and his orchestra
-52. Stars Fell On Alabama - Gordon Langford and his orchestra
-53. Romantica - The Victor Silvester Orchestra
-54. It Was A Very Good Year - Ray Davis and his orchestra
-55. Poinciana - Claude Blouin and his orchestra(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF610251113E56832AD9604F3F41062BED77B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598975   (999148) от 07.01.2013
-
-Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Тико-Тико
-2.Ноктюрн
-3.Besame Mucho
-4.Мой ласковый и нежный зверь
-5.Карусель
-6.Baila con migo
-7.Yesterday
-8.Бегут года
-9.Piccola samba
-10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599958   (999147) от 07.01.2013
-
-VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Бублик - Будет Светло
- 02. Dj Smash feat. Вера Брежнева - Любовь на расстоянии
- 03. Группа «Руки вверх» - Я тебя люблю
- 04. Ева Польна - Весь мир на ладони
- 05. Группа "Достучаться До Небес" - Отпусти меня
- 06. Елка – Хочу
- 07. Dan Balan– Люби
- 08. "Винтаж" & ChinKong - Свежая вода
- 09. Нюша – Воспоминание
- 10. Иван Дорн - Бигуди(   Читать дальше...   )Жанр: PopПродолжительность: 1:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599892   (999146) от 07.01.2013
-
-Wise Care 365 Pro 2.17 Build 168 Portable by Valx [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 - программа представляющая комплекс утилит с приятным интерфейсом для обслуживания Вашего ПК. В программу входят очистка ПК от ненужных файлов, дефрагментации и оптимизации реестра, освобождение места на жестком диске, восстановление потерянных файлов, удаление интернет следов и т.д.Название программы: Wise Care 365 ProЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599702   (999141) от 07.01.2013
-
-Рисованная графика - Artworks by Alexandra Prillaman
+Incredible Mixed Wallpapers (04.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999141.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника-иллюстратора Alexandra Prillaman.
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C833B47C83D8E9F02BBBBE4F23676522BF7FCDC
+magnet:?xt=urn:btih:321F5AB75EAEA5FF1F539D11B2B61B3116ED3204
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600003   (999140) от 07.01.2013
+###  Публикация: 598788   (999734) от 05.01.2013
 
-Журнал | Здоровье от природы №1 [январь 2013] [PDF]
+53 HQ Wallpapers (04.01.13) [Wallpapers]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999140.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999734.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Здоровье от природы" - журнал о красоте, здоровье и активном образе жизни. Издание сочетает актуальную информацию о современных wellness-тенденциях с практическими рекомендациями по выбору индивидуальных способов поддержания красоты и укрепления здоровья. В журнале представлен широкий спектр традиционных оздоровительных методик с применением природных средств, а также последние научные разработки в области медицины, питания, косметологии.Формат: PDF
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF796C6D40BDD4B58D99FC632396A8378C292AE2
+magnet:?xt=urn:btih:FCD9904C5F68018021E0E8DE5CEC12D8262B8830
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,23 +50,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599994   (999136) от 07.01.2013
+###  Публикация: 597779   (999733) от 05.01.2013
 
-Frugalware Linux 1.8-rc1 [x86-64] (5xDVD+2хCD)
+Sexy Girls Wallpapers (02.01.13) [Wallpapers 16+]
 
 >>Архив торрентов
->>Архив *Nix
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999136.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вышел релиз-кандидат Linux дистрибутива общего назначения Frugalware 1.8, разработанного для опытных пользователей, не боящихся командной строки - уровень сложности Slackware. Основное направление развития дистрибутива - максимальное упрощение. Концепция построения дистрибутива похожа на Slackware, в качестве пакетного менеджера задействован pacman из Arch Linux. При создании пакетов разработчики стараются публиковать программы как есть, избегая внесения дополнительных патчей.
-
-Основные изменения по сравнению со старой версией: Package updates: ядро Linux 3.7.1; Boost 1.50.0; KDE 4.9.5, а также в дистрибутив добавлены mesa 7.11 драйверы.
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9161338123FE3A310B58489CFA3C1FDCB7457773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598786   (999732) от 05.01.2013
+
+Best HD Wallpapers Pack (04.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E182DBADD925C88649BBF39957965478FCA3FDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598314   (999731) от 05.01.2013
+
+Sonny Rollins - Reel Life (1982) [MP3|320 кб/с]<Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reel Life (Rollins) 6:14
+02 - McGhee (Howard McGhee, Sonny Rollins) 4:20
+03 - Rosita's Best Friend (Rollins) 6:22
+04 - Sonny Side Up (Yoshiaki Masuo) 6:47
+05 - My Little Brown Book (Billy Strayhorn) 3:55
+06 - Best Wishes (Duke Ellington, Ted Koehler) 5:43
+07 - Solo Reprise (Sonny) 2:12Жанр: JazzПродолжительность: 00:35:23
 
 ## Скачать торент
 ```bash
@@ -738,25 +134,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599714   (999135) от 07.01.2013
+###  Публикация: 599205   (999730) от 05.01.2013
 
-Испанский узник / The Spanish Prisoner (1997) WEB-DLRip
+[Wallpapers] New 2013 Nature Wallpaper Pack 3
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999135.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гениального изобретателя ложно обвиняют в промышленном шпионаже, краже и убийстве. Скрываться от полиции ему помогают новые товарищи — миллиардер и его прекрасная секретарша.Жанр: Триллер, Драма, ДетективРежиссер: Дэвид МэметАктеры: Кэмпбелл Скотт, Стив Мартин, Ребекка Пиджон, Бен Газзара, Рикки Джей, Фелисити Хаффмен, Ричард Л. Фридман, Джерри Графф...Перевод: Многоголосый закадровый (профессиональный)Продолжительность: 01:50:02
+[Wallpapers] New 2013 Nature Wallpaper Pack 3
+Название: New 2013 Nature Wallpaper Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2E0E5ABAA9EE116E980D916172F858431B31B82
+magnet:?xt=urn:btih:C84B75799E81CD1BC0746B69580976AAE67B43FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -764,25 +164,591 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599503   (999134) от 07.01.2013
+###  Публикация: 599076   (999729) от 05.01.2013
 
-Узник Зенды / The Prisoner of Zenda (1979) DVDRip
+Sexy Girls Wallpapers (05.01.13) [Wallpapers 16+]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999134.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трон погибшего короля Руритании должен занять принц Рудольф, живущий в Лондоне. Чтобы обезопасить наследника престола по дороге на родину, для принца находят двойника — извозчика Сида.Жанр: Комедия, ПриключенияРежиссер: Ричард КвинАктеры: Питер Селлерс, Линн Фредерик, Лайонел Джеффрис, Эльке Зоммер, Грегори Сьерра, Джереми Кемп, Кэтрин Шелл, Саймон Уильямс, Стюарт УилсонПеревод: Двуголосый закадровыйПродолжительность: 1:43:49
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
+magnet:?xt=urn:btih:1F8A840C500A16729D244C084DAC5CCFB09B7E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599206   (999728) от 05.01.2013
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999728.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 4
+Название: New 2013 Nature Wallpaper Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 4000х2600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D2183703EE8EC4DA063AC9CE033257DAAF53FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599071   (999727) от 05.01.2013
+
+Best HD Wallpapers Pack (05.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D22B0D368C528A8E501545E50C9200288FC9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598298   (999723) от 05.01.2013
+
+Jessy Carolina and The Hot Mess - Bootlegs:January 2012 (2012) [FLAC|Lossless]<New Orleans Jazz \ Vintage Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+ 02 Nobody's Sweetheart
+ 03 Yes Sir, That's My Baby
+ 04 Royal Garden Blues
+ 05 China Boy (Explicit)
+ 06 Louisiana Fairytale
+ 07 Muskrat Ramble
+ 08 My Melancholy Baby
+ 09 I'll Be A Friend With Pleasure
+ 10 That's A Plenty(   Читать дальше...   )Жанр: New Orleans Jazz \ Vintage JazzПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598916   (999721) от 05.01.2013
+
+Hypnose - Притяжение (2012) [MP3|320 кб/с]<Alt. Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Знаю
+02. С утра и в ночь
+03. Солнцем и луной (Тишина)
+04. Мистер (   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9E02B474F33994AC817243C9EADF7A7CE9D7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599079   (999718) от 05.01.2013
+
+Журнал | Рыболовный мир №1 [январь-февраль 2013] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999718.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Рыболовный мир" - это журнал о современных видах ловли рыбы, прикормках, насадках, тестирование удилищ и многое другое... Вы узнаете много интересного о рыбной ловле и обо всем, что с ней связано. Эксклюзивные статьи, невероятные истории из жизни рыбаков, обзоры различных событий, полезные советы, рыболовные секреты и многое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B005A81C461E043EAEE7AA4BBD29E5D67D5616AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599069   (999717) от 05.01.2013
+
+Computer Desktop Wallpapers Collection (05.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FDCF5CB6A9D1EEA7C25BE281AFC205E9F586B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597778   (999716) от 05.01.2013
+
+Sexy Girls Pack Wallpapers (02.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1ACA3ECFDAB8E698634944F620C798171ADD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599074   (999714) от 05.01.2013
+
+60 HQ Wallpapers (05.01.13) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E68729631678172A0A4826D02BE6F7C96A8E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599143   (999712) от 05.01.2013
+
+Sonny Landreth - Outward Bound (1992) [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldier Of Fortune [04:41]
+02. Back To Bayou Teche [03:49]
+03. When You're Away [03:53]
+04. Sacred Ground [04:24]
+05. New Landlord [03:58]
+06. Speak Of The Devil [03:30]
+07. Yokamoma [04:15]
+08. Planet Cannonball [04:00]
+09. Common Law-Love [03:00]
+10. Bad Weather [04:28](   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598206   (999709) от 05.01.2013
+
+Мишель и Мишутка (1961) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый артист медведь Мишель, перестав в отпуске тренироваться, чуть было не сорвал очередное выступление в цирке.
+Но медвежонок Мишутка выполнил за него основной номер — полёт под куполом цирка.Жанр: короткометражный, комедия, семейныйРежиссер: Михаил Шамкович, Аян ШахмалиеваАктеры: Валентин Филатов, Зиновий ГердтПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1EB6B08AB427FB6B46CD0119BBD59F07ABE824A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599221   (999705) от 05.01.2013
+
+[Wallpapers] New 2013 Wallpaper Pack 15
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999705.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Wallpaper Pack 15
+Название: New 2013 Wallpaper Pack 15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70B67A228F5D4A14E1C780C9DF826F8B6EB0257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598730   (999704) от 05.01.2013
+
+Harry Belafonte - Returns to Carnegie Hall (1994) [FLAC|Lossless]<Blues, Folk, World, Reggae>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump Down Spin Around  [02:14]
+02. Suzanne  [05:49]
+03. A Little Lyric of Great Importance  [01:29]
+04. Chickens  [03:09]
+05. Vaichazkem (feat. Chad Mitchell Trio)  [01:34]
+06. I Do Adore Her (feat. Chad Mitchell Trio)  [03:18]
+07. The Ballad of Sigmund Freud (feat. Chad Mitchell Trio)  [03:38]
+08. I've Been Driving on Bald Mountain (feat. Odetta)  [02:19]
+09. Water Boy (feat. Odetta)  [04:34]
+10. A Hole in the Bucket (feat. Odetta)  [05:19](   Читать дальше...   )Жанр: Blues, Folk, World, ReggaeПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598657   (999703) от 05.01.2013
+
+Все мои друзья покидают Брисбен / All My Friends Are Leaving Brisbane (2007) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антея чувствует, что жизнь зашла в тупик, и, так же как и её друзья, собирается уехать из Брисбена. Но тут вновь появляется её бывший парень…Жанр: Мелодрама, КомедияРежиссер: Луиз ОлстонАктеры: Шарлотта Грегг, Райан Джонсон, Синди Нельсон, Романи ЛиПеревод: Многоголосый закадровыйПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C7D26AF88125C6876504FF5D01DBA6907E8A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598597   (999702) от 05.01.2013
+
+PROMID - Sound Of Worship (2012) [MP3|320 кб/с]<Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caress
+02. Don't Forget Me
+03. Eternal Love
+04. Memory of Past Love
+05. Solitude
+06. Trailing Ancestors
+07. New Life
+08. Dependent Heart
+09. Sound of Worship
+10. Towards FreedomЖанр: Lounge, ChillOutПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBFA10D49CA66F6128059A8E07B4EF5B0DD2710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599142   (999699) от 05.01.2013
+
+[Wallpapers] A selection of weapons (05.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999699.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of weapons (05.01.13)
+Название: A selection of weapons (05.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6E9E3C08DB915B9FA8E35BE238217664E2EB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598922   (999694) от 05.01.2013
+
+Win7codecs 3.9.4 + x64 Components [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win7codecs - пакет кодеков для установки в операционную систему Windows 7. Win7codecs представляет собой автоматизированное средство для установки основных декодеров и кодеков. Пакет не содержит дополнительных проигрывателей, не меняет системные ассоциации файлов. При установке он автоматически удалит уже имеющиеся кодеки и заменит их на собственные из комплекта для лучшей совместимости. x64 Components - дополнение к пакетам кодеков Win7codecs, используемых в 64-битных версиях операционной системы Windows 7. Он устанавливает кодеки и декодеры, необходимые для воспроизведения на 64-битных проигрывателях. Пакет x64 Components содержит настройки, используемые совместно с настройками Windows Media Center, позволяющие выбрать различные сплиттеры и декодеры для воспроизведения того или иного типа файла. Кроме того, после установки данного дополнения пользователь сможет выбирать между 64- и 32-битными версиями Windows Media Player. Также x64 Components позволяет переключать настройки выхода аудио (включая полную поддержку выхода 7.1).
+
+(   Читать дальше...   )Название программы: Win7codecsЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598078   (999691) от 05.01.2013
+
+Анатолий Алёшин - Белая река (2011) [MP3|320 кб/с]<шансон, поп>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая река
+02. Рябина
+03. О тебе
+04. Прощай
+05. Заречье
+06. Снег падает
+07. Туман любви
+08. Грусть
+09. Журавли
+10. Времена годаЖанр: шансон, попПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA41C7234D68CDB65D5D3787BA95BC3BCB5F433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598589   (999685) от 05.01.2013
+
+Bettye LaVette - 3 альбома (2005-2012) [FLAC|Lossless]<Soul, R&B, Blues, Rock, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Is Broken [03:45]
+02. I'm Not The One [03:34]
+03. Dirty Old Town [03:55]
+04. The More I Search (The More I Die) [04:22]
+05. I'm Tired [03:19]
+06. Crazy [05:47]
+07. Yesterday Is Here [03:38]
+08. Thankful N' Thoughtful [04:21]
+09. Fair Enough [03:16]
+10. Time Will Do The Talking [04:05](   Читать дальше...   )Жанр: Soul, R&B, Blues, Rock, JazzФормат: track + cueПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598944   (999684) от 05.01.2013
+
+Жан-Мари Леге | Кого страшит развитие науки? [1988] [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный французский ученый, активный борец за мир рассматривает широкий круг проблем развития современной науки, ее место в жизни общества, связи с политикой, моралью, технологией, экономикой, потреблением, экологией, военным делом. Автор рассказывает о специфических научных, внутренних проблемах, о научном методе, структуре науки, ее результатах. Рассчитана на широкий круг читателей.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A05DDAF4A2FB09E2C5B57D64FBCCBD7D66D07E
 ```
 
 https://mybot314.ru/tekegram_catalog/

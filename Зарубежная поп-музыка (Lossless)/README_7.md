@@ -1,3 +1,119 @@
+###  Публикация: 1479598   (1009559) от 24.06.2021
+
+VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Rodrigo - drivers license (04:02)
+02. Hailee Steinfeld - Let Me Go (02:54)
+03. Selena Gomez - Lose You To Love Me (03:26)
+04. Bülow - Revolver (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ACE4757128EFAF306585D303EF1E4BD37B4265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479926   (1009298) от 26.06.2021
+
+Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский певец, который провел на музыкальных подмостках 74 года своей жизни и активно занимался музыкальной индустрией вплоть до своей смерти в 2012 году. За свою карьеру он записал 43 альбома, 18 из них стали золотыми и 3 получили платиновый сертфикат. По всему миру было продано более 100 млн пластинок с его (   Читать дальше...   )CD - 1:
+01. Can't Get Used To Losing You (2:21)
+02. Music To Watch Girls By (2:31)
+03. Speak Softly Love (Love Theme from ''The Godfather'') (3:03)(   Читать дальше...   )Жанр: Pop, Vocal, OldiesПродолжительность: 03:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480227   (1009128) от 27.06.2021
+
+VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - The Nights (2:56)
+02. Plain White T's - Hey There Delilah (3:52)
+03. Zedd, Foxes - Clarity (4:31)
+04. Norah Jones - Don't Know Why (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC4B07E9497DC29ECE008786667CDFD5A059A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481201   (1008448) от 02.07.2021
+
+Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonesome Fighter Prologue
+02. Lonesome Fighter
+03. Om Mani Padme Hum
+04. Mysterious Call(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8425F2D37E86CEB138B0611D659C99848512CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481439   (1008304) от 03.07.2021
 
 Richard Marx - Stories To Tell (2021) 2CD [FLAC|Lossless|image + .cue] <Pop, Pop-Rock>
@@ -630,122 +746,6 @@ a-ha - Memorial Beach (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1EE60CB572B010E7B54F90945339FC15EDDFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352547   (1000866) от 15.01.2020
-
-VA - Acoustic 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Cheap Thrills 3:29
-02. Shannon & Keast - Lush Life 3:10
-03. Meg Birch - I Feel It Coming 3:47
-04. Thom Cooper - Rolling In The Deep 4:00(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FB51F1E5FA8DE8157362DDBBBF167E1AFD6398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352871   (1000852) от 15.01.2020
-
-VA - 100 Greatest Singalong Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Can't Get You out of My Head (03:51)
-02. Prince - Kiss (03:46)
-03. a-ha - Take on Me (03:45)
-04. Aretha Franklin - Respect (02:27)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 06:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D4B813A1D01EFC3A750F43A63570CCB04D191B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352480   (1000721) от 15.01.2020
-
-VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Someone You Loved 3:19
-02. Nora & Will - Late Night Feelings 3:57
-03. Shannon & Keast - We Found Love 3:05
-04. Custom 7 - What We Need (Acoustic Version) 2:41(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353075   (993320) от 16.01.2020
-
-Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image + .cue] <Synth-pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993320.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Désir, Désir (Part 1) 4:55
-2 L'Atlantique 3:30
-3 Aviateur 4:27
-4 Si T'as Pas Compris 3:57(   Читать дальше...   )Жанр: Synth-pop, ChansonПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3EAC496B1E5A0FFEE4EB24DCEB4673A957414E
 ```
 
 https://mybot314.ru/tekegram_catalog/

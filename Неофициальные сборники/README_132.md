@@ -1,3 +1,206 @@
+###  Публикация: 1111610   (846569) от 06.03.2017
+
+VA - Peace Acapella: Grand Hit Collection (2017) [MP3|224-320 Kbps] <RnB, Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Swedish House Mafia And Knife Party X Apster And Nlw - Antidote Soundboy (Bonka Mashup) 3:01
+002. Cashis - 100 Racks 3:48
+003. Kalash - Aller Simple 4:13
+004. Alonzo - Binta 3:37(   Читать дальше...   )Жанр: RnB, Rap, Hip HopПродолжительность: 08:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40D5A3713891191A8DC556C3874F916DC5A3313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111638   (846565) от 06.03.2017
+
+VA - Рок впрок выпуск № 8 (2017) [MP3|320 Kbps] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. МодеМ - Шанель №6 4:27
+002. Fire Stream - Кто мы? 6:05
+003. Label - Нам не все равно (feat. Дмитрий Спирин) 3:12
+004. РЕЙС - Родная 3:33(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FB5E5CA4B1F5BFC0BA6934447F49A1AE74D8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378136   (846526) от 25.04.2020
+
+VA - Настроение жесть (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846526.jpg" />
+</div>
+
+
+###  Подробнее
+
+001	Салехард — Настроение жесть
+002	Ковтун  Андрей — Черная полоса
+003	Коновалов Евгений — В жизни бывает всякое
+004	Южный Ильдар — Откровение странника(   Читать дальше...   )Жанр: Pop, Shanson, OtherПродолжительность: 06:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF6FE93AACB43689E983AA9D227038442AEAE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111815   (846492) от 06.03.2017
+
+Taj Mahal - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Man, Brown Man
+02. Coconut Man (Live)
+03. Kalimba
+04. New E-Z Rider Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD96C1128BFF9CED3A0FD0CECEE7F8A8F280321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111810   (846480) от 06.03.2017
+
+Rihanna - MP3 Play (2014) [MP3|320 Kbps] <RnB, Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umbrella (feat. Jay-Z)
+02. Pon De Replay
+03. Push Up On Me
+04. SOS(   Читать дальше...   )Жанр: RnB, ReggaeПродолжительность: 04:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F293247B7AC913DF3A424C4E248419177F0FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378276   (846457) от 25.04.2020
+
+Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846457.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:29| 01. Andru Donalds - Just For One Day
+|03:45| 02. Andru Donalds - Holdin' On To You
+|04:00| 03. Andru Donalds - Mishale
+|04:21| 04. Andru Donalds - Better Way(   Читать дальше...   )Жанр: PopПродолжительность: 02:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F094CE54973DA3E582E137BDE8F2D041C0EFC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378204   (846290) от 25.04.2020
+
+Livin' Blues - 100% Livin' Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey And Gin
+02. Mysterios Ways
+03. Shylina
+04. I Came Home At Night(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F18660F9E9AFFD6D09458EB5E494F847E5EACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378424   (846289) от 25.04.2020
 
 The Sweet - 100% The Sweet (2020) [MP3|320 Kbps] <Rock, Glam Rock>
@@ -542,209 +745,6 @@ VA - Текила-любовь. Топ новинок (2017) [MP3|256 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B084DD64AB847165E34F6E7DF4946C236C001964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003019   (845013) от 02.04.2016
-
-VA - Музыка хорошего настроения 6 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845013.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eric Prydz Feat. Rob Swire - Breathe
-002. Нюша & Арсений Бородин - Выбирать Чудо
-003. Scarlet White - Memory Finds You
-004. Кристалл - Сгорает Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9232A37C5AF2F8ED8B642F32BC6AE5A47DE7D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112126   (844869) от 07.03.2017
-
-VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Dance, Pop, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Donna Summer, Svet, No Hopes - Bad Girls (Coranny Vocal Version)
-02 - David Guetta - Just A Little More Love (Ibitaly Remix)
-03 - Lexter - Never Gonna Give You Up (Tale & Dutch Remix)
-04 - Justin Timberlake - Can't Stop The Feeling (Denis First Remix)(   Читать дальше...   )Жанр: Club House, Dance, Pop, Deep HouseПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002339   (844824) от 02.04.2016
-
-Meditation Shaman Medicine - The best of Indians Songs (2005) [MP3|320 кб/с] <Native american, Ethnic, Meditation, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopi plague song (3:37)
-02. The eagle's bed (5:10)
-03. A la ke hey the brave (4:23)
-04. Kapa Nam (5:03)(   Читать дальше...   )Жанр: Native american, Ethnic, Meditation, New AgeПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E202107600D0050EB9BFA26C93E6C71A32A3B227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003287   (844814) от 02.04.2016
-
-VA - Top 100 Зайцев Нет март (2016) [MP3|160-320 кб/с] <Pop, Dance, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alekseev - Пьяное Солнце (3:21)
-002. Егор Крид - Будильник (3:24)
-003. Тимати - Ключи От Рая (3:20)
-004. Алексей Воробьев - Она Сумасшедшая (3:06)(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 06:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DD50C9CCA7393106FDEBAD5E01010E741D10F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378671   (844804) от 26.04.2020
-
-VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Actek - Carsten Stahl
-002. Access One - Equalize
-003. Sneith - Beg
-004. Alphatech - Don't Forget(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 07:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378631   (844803) от 26.04.2020
-
-VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Big - UNO 2:41
-02. Billie Eilish - Everything I Wanted (Arroy & Sergey Raf Remix) 3:28
-03. El Capon - Shut Up Chicken 2:31
-04. NRD1 - All Good Things (Come To An End) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111991   (844789) от 07.03.2017
-
-VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AC/DC - Hail Caesar 05:15
-002. Ozzy Osbourne - See You On The Other Side 06:11
-003. Deftones - Root 03:42
-004. Rammstein - Seemann 04:49(   Читать дальше...   )Жанр: Classic Hard Rock, Metal, AlternativeПродолжительность: 10:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1224647   (664786) от 11.05.2018
+
+Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Boxed
+02. Something Magic
+03. Skip Softly (My Moonbeams)
+04. As Strong As Samson(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C07C737749A4E331804A3880D5DF1AB602B319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538880   (661088) от 22.03.2022
 
 VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
@@ -725,35 +754,6 @@ VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69ACFD86E6580A1E788643ECBC5A2BD962D9A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033210   (639767) от 10.07.2016
-
-Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn
-02. A Winter Shade Of Pale
-03. Make My Day
-04. Let It Down Easy(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109E70BDDEE658E0A4F3112C7E19C83A33308D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

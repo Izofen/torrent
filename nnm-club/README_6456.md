@@ -1,399 +1,25 @@
-###  Публикация: 346681   (789134) от 20.11.2021
+###  Публикация: 1275765   (789445) от 13.01.2019
 
-Космические спасатели / Космический патруль / Space Rangers (1993-1994) DVDRip (сезон 1, серии 1-6 из 6) киностудия Кипарис
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789134.jpg" />
-</div>
-
-
-###  Подробнее
-
-2104 год. Исследователи космоса расширили человеческую цивилизацию до самых дальних уголков галактики. Они обнаружили новые миры и научились разделять их с новыми видами существ. Несколько опытных мужчин и женщин отправились за границу исследуемых территорий, не для того чтобы управлять, а чтобы поддержать закон. Они - «Космические Рейнджеры», отчасти миротворцы, (   Читать дальше...   )Производство: США / Ranger Productions Inc., RHI Entertainment, Trilogy Entertainment GroupЖанр: фантастика, боевик, приключенияРежиссер: Дэвид Бертон Моррис, Бен Болт, Микаэл СаломонАктеры: Джефф Кааке, Марджори Монахэн, Кэри-Хироюки Тагава, Джек МакГи, Клинт Ховард, Дэнни Куинн, Готфрид Йон, Линда Хант, Ричард Гроув, Кит БергерПеревод: Многоголосый профессиональный (киностудия Кипарис)Язык озвучки: Русский, английскийПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CB5EEDDB85F878A54DF35735111CFEBA30512C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587378   (789133) от 20.11.2021
-
-Чук и Гек (1953) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история о том, как юные москвичи - семилетний Чук и шестилетний Гек - поехали с мамой к папе, который находился в далекой геологической экспедиции, и как они боролись с жестокой зимой и всевозможными трудностями, потому что их не встретил отправившийся на выполнение срочного задания папа, но послал телеграмму, которую дети выбросили в окошко и не дали (   Читать дальше...   )Жанр: Семейный, Комедия, ПриключенияРежиссер: Иван ЛукинскийАктеры: Юра Чугунов, Андрей Чиликин, Вера Васильева, Дмитрий Павлов, Николай Комиссаров, Михаил ТрояновскийПеревод: оригиналСубтитры: нетПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF642721E4F128092A632E8B6253B9BF5C173B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 2342   (789132) от 20.11.2021
-
-Роджер Желязны | Хроники Амбера [Девять принцев Амбера]
-
->>След.
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечное противостояние Порядка и Хаоса, каждый из которых порождает миллионы отражений, миллионы Теней, населенных бесчисленными существами... Словами самого Р.Желязны: "Амберский цикл - своего рода комментарий к моим размышлениям о природе...
-
-Книга первая
-1.	Девять принцев Амбера(   Читать дальше...   )Жанр: ФэнтезиФормат: MP3Продолжительность: 7h23m08s
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609125B00616F1297BE9597F627FCE2263B1E8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505733   (789131) от 20.11.2021
-
-Основание / Foundation (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) AlexFilm
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789131.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далёком будущем люди расселились за пределами Земли. Однако Галактическая империя грозит рухнуть, согласно расчётам ученого Гэри Селдона. И он создаёт организацию «Основание», призванную восстановить человеческую цивилизацию после грядущих потрясений.Производство: США / Latina Pictures, Skydance Television, Wild Atlantic PicturesЖанр: Фантастика, драмаРежиссер: Алекс Грейвз, Роксанн Доусон, Дженнифер ФангАктеры: Джаред Харрис, Ли Пейс, Лу Льобелл, Леа Харви, Лаура Бирн, Терренс Манн, Кассиан Билтон, Эллиот Кауэн, Саша Бехар, Дэниэл МакФерсонПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEF3B9DF98824D3AD48E68139C5721E817FA3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510931   (789130) от 20.11.2021
-
-Небо (2021) WEBRip [H.264/720p] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подполковник Сошников и капитан Муравьев — два разных характера, две разные судьбы, которым суждено будет сойтись на военной базе Хмеймим. Во время боевого вылета самолет Сошникова был сбит турецким истребителем. Это событие освещали все мировые СМИ, а за ходом спасательной операции следила вся Россия.Производство: Россия / Триикс МедиаЖанр: Биография, военный, драмаРежиссер: Игорь КопыловАктеры: Игорь Петренко, Иван Батарев, Сергей Губанов, Мария Миронова, Илья Носков, Николай Козак, Дмитрий Власкин, Сергей Жарков, Дмитрий Блохин, Григорий НекрасовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725BF7C514439B14249788A74375455799A627CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453659   (789129) от 20.11.2021
-
-Пила 3Д / Saw 3D (2010) BDRip [H.264] [Горизонтальная анаморфная стереопара]
-
->>Зарубежное кино
->>Зарубежные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жертвы Пилы, выжившие в предыдущих испытаниях, обращаются за психологической помощью к товарищу по несчастью Бобби Дагену. Но когда его собственные темные тайны всплывают на свет, развязывается новая волна террора.Производство: США / A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: ужасы, триллер, детектив, криминалРежиссер: Кевин ГротертАктеры: Костас Мэндилор, Шон Патрик Флэнери, Тобин Белл, Кэри Элвес, Бетси Расселл, Дин Армстронг, Чэд Донелла, Джина Холден, Лоуренс Энтони, Наоми Сникус и др.Перевод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E373D7AF13C464AA42953754860970C747B97D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502961   (789128) от 20.11.2021
-
-Во все тяжкие / Breaking Bad (2008-2013) WEBRip [H.264/1080p-LQ] (сезон 1-5, серии 1-62 из 62) Пучков
-
->>След.
->>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался «варкой мета», но накануне, (   Читать дальше...   )Производство: США / High Bridge Productions, Gran Via Productions, Sony Pictures TelevisionЖанр: триллер, драма, криминалРежиссер: Мишель МакЛарен, Адам Бернштейн, Винс ГиллиганАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митти, Боб Оденкёрк, Джанкарло Эспозито, Джонатан Бэнкс, Стивен Майкл Квезада и др.Перевод: Одноголосый авторский (Пучков)Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9057121C7E9BD255FA0CB736AB886A9E58A77676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509840   (789127) от 20.11.2021
-
-Microsoft® Windows® 11 Professional VL x64 21H2 RU by OVGorskiy 11.2021
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789127.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новой версии операционной системы Windows 11 Pro VL x64 от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", гаджеты для рабочего (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46098BC73A265AD9867E8A7293F5765D9C811DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511164   (789126) от 20.11.2021
-
-Windows 10 Pro 21H2 19044.1348 x64 ru by SanLex [Ru] (2021.11.19)
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Windows_10_Pro_consumer_editions_21h2_Russian_x64 "розничного клиента" - для более приватного и комфортного пользования. Отключены или удалены нежелательные службы сбора телеметрических данных, рекламные модули и всё, что влияет на приватность и дискомфорт (в пределах возможного) + оптимизировано для игровой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E38905E3FFF7905FD8DCDFB6954F03E3CD6BAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508383   (789125) от 20.11.2021
-
-Аркейн / Arcane: League of Legends (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) Iyuno-SDI Group
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал основан на видеоигре League of Legends.
-История разворачивается в утопическом краю Пилтовере и жестоком подземном мире Зауне и рассказывает о становлении двух легендарных чемпионов Лиги и о той силе, что разведёт их по разные стороны баррикад.Производство: США / Fortiche Production, Riot GamesЖанр: мультфильм, фантастика, фэнтези, боевик, драмаРежиссер: Паскаль Шаррю, Жером Комбе, Арно ДелордПеревод: Дублированный (Iyuno-SDI Group)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25FC7025503C61E0BC5F982E29F7C8097AC8BF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599017   (789124) от 20.11.2021
-
-Звездные Врата: Полная коллекция / Stargate: Full collection (1994-2008) BDRip (от LostFilm)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрыта прежде неизвестная цель "Шеврона 9", команда попадает на корабль древних, называемый "Судьба", построенный миллионы лет назад для распространения звездных врат по галактике. Команда, возглавляемая доктором Николасом Рашем и полковником Эверетом Янгом, оказывается в ловушке на корабле древних, потому что они не могут изменить запрограммированный (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Микита и др.Актеры: Роберт Карлайл Луис Феррейра Дэвид Блу Брайан Смит Джамил Уолкер Смит Элейна Хаффман Элиз ЛевекПеревод: Многоголосый закадровый -Формат: AVIПродолжительность: 40 серий по ~00:43:00 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1378F705F3C81FC785BAA143D9C5B976BA10E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496440   (789123) от 20.11.2021
-
-Утраченный символ / The Lost Symbol (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDRezka, DniproFilm
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой профессор Гарварда Роберт Лэнгдон получает приглашение выступить с лекцией в Капитолии. Незадолго до мероприятия он узнает, что его наставника Питера Соломона похитили. Злоумышленники оставили на месте преступления отсеченную руку Соломона. Чтобы спасти друга и остановить глобальный заговор, профессору религиозной символогии предстоит расшифровать «утраченное (   Читать дальше...   )Производство: США / CBS Studios, Imagine Entertainment, Imagine Television, Universal TVЖанр: боевик, триллер, драма, детектив, приключенияРежиссер: Дэн Трахтенберг, Матиас Хендл, Борис МойсовскиАктеры: Эшли Цукерман, Эдди Иззард, Вэлори Керри, Сумали Монтано, Рауль Банеджа, Бо Напп,, Рик Гонсалес, Кинэн Джолифф, Сэмми Ротиби, Лаура ДеКартереПеревод: Многоголосый профессиональный (HDRezka Studio, DniproFilm)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced), украинские (Forced), английскиеПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FD88A5C1C5D9B470FEAABDDA449D7A6E54414B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202899   (789122) от 31.01.2018
-
-Amesha Spenta - Amesha Spenta (2011) audiotrauma [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Industrial, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frantic (02:57)
-02. Void (04:25)
-03. Prognosis (03:35)
-04. Eneagram (05:23)(   Читать дальше...   )Жанр: IDM, Ambient, Industrial, ExperimentalПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7083B5FFC9C83B5E88AC9D3FBAE62A41527F615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202837   (789121) от 31.01.2018
-
-James Murray - Killing Ghosts (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footsteps (06:55)
- 02. Grace (05:11)
- 03. First Hand (07:34)
- 04. Soldier, Returned (08:12)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109D56E5AFCEB31B28D5716FD5CA2D26669D58AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202755   (789120) от 31.01.2018
-
-VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
+VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789120.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mike La Funk - Alive (Extened Mix) (feat. Lyla Bull)
-02. Reggie Steele - Higher (BPM Experience Vocal Mix)
-03. Lesamoor - All You Got To Do (Samy K Remix) (feat. Fat Groovyz Band)
-04. Disk Nation - Kandido (David Grant Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:43
+01. Disco Project - Talking (Brooklyn & Friends Disco Mix)
+02. Tony Afrique - Sont Claires (Disco Disco Mix)
+03. Gold Jeans - Waiting For The Day (Morning Mix)
+04. Emmanuelle Duvall - Hands Of Loving (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:24:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EE945A5CB3CFF67D9B38BAF4EA382858FF8E5B0
+magnet:?xt=urn:btih:007A595323D76EBE09BB4D3629EBA793F6A6AEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,257 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202842   (789119) от 31.01.2018
+###  Публикация: 1275449   (789444) от 13.01.2019
 
-Jeroen van Rooij - Building Memories (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Building Memories (05:53)
- 02. Dreams of Legends (04:55)
- 03. Anxiolytica (04:42)
- 04. Continuation of Despair (08:19)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EED5848E1586156D02D13A98C17BC848A1CB53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202789   (789118) от 31.01.2018
-
-Лыжные гонки. Кубок мира 17-18. 6-й Этап. Дрезден (Германия). Спринт. Свободный стиль. Финалы (13.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789118.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 января 2018 года, суббота. 14:20 МСК
-6-й Этап Кубока Мира по лыжным гонкам 2017-2018.
-Дрезден (Германия).
-Женщины, Мужчины. Спринт. Свободный стиль. ФиналыТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F401B0360E9E1D4A80952258077A2F857D45FDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202830   (789117) от 31.01.2018
-
-Fonica - Ripple (2003) Tomlab [FLAC|Lossless|tracks+.cue] <Abstract, Leftfield, Experimental, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soar (01:06)
- 02. Twang (04:13)
- 03. Whirr (05:58)
- 04. Perch (05:10)(   Читать дальше...   )Жанр: Abstract, Leftfield, Experimental, AmbientПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D83E742D38CA752E7F8658D23BAC66ECD8FD475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202822   (789116) от 31.01.2018
-
-Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Towers (12:52)
-02. Varying Distances (03:08)
-03. Twilight Arcade (08:31)
-04. Automata (05:16)(   Читать дальше...   )Жанр: Ambient, MinimalПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF87875573FA94F281CB88D72E50BFE82AF0677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202879   (789115) от 31.01.2018
-
-Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Abstract, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 05:00 Hrs (06:52)
-02. A Test For Tapes And Memories (06:02)
-03. Enarso Lipathe (05:23)
-04. Green Fountain (03:32)(   Читать дальше...   )Жанр: Ambient, Field Recording, Abstract, MinimalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9499270D3BF760D93DF27A8F2D8F60C1BD340F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202898   (789114) от 31.01.2018
-
-Ю. А. Жуков | Эти семнадцать лет... (1963) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя журналиста-международника, обозревателя газеты «Правда» Юрия Жукова знакомо читателям. Настоящая книга родилась из непосредственных впечатлений автора, побывавшего в разных странах, на разных континентах. В ней во многом нашли отражение гигантские перемены, происшедшие в мире, в политической жизни народов за время от первых послевоенных лет и до наших дней.Жанр: История, политология, журналистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD94F7F38006C5F5A1B2CC7528A70CF7BE473A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202810   (789113) от 31.01.2018
-
-Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Мужчины. Гонка преследования (27.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789113.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 января 2018 года, суббота. 15:00 МСК
-Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
-Мужчины. Гонка преследования 12,5 км
-Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F16482A555283D0FF904BCEB41E132822963F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202856   (789112) от 31.01.2018
-
-Marcus Fischer - Loss (2017) 12k [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturna (03:45)
-02. Veering (04:37)
-03. Strand (06:17)
-04. Loss (04:46)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609BBBF711FF6AE0F46CFDD9BD46D8E304CEEBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202976   (789111) от 31.01.2018
-
-VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
+VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House, IndieDance, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789111.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tony Schwery  -  Schizophrenia (Original Mix)  7:22
-02.  Michael Lami  -  Machinarium (Original Mix)  4:07
-03.  O$O  -  Utbrudd (Original Mix)  5:03
-04.  Purecloud5  -  It's Not Too Late (Original Mix)  7:37(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:23:39
+01. RhythmDB - Miami Beachin Vol 1 Low Tide (continuous mix) 56:36
+02. Angel Order & Johnny Mars feat. Alexea - Who Knew (LUCCA SAVI Remix) 2:43
+03. Angel Order & Jota Mendosa - Si Tu Supieras (E.Q. Remix) 3:46
+04. RhythmDB - Soundtrack 3 (Instrumental Mix) 3:32(   Читать дальше...   )Жанр: House, IndieDance, ElectronicПродолжительность: 02:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:415CC40E7B33F36553518E63552A9A49753ACD9C
+magnet:?xt=urn:btih:CB76A33189E2E42FF0F836665138344DBCF1BE99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202947   (789110) от 31.01.2018
+###  Публикация: 1275811   (789443) от 13.01.2019
 
-VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+VA - Zanzibar Cafe' Vol. 6 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
 
 >>Electronic
->>Trance
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789110.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nick V - Taste Of Time (Original Mix)
-02. Nikolauss - Star 48 (Original Mix)
-03. Amber Traill - Ibiza Space (Exouler Remix)
-04. Attila Syah - Malang Rain (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:06:03
+01. 3Stars - Black Orange (Lounge Mix)
+02. 71 Style - Jump For It (Lounge Mix)
+03. Agio-Lax - Another Day In Paradise (Lounge Mix)
+04. Andy Triton - Never On Time (Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:00:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B18DF9F47933DBB81E27998B20E01BC02A419BE8
+magnet:?xt=urn:btih:6DA1D6C0094D631B552664512BDC3DA01E833DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,28 +85,660 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203026   (789109) от 31.01.2018
+###  Публикация: 1275786   (789442) от 13.01.2019
 
-VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+VA - Jungle In A Box (2019) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789109.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nerso  -  Spectral Waves (Original Mix)  6:17
-02.  Sean Tyas  -  People (Extended Mix)  8:07
-03.  Ace Ventura & Ryanosaurus  -  Still Searching (Original Mix)  7:57
-04.  Animato & Pettra  -  Feelings (Original Mix)  7:46(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:45:05
+001. Anthony Kasper - Zuluu
+002. Dave Owen - Jungle Justice
+003. Dutta - Dominos
+004. Kolectiv & Medika - Revolutionaries(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:036985501846AC7F92637E93C1794A2C680FCDCC
+magnet:?xt=urn:btih:0A29FC2F326C44EF356CC0FC6468F5338CCA85D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275839   (789441) от 13.01.2019
+
+VA - Disco Planet (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anita Ward - Ring My Bell (4:24)
+02. Betty Wright - Listen To The Music (Dance) (6:03)
+03. Joe Tex - Loose Caboose (6:45)
+04. Bobby Caldwell - What You Won't Do For Love (4:39)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743DA94D90EA1A73759B821BED9C8CF061D4A00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275858   (789440) от 13.01.2019
+
+Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Away Away Away (0:52)
+ 02. In Control (4:25)
+ 03. LaLaLove (3:24)
+ 04. Down By The Riverside (3:13)(   Читать дальше...   )Жанр: Electronic, Pop, Dance, HouseПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60BCE60AC1D0C3097FCE736320E0613372C74C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275772   (789439) от 13.01.2019
+
+VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Halsey - Without Me
+002. Ariana Grande - thank u, next
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275767   (789438) от 13.01.2019
+
+VA - Record Super Chart 569 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Denis First & Reznikov & Bright Sparks - Shameless
+04.  Axwell - Nobody Else(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092727C64627E63B3A85EDD85265B8F68E088D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275838   (789437) от 13.01.2019
+
+группа Мишки на севере - Мать-тюрьма (2001) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мать - тюрьма
+02. Транзит
+03. Записки из мёртвого дома
+04. Воронок(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6387FB37EA4A884BEE54C573797B871C5CAB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275674   (789436) от 13.01.2019
+
+VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adverze Ft. Mc Instinct - On The Block
+002. 2Pole - Magnetar
+003. Alan Mille - Solaris
+004. Salim - Alchemy(   Читать дальше...   )Жанр: Techno, Electronic, Tech HouseПродолжительность: 13:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275850   (789435) от 13.01.2019
+
+VA - Trending Topics (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Fre - Violences Verbales
+002. Bonez Mc - Kokain
+003. Casus Belli - Nardinoum
+004. 47 Crew - Le Grand Saut(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81ADB5258A00A7172F97DC7B24DD56F15405B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275889   (789434) от 13.01.2019
+
+Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. From The Shadows (4:05)
+03. Sky Shield (4:13)
+04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8B098F61FCA7514150C1B45D403E8D99969121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275848   (789433) от 13.01.2019
+
+VA - Space Jump (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Plug - Inception
+002. Helix ft. Romy Wave - Divine (Extended Mix)
+003. Methodub - Oscillate (Original Mix)
+004. Titan - Still I Rise(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650F33CD549D4B1517F700450BDB507CB6BD3FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511193   (789432) от 20.11.2021
+
+Заги бок - Сложносочинённый (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хроническое [02:35]
+02. Как перестать думать [02:57]
+03. В осаде [03:11]
+04. Стыдно [03:40](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35FE089A3D522B42EFDD637342B4EEE73267993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511230   (789431) от 20.11.2021
+
+Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Hope
+02. Antigone
+03. Of Volition
+04. Le Radeau de La Meduse(   Читать дальше...   )Жанр: Symphonic Melodic Death MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B86E7954C5CB278AE8828D191CA4BAC11068E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511353   (789430) от 20.11.2021
+
+Swingrowers - Hybrid (2021) [AAC|~327 Kbps] <Electro, Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Blink of an Eye (intro) (1:49)
+02. Hybrid (3:02)
+03. Follow the Stars (3:20)
+04. Seven Million Faces (3:39)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73E2C0175614BA0D09CC99FC8446D137348F9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511293   (789429) от 20.11.2021
+
+Marina & the Kats - Different (2021) [AAC|~307 Kbps] <Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure (2:48)
+02. Ponder (3:45)
+03. Different (3:56)
+04. No Means No (0:41)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A73B70F49EC715316B94D8490B1237CEF70855A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511373   (789428) от 20.11.2021
+
+Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Find My Way
+02. See The Light
+03. Do You Really Want To Fall In Love Again
+04. Don't Keep Me Waiting(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB2CB60595DE1779498F25A8A86873759857DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511289   (789427) от 20.11.2021
+
+Marina & the Kats - Swingsalabim (2019) [AAC|~332 Kbps] <Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You're Kissing Me (2:22)
+02. Stick to What You Got (3:11)
+03. Say What? (3:17)
+04. I Should Have Known Better (4:40)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C5E881CE95FD964A1A0DEEF0D435D0B94FC185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511310   (789426) от 20.11.2021
+
+Пятеро на одного (20.11.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EE1EF231D75A9DCF234688CDE5914AEF94BB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511159   (789425) от 20.11.2021
+
+Энн Кливз | Вера Стенхоуп (Книга 3). Скрытые глубины (2021) [MP3, Варвара Шалагина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное жаркое лето на побережье Нортумберленда. Джули Армстронг возвращается домой после вечерней прогулки и обнаруживает, что ее сын убит. Люка задушили, положили в наполненную ванну и украсили дикими цветами. Эта стилизованная сцена убийства заинтриговала инспектора Веру Стэнхоуп и ее команду. Но они должны действовать быстро, чтобы найти таинственного маньяка. (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыПродолжительность: 10:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB053E38C884F6BC6377654607861D582DA1D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511093   (789424) от 20.11.2021
+
+VA - Beatport Hardstyle: Sound Pack #369 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subraver - Can Feel It
+002. Rikoj & Dh - Carry You Home
+003. DJ Pulse & Nova Scotia - The Ultimate Buzz
+004. Retrospect - Never Break(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 09:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428F48C6B37795EDCD642BD6342BD20ED2AC99B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511328   (789423) от 20.11.2021
+
+Synth Replicants - atlantis (2021) [AAC|~321 Kbps] <Electronic>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. atlantis (13:32)
+02. in the dark (4:45)
+03. life sign (5:12)
+04. water and ice (6:05)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3807DEE97C34FBD5C9BFB6CF30B3AA741D8B5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511095   (789422) от 20.11.2021
+
+VA - Dive In Red Oceans: Psy Trance Mix (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gms - Happy Trails
+002. Vandeta & Ananda Shake - Anandeta
+003. Aida, Thirsty Amigo - Without You
+004. Throw3r - Stay Awake(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23B73A7AFA3BA6C56255ED73F285ED4C1B93876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511204   (789421) от 20.11.2021
+
+Саша Скул - Конец детства (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А вот и мы [02:35]
+02. Марадонна [02:18]
+03. Шёпот [01:51]
+04. Снова (feat. Metox) [04:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D3A56B81D3590DEEC94B0BDBC8CF572F273425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511194   (789420) от 20.11.2021
+
+Рыночные Отношения - 2021 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позывные [03:18]
+02. Забитый сектор [03:10]
+03. Грязные рэперы [02:24]
+04. Улица (feat. Magu) [02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B3FF0E2CA2D7CBB20BC66E891CE5C7FAE16464
 ```
 
 https://mybot314.ru/tekegram_catalog/

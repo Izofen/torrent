@@ -1,3 +1,31 @@
+###  Публикация: 1207431   (780585) от 18.02.2018
+
+Векторный клипарт - Happy Valentine's Day vector cards #4 [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+С днем Святого Валентина
+16 EPS, AI + previewФормат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EB7CC9F4180B1E4D102169F1698BD417FEB5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207434   (780582) от 18.02.2018
 
 Векторный клипарт - Happy Valentine's Day vector cards #5 [EPS]
@@ -672,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14DB99AB94FC425BE9A040C15D9EF6DF93A13DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207973   (780243) от 20.02.2018
-
-Растровый клипарт - Fotolia - Young beautiful woman lying in bathtub [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая красивая женщина с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4446x6005-7563x5042
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAC0B7D8FB8E5EB8A870944A83196744740D650
 ```
 
 https://mybot314.ru/tekegram_catalog/

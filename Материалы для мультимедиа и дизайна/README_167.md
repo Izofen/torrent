@@ -1,3 +1,29 @@
+###  Публикация: 1037507   (613772) от 24.07.2016
+
+Шаблоны - CreativeMarket - iPads - Mockups V05 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613772.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACE9FF00333A3AB48AA550BB2975C4B948559D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037469   (613681) от 24.07.2016
 
 Шаблоны - CreativeMarket - iPads - Mockups V04 [PSD]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B62ED19B95AB84216BDC8E247CD3C1687FABB679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912191   (611973) от 25.06.2015
-
-Пресеты - 500+ Premium Lightroom Preset [LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 500 качественных пресетов для Lightroom, разделённые на 27 различных категорий.Формат: LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF05C49438141B45CC5C28B49B556E21937C43D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1058286   (470829) от 30.09.2016
+
+Eric Clapton - Live in San Diego (with Special Guest JJ Cale) (2016) Live [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell the Truth
+02. Key to the Highway
+03. Got To Get Better in a Little While
+04. Little Wing(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F309CE75F58CAD64553B0337698D9CCDF73E1581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 239960   (470744) от 26.09.2010
+
+The Beatles - Golden Beatles (2002) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I Saw Her Standing There
+02 Love Me Do
+03 Twist And Shout
+04 All My Loving
+05 I Wanna Be Your Man
+06 A Hard Day's Night
+07 I Should Have Known Better
+08 And I Love Her
+09 Can't Buy Me Love
+10 I'll Be Back(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245650   (469695) от 07.09.2018
 
 VA - Kuschelrock Vol.32 (2018) [MP3|320 Kbps] <Pop, Rock>
@@ -714,64 +778,6 @@ Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0EF09F5A269F614FF9EBA5A34E8D6BE0918B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408396   (456133) от 12.09.2020
-
-Stoned Harpies - Another Land (2020) EP [MP3|320 Kbps] <Rock, Stoner Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456133.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ﻿They Want Me To Meet You Up On The Shore (4:30)
-2. T﻿he Floater (5:21)
-3. I Only Listen (4:54)
-4. Dead Seagulls (7:10)﻿(   Читать дальше...   )Жанр: Rock, Stoner Rock, Psychedelic RockПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AE15851441F64903E6494FD61F55EB6CFE3093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408392   (456131) от 12.09.2020
-
-Puce - The Trough (2020) [MP3|320 Kbps] <Hard Rock, Psychedelic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456131.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beowulf's Cry (2:01)
-2. Above the Fjord (3:12)
-3. The Trough (3:53)
-4. Playing With Bodies (2:58)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Garage RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25099E588496B95376980AE593C518F0E4E8BE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

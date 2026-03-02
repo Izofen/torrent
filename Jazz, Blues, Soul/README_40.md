@@ -1,32 +1,3 @@
-###  Публикация: 1479521   (1009525) от 24.06.2021
-
-No Possession - Third Time's a Charm (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Out (3:56)
-02. Find My Way Home (3:39)
-03. Dark Eyes (3:50)
-04. Retold 'n' Recycled (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449ED6D6B5E3D82D295BF0D5109A0421B98186C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479694   (1009464) от 25.06.2021
 
 Stan Getz - Communications '72 (2007) Gitanes Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
@@ -746,6 +717,35 @@ The Dave Brubeck Quartet - Time Outtakes (1959) 2020, Brubeck Editions [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B4A6DFC1CFAFEF0CD647434BF3A218E2E7F63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482199   (1007738) от 07.07.2021
+
+Dave Rudolf - Nostalgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backstreet Driver (3:52)
+02. Wayfaring Stranger (4:01)
+03. I Thought I Knew (3:54)
+04. Nostalgia (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF0D102690980CD2A0BF087128A93A7168040DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

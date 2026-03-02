@@ -1,22 +1,53 @@
-###  Публикация: 1302582   (580256) от 16.05.2019
+###  Публикация: 561082   (406269) от 16.10.2012
 
-Insofta Cover Commander 5.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
+Rescatux 0.30 (Иструмент сисадмина, пользователя) [i386 + x86-64] (1xCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_406269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rescatux новый  rescue  GNU/Linux CD/USB основанный на Debian, с дружественным меню для управления задачами восстановления и решения ряда других проблем в операционных системах.
+
+Включает в себя следующие инструменты: Super Grub2 Disk; восстановление GRUB / GRUB2; проверяет и исправляет файловые системы; очищает пароли Windows; позволяет изменить пароли Gnu/Linux; регенерирует sudoers файлы; исправляет записи MBR Windows, а также содержит много других инструментов.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560164   (406259) от 16.10.2012
+
+10-Strike LANState 6.3r Pro [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580256.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_406259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Insofta Cover Commander позволяет создавать профессиональные виртуальные коробки, книги, DVD-коробки, руководства, CD-диски, скриншоты. Всего несколько щелчков мыши все что нужно для выполнения этой работы. Исчерпывающие настройки освещения, камеры, тени, отражения позволяют вам создать изображение любого уровня сложности и увидеть готовый результат в реальном времени (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+10-Strike LANState - программа для администрирования и мониторинга серверов, компьютеров, и прочих сетевых устройств. Программа может быть полезна администраторам и простым пользователям сетей Microsoft Windows. С помощью LANState вы можете наблюдать текущее состояние сети в графическом виде, изменяющееся в реальном времени, управлять серверами и рабочими станциями, вести мониторинг удаленных устройств с помощью периодического опроса компьютеров.
+ Механизм мониторинга с сигнализацией позволяет получать своевременные оповещения о различных событиях - неполадках сети, нехватки места на серверах, сбоях в службах и так далее.
+
+LANState содержит множество полезных функций для администраторов сети, например, отправка сообщений, перезагрузка и завершение работы удаленных компьютеров, пинг, определение имени по ip адресу, трассировка маршрута, сканирование портов и хостов. Также имеется возможность получения различной информации об удаленных компьютерах без установки дополнительных программ на них. Например, просмотр реестра (   Читать дальше...   )Название программы: 10-Strike LANStateЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1277B4BF2A139F2A6E1E223881B4FA7CFA8B537E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +55,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 811087   (580240) от 08.08.2014
+###  Публикация: 560654   (406252) от 16.10.2012
 
-Твин Пикс / Twin Peaks (1990) BDRemux [1080p] (Сезон 1, серии 1-8 из 8) [Ю. Сербин]
+XCOM: Enemy Unknown [Ru/En] (P/1.0.0.5443) 2012 l FairLight 3xDVD5
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580240.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История начинается с известия о находке обнаженного тела Лоры Палмер, «завернутого в полиэтилен» и выброшенного волнами на берег озера. В ходе расследования перед внимательными взглядами агента Купера, шерифа Трумана и его помощников проходят разные жители Твин Пикс. Постепенно зритель открывает для себя темную и страшную сторону жизни обитателей на первый взгляд (   Читать дальше...   )Производство: США / Lynch/Frost Productions, Propaganda Films, Spelling Entertainment, Twin Peaks Productions Inc.Жанр: Триллер, драма, криминал, детективРежиссер: Дэвид Линч / David Lynch, Марк Фрост / Mark Frost, Лесли Линка Глаттер / Lesli Linka Glatter,  Калеб Дешанель / Caleb DeschanelАктеры: Кайл МакЛоклен, Майкл Онткин, Шерил Ли, Лара Флинн Бойл, Шерилин Фенн, Рэй Уайз, Мигель Феррер, Дэвид Линч, Билли Зейн, Хэзер Грэм, Медкен Эмик, Дэна Эшбрук, Ричард Беймер, Уоррен ФростПеревод: Одноголосый закадровый (авторский)Озвучка / Автор перевода: Ю. СербинЯзык субтитров: Русский (Киномания, Оборотень БОБ), английскийПродолжительность: 01:34:03 + 7 ~00:46:00
+Станьте частью секретной военной организации под названием XCOM. Отныне вы и ваши соратники — последнее препятствие на пути враждебных инопланетян к завоеванию Земли. В роли командира спецподразделения вам предстоит распределять ресурсы, развивать технологии, разрабатывать общую стратегию сражений и определять тактическую диспозицию каждого солдата.
+
+Оригинальная XCOM — настоящая жемчужина мира компьютерных игр. И теперь ее идеи, возможности и тактическая глубина вновь оживут, благодаря стараниям сотрудников Firaxis.
+
+XCOM: Enemy Unknown привносит в мир XCOM новую историю, новых врагов и новые технологии, с помощью которых вам предстоит защитить Землю. Судьба человечества окажется в ваших руках. Только эффективно исследуя технологии пришельцев, развивая собственную базу, планируя операции и контролируя передвижения каждого бойца на поле боя, можно достичь успеха в этой войне.(   Читать дальше...   )Тип издания: ПираткаЖанр: Strategy \ 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69AC9FF46340D4097865E682C2E99AF0453AA633
+magnet:?xt=urn:btih:22C3691971EB00C1579676CC40E688E50B3B222F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,27 +85,360 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920533   (580194) от 22.07.2015
+###  Публикация: 561408   (406248) от 17.10.2012
 
-Михаил Львов | Живу сегодня (1973) [PDF]
+Sexy Girls Pack Wallpapers (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 6144x4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8888E2A7B8299BF4DB4525BACD7C3EE68628F3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561411   (406247) от 17.10.2012
+
+Gilrs Wallpaper Collection (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28366C3C4C0EC10F5AD9A9968CD4A8645E89ADED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560855   (406245) от 17.10.2012
+
+VA - Trance Night (2012) [MP3|320 кб/с]<Progressive, Trance, Dream>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts 07:14
+02. Manufactured Superstars & La Riots Ft Selina Albright - Born To Rock (Original Mix) 06:06
+03. Above & Beyond - On My Way To Heaven (Above & Beyond Club Mix) 07:52
+04. Sean Tyas And Giuseppe Ottaviani - Arcobaleno (Club Mix) 07:34
+05. Joop Feat. Tiffany Johnston - Just One Night (Original Mix) 06:54
+06. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix) 05:12
+07. Matt Bukovski - In Dreams (Original Mix) 06:35
+08. Ernesto Vs Bastian & Kay Wilder - Just In Bibber (Original Mix) 05:10
+09. Burzhuy & Tigran Oganezov - Springboard (Original Mix) 06:33
+10. Cj Arthur - Magnet (Den Rize Pres Blur8 Remix) 07:10(   Читать дальше...   )Жанр: Progressive, Trance, DreamПродолжительность: 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F41AD3868B430989231EF81652B5A4DF3852C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561376   (406244) от 17.10.2012
+
+Nature Wallpapers (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561412   (406243) от 17.10.2012
+
+Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559890   (406241) от 17.10.2012
+
+VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mage - Cosmic Station
+02. Aaron Bond - Face The Truth
+03. High Feel - Clone
+04. Nemanoe - Movement In Uncertainty
+05. Kasper & TekSketch - ReEntry
+06. Mage & DJ Ike - Visions Of Love
+07. Nelver - Grand Case
+08. Nelver - Flatline (Nelver Remix)
+09. Beatchemist - I Can't Explain It
+10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560862   (406240) от 17.10.2012
+
+VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
+02. Amsterdam (Original Mix) - Orjan Nilsen
+03. K Ta (Original Mix) - Andy Moor
+04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
+05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
+06. Plify (Original Mix Edit) - Ram
+07. Sirius (Ikerya Project Remix) - Eddie Lung
+08. Galactica - Nick Rowland
+09. Everblue (Adam Foley Remix) - Michael Lee
+10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561578   (406238) от 17.10.2012
+
+[Wallpapers] HQ Wallpapers №56
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406238.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HQ Wallpapers №56
+Название: HQ Wallpapers №56
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560744   (406237) от 17.10.2012
+
+Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glenn Morrison -  I See You In Me (Original Intro Mix)
+02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
+03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
+04. Protoculture -  Perpetual Motion (Original Mix)
+05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
+06. Ralphie B -  The Holy Grail (Original Mix)
+07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
+08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
+09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
+10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561400   (406234) от 17.10.2012
+
+Wallpapers Fantasy (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561331   (406232) от 17.10.2012
+
+Reel People - 10 Years Of Soulful Bliss (2012) [MP3|320 кб/с]<Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star (feat. Tony Momrelle)
+02. Can't Stop (feat. Angela Johnson)
+03. It Will Be (feat. Tony Momrelle)
+04. Butterflies (feat. Dyanna Fearon)
+05. Outta Love (feat. Omar)
+06. Golden Lady (feat. Tony Momrelle)
+07. The Light (feat. Vanessa Freeman)
+08. Alibi (feat. Darien)
+09. Second Guess (feat. Jag)
+10. The Rain (feat. Sharlene Hector)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FFF2BD3A33943C0C7011E6905A5FE89E655996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561706   (406230) от 17.10.2012
+
+Журнал | Формула ремонта №2 [март 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580194.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В первый раздел этой книги вошли как бы «куски» увиденной мною географии Родины. Я всматриваюсь в лицо ее, как в лицо матери.
-Полюс памяти, голос памяти — содержание второго раздела книги.
-Человеку нужно время от времени оглядываться и па свое личное прошлое, пересматривать, передумывать, делать выводы. Просветленно поговорить со своим прошлым, хотя бы мысленно сказать (   Читать дальше...   )Жанр: Поэзия, стихотворенияФормат: PDF
+Информационный журнал о дизайне, строительстве и ремонте. Состоит из редакционных статей с комментариями специалистов на данную тему, демонстрации интерьеров дизайнеров, тест-драйвов и мастер-классов от хендмейкеров. Кто, как не мы можем рассказать, что ремонт в доме можно делать с удовольствием!Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DACE407DB7923937FB551E24B7D7EB24573FE238
+magnet:?xt=urn:btih:97239A06DA76F0DEE8FBE0D660BE45BBE83C83DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +446,121 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920485   (580193) от 22.07.2015
+###  Публикация: 561381   (406227) от 17.10.2012
 
-Светлана Кузнецова | Стихотворения [сборник] (1986) [DJVU]
+HQ Wallpapers for a desktop (15.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D650D8B0F42153FC2A3109DD989860FB7902BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559933   (406224) от 17.10.2012
+
+VA - dBridge & InstraMental - Fabriclive 50 (2010) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riya - Seems Like
+02. Instra-mental - From the Start
+03. Stray - Pushed
+04. Dan Habarnam - Nu Este Roz
+05. Vaccine - Ochre
+06. ASC - Starkwood (Consequence Remix)
+07. Consequence - Lover's Shell
+08. Distance - Sky's Alight (Dub)
+09. Alix Perez - Self Control
+10. Genotype - Distorted Dreams / Meleka - Go (Accapella) - Meleka(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EF509AB2D33C862E7580CF0509FFCA6C653105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559928   (406222) от 17.10.2012
+
+VA - Danny Wheeler Presents - The Brazil Project (2010) [MP3|128 - 320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Laranjeiras - Azymuth (Danny Wheeler Remix)
+2. Juntos Mais Uma Vez - Azymuth (Danny Wheeler Remix)
+3. Sem Pressa - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+4. 4 Eyed Viper - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+5. Vibrasom - Sabrina Malheiros (Danny Wheeler Remix)
+6. Copa A Noite - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
+7. Nao Quero Nem Saber - Sabrina Malheiros (Danny Wheeler Remix)
+8. Butterfly - Azymuth (Danny Wheeler Remix)
+9. Maracateura - Sabrina Malheiros (Danny Wheeler Remix)
+10. Deixa a Nega Gingar - Clara Moreno (Danny Wheeler Remix)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C52C63BA832C7ABAE2350C59EAD064EAF2D8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561682   (406218) от 17.10.2012
+
+Журнал | Народный лекарь №19 [октябрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580193.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книгу Светланы Кузнецовой вошли стихотворения из ее сборников «Проталины» (1962), «Соболи» (1965),  «Сретенье» (1969), «Забереги» (1972), «Гадание Светланы» (1982).Жанр: Поэзия, стихотворенияФормат: DJVU
+Журнал создан для тех, кто заботится о своем здоровье, ведёт здоровый образ жизни и интересуется как традиционными, так и народными методами лечения и профилактики различных заболеваний. В каждом номере – авторские статьи, интервью с ведущими специалистами в области фитотерапии, гомеопатии и народной медицины, а также письма читателей с советами и рецептами.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:951E6B2F7AC71CF9EB0BE21B9EB2990E248049B1
+magnet:?xt=urn:btih:F79B023C9975DD5DD4EA3FECD8239D6602CD9C21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,28 +568,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 919967   (580192) от 22.07.2015
+###  Публикация: 561399   (406214) от 17.10.2012
 
-Black Spiders - Volume (2011) [MP3|320 кб/с]<Hard Rock, Stoner>
+Desktop Wallpapers (16.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDB4372CD8D803C4612BDBE5E586D06B8F88EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561441   (406204) от 17.10.2012
+
+Artworks by BossLogic [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by BossLogic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D41B9DEF3229B17AD454C88DD989E884FDC375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561700   (406199) от 17.10.2012
+
+И.К.Антонова | Марксизм вне политики. Источники, генезис и структура работ Маркса и Энгельса по естествознанию [2004] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе дан философско-текстологический анализ химических, геологических и других эксцерптов Маркса, а также его математических рукописей. Изложению данных вопросов предшествует исследование места естествознания в философском и экономическом наследии Маркса на основе достижений современной философии, текстологии и методологии науки. Отдельная глава посвящена анализу работ Энгельса по вопросам философского обобщения естествознания.  В научный оборот вводятся ранее не исследованные рукописи Маркса и Энгельса. Рукопись написана в результате работы автора над подготовкой и рецензированием томов Полного собрания сочинений Маркса и Энгельса на языках оригинала (МЭГА).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F71B031E129F634BA91CD67B4282094FD7F49C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560775   (406196) от 17.10.2012
+
+Tiesto - Club Life 289 (14.10.2012) [MP3|192 кб/с]<House / Electro House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580192.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. St. Peter (Single Version) (04:09)
-02. Stay Down (Single Version) (03:02)
-03. Cold Dead Hands (03:43)
-04. D&B (01:55)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:43:34
+Hour 1:
+01. Gossip - Move In The Right Direction (Kaz James Remix)
+02. Jordy Dazz & Dannic vs. Rihanna - Where Has Fuego Been? (ID Remix)
+03. Jensby - Foldback
+04. Lenny Kravitz vs. Leon Bolier - Are U Gonna Go Us (Dannic Mashup)
+05. Hard Rock Sofa & Squire feat. Max'C - Just Can't Stay Away
+06. Felix Da Housecat feat. Miss Kittin - Silver Screen Shower Scene (Brainless Bootleg)
+07. Tommy Trash & A-Trak - Tuna Melt
+08. Sebastian Ingrosso & Tommy Trash - Reload
+09. EITRO - Character?(   Читать дальше...   )Жанр: House / Electro HouseПродолжительность: 01:55:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EABFFAB0FAE08D5BE3FB960E0303796699E2664F
+magnet:?xt=urn:btih:CF91368A8719144DF5AF3AD082F7DAA5B1DCA44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,28 +681,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920500   (580182) от 22.07.2015
+###  Публикация: 561444   (406190) от 17.10.2012
 
-EZIETTO - Memories (2015) [FLAC|tracks|WEB-DL]<Chillout>
+Artist Zhu Haibo [Графика]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580182.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Stars & Warriors (original mix) - 04:03
-02 Celtic Flavour (original mix) - 04:02
-03 Trinity (original mix) - 02:55
-04 Faraway Land (original mix) - 04:25(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:43:12
+Artist Zhu Haibo
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AA33F7D72DAE9BB8BEC6EAA85E9FCAE8DEAAD5F
+magnet:?xt=urn:btih:F05C6BCE048EAFEABB64B64E9C821F230F782DCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,318 +707,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920523   (580179) от 22.07.2015
+###  Публикация: 560831   (406186) от 17.10.2012
 
-VA - All You Need Is Lounge (2015) 3CD [FLAC|tracks+.cue]<Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mercury "Old Man's House(Original House)"
-02. Weiss "My Sister(Original Mix)"
-03. The Duncan "Too Deep"
-04. Kruder & Dorfmeister "High Noon"(   Читать дальше...   )Жанр: LoungeПродолжительность: 03:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B3700C869246A3504A17AE8CD036434277598C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302641   (580177) от 16.05.2019
-
-Product Key Explorer 4.1.2.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Product Key Explorer - программа позволяет расшифровать, увидеть и сохранить серийные номера продуктов Microsoft, CD-ключи установленных на компьютере программ, и не только их. Неполный список ПО, регистрационные данные которых можно увидеть и сохранить: Microsoft Windows (XP, 2003, Vista, 7, 8, 10), Microsoft Office 2003, Microsoft Office 2007, Microsoft Office (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411814551E6F03456AF62AB0D34C8C125BB62AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302349   (580174) от 16.05.2019
-
-Unformat 5.0.5 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580174.jpg" />
-</div>
-
-
-###  Подробнее
-
-UNFORMAT - Восстановление отформатированных дисков ПК, карт памяти и USB флэш-накопителейЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A66B2C1B0303A637A7E5146A9F17BB112949D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302501   (580165) от 16.05.2019
-
-CareUEyes 1.1.24 Pro Portable by Joo Seng [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes.
-CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BB4B01CA14CDCF74C1D135D31618BF940854C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302656   (580163) от 16.05.2019
-
-Irony Curtain: From Matryoshka with Love (2019) [Multi] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Irony Curtain – сатирическая игра в жанре point-and-click adventure. Ее главный герой – западный журналист, в первый раз посетивший коммунистический режим Матрешки. Погрузитесь в атмосферу грубого юмора, высмеивающего диктатуру, в атмосфере нарисованной от руки стилизованной графики и всего великолепия и четкости, которые позволяет стандарт 4К! Вас ждет замечательный (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 16 мая. 2019Разработчик: Artifex MundiПоддерживаемая ОС: 10.11+Жанр: Приключенческие игрыЯзык озвучки: английскийЯзык интерфейса: английский, немецкий, польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD17A5A6370D613E76AAF2278C5CB94D5A9AEF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042198   (580158) от 11.08.2016
-
-CPU-Z 1.77.0 Portable by loginvovchyk [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580158.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569E303F9A334D7D8F9C04130DC2174F60DF2B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020115   (580150) от 11.08.2016
-
-Проповедник / Пастырь / Preacher (2016) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) NewStudio
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проповедник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его (   Читать дальше...   )Производство: США / AMC Studios, American Movie Classics (AMC), DC EntertainmentЖанр: фэнтези, драма, детектив, приключенияРежиссер: Эван Голдберг, Сет Роген, Майкл СловисАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Люси Гриффитс, У. Эрл Браун, Том Брук, Анатол Юсеф, Йен Коллетти, Дерек Уилсон, Джеки Эрл Хейли и др.Перевод: Профессиональный многоголосый закадровый - NewStudioФормат: MKVПродолжительность: ~00:49:00 серия (01:04:48 первая серия)Реклама: присутствуют голосовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79A7DA1915A5EFC3C6D3E2F135DB4317C0FCEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920461   (580132) от 22.07.2015
-
-EZ CD Audio Converter 3.1.0.1 Ultimate Portable by PortableAppZ [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580132.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C32B4511CB581656E9925EC69598D5BE7F352D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920482   (580118) от 22.07.2015
-
-VA - Spring Chillstep Sessions 2015 (2015) [FLAC|tracks|WEB-DL]<Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breex - Shooting Stars [4:05]
-02. Li'lith - When You Smile [3:33]
-03. Tom Strobe - Love Makes Me Sad [2:51]
-04. Sonatrix - Remember Me [4:02](   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE7C88E6ED947F73B8516A068062905BF2D0475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920515   (580114) от 22.07.2015
-
-Vivaldi 1.0.231.3 Technical Preview [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto. Внешний вид (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7781D5F3F41A79B8135B356451798F2A763ABBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302647   (580113) от 16.05.2019
-
-Wondershare Recoverit 7.3.2.3 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Recoverit- мощная и простая в использовании программа, которая может восстановить удаленные, отформатированные, потерянные и недоступные данные с ПК, USB-диска, внешнего жесткого диска, мобильного телефона, цифрового фотоаппарата, Ipod, MP3/MP4-плеера и других носителей информации.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94C812712595F9B24C558D5CDEFC4D9DE080422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920416   (580112) от 22.07.2015
-
-Форсаж 7 / Furious Seven (2015) HDRip [Extended Cut]
+Ящерица / Marmoulak (2004) [H.264] DVDRip [PER/EN,FR sub]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580112.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После того, как команда отчаянных гонщиков под предводительством Доминика Торрето уничтожила преступную банду Оуэна Шоу и вызволила из его цепких лап подружку Доминика, родной брат погибшего — Ян Шоу — мечтает отомстить. Команду, виновную в гибели Оуэна, Ян планирует жестоко покарать...Производство: USA, Japan, Universal Pictures, Media Rights Capital, China Film Co.Жанр: Боевик, Триллер, КриминалРежиссер: Джеймс ВанАктеры: Дуэйн Джонсон, Пол Уокер, Вин Дизель, Джейсон Стэтхэм, Мишель Родригес, Лукас Блэк, Джордана Брюстер, Лудакрис, Джон Сенатьемпо, Тайрез Гибсон, Анна Колвелл, Джимон Хонсу, Ронда Раузи, Бенджамин Бланкеншип, Клер Кэллэуэй, Микки Фрэнсис, Виктор Эрнандес, Роджер Херрера, Тони Джа, Натали Келлей, Тэйлор МакФерсон, Роман МитичянПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:19:55
+Реза Marmoulak, главный герой, вор известный в криминальных кругах за его способность к лазанию по стенам зданий (из-за которого он и получил свое прозвище, "Marmoulak", или "ящерица" на персидском языке).
+В самом начале фильма, он арестован и обвинен в вооруженном ограблении, преступлении, которого, как раскрывается на протяжении фильма, он не совершал. Тем не менее, он приговорен к пожизненному заключению, и встретил в тюрьме жестокого надзирателя, который говорит, что его целью является "сделать из Резы человека" и, чтобы заставить его покаяться, так что он будет "принят на небеса силой", если это необходимо.Жанр: Драма, КомедияРежиссер: Камал ТабризиАктеры: Parviz Parastui, Бахрам Ибрахими, Shahrokh Foroutanian, Farideh Sepah Mansour, Мидех ТахмасебиПеревод: ОтсутствуетЯзык субтитров: Английский, французскиеПродолжительность: 1:50:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F0EE47A11E7713389A46C13EEAB336AE1407809
+magnet:?xt=urn:btih:0B4AC654C385D1C3AC14C5F2BC286E4E3D07D678
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,215 +734,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 920245   (580108) от 22.07.2015
+###  Публикация: 560686   (406181) от 17.10.2012
 
-Петр Николаевич Врангель | Воспоминания Петра Николаевича Врангеля (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он начал Первую мировую в чине ротмистра и командира эскадрона. Через шесть лет закончил воевать в чине генерал-лейтенанта, главнокомандующего Русской армией.
-Он стал последним значимым, вошедшим в историю полководцем Белого движения. Не начиная борьбу с большевиками, он, по сути, ее заканчивал.
-Его мемуары – ценнейшее свидетельство эпохи.
-В них впечатления от хаоса (   Читать дальше...   )Жанр: История, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4554F3558584C72D6A00129A6CF74AFEDBADD2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302638   (580103) от 16.05.2019
-
-Adobe components: Flash Player 32.0.0.192 + AIR 32.0.0.125 + Shockwave Player 12.3.5.205 RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Flash Player — плагин, предназначенный для всех популярных браузеров - Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, с помощью которого можно проигрывать Flash-ролики (файлы SWF), смотреть онлайн-видео и слушать онлайн-аудиофайлыи который бесплатно можно скачать на . Только с этой надстройкой браузер способен корректно отображать веб-страницы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CD9F304A5F6300FA192DEF3544FA94AC14E645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920116   (580073) от 22.07.2015
-
-Уитни Хьюстон - Уитни Хьюстон (1985) [FLAC 2.0 16/44,1|traks(Vinyl-Rip)]<Ballad, R&B>
+Deep Dive Corp. - Beats 'n' Things & Melodies (2012) [MP3|320 кб/с]<Electronic, Deep House, Downtempo>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580073.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-1. How Will I Know (Как мне узнать) 4:28
-2. All At Once (Внезапно) 4:25
-3. Take Good Care Of My Heart (Оберегай моё сердце) 4:16(   Читать дальше...   )Жанр: Ballad, R&BПродолжительность: 00:40:42
+1. Distort Me (5:47)
+2. Don't Say (P.M.FM Edit) (5:42)
+3. Guitara (5:23)
+4. Dub Up (5:06)
+5. Fired Up (6:04)
+6. All You Want (5:38)
+7. Down (6:25)
+8. Restless (5:22)
+9. About You (5:14)
+10. Coverfake (6:15)(   Читать дальше...   )Жанр: Electronic, Deep House, DowntempoПродолжительность: 1:12:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E9541BEC905037DCB3FC970D8C15A69CAB9761D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920413   (580072) от 22.07.2015
-
-Светлана Шумовская | Справочник для потеряшки (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман из цикла «Путешествия по Сумеречной Империи».
-Когда вам в руки попадает очень интересный справочник, который знает ответы на все вопросы, просто грех не начать пользоваться его советами! Он мне говорит: «Не сворачивай с дороги!» А я взяла и свернула. Он твердит: «Не спасай эльфа!» А я взяла и спасла… А все почему? Да потому что этот вредный справочник (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D17E32CBDAFEF509D1FF1C436D2866322038DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920430   (580070) от 22.07.2015
-
-Mozilla Firefox 41.0 alpha 2 (x86/x64) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Developer Edition заменяет канал Aurora в процессе разработки браузера Firefox. Как и в  Aurora, новые функции будут появлятся в релизе Developer Edition каждые шесть недель, после того как они будут стабилизированы в ночных сборках.
-При использовании версии Developer Edition, вы получаете доступ к инструментам и функциям платформы, опережающих основной релиз (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9313585E002D2C993E3B67BA5CCE7802BDEBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920448   (580069) от 22.07.2015
-
-Daum PotPlayer 1.6.55390 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA80053724F9B095DF997C65DEF65F1F2ABA434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920504   (580068) от 22.07.2015
-
-Coolmuster Android Assistant 1.9.24 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональная программа для управления файлами мобильных устройств, совместимая с большинством устройств на Android, iOS и Windows. Она синхронизирует мобильный телефон с компьютером для предоставления доступа к файлам (музыке, фотографиям, видео, приложениям, заметкам, sms-сообщениям, электронным книгам, журналам звонков и т.д.) и возможности управления ими. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E006B995229C529ED68919E2EB3F37415B2017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920426   (580066) от 22.07.2015
-
-Форсаж 7 / Furious Seven (2015) BDRip [H.264/720p] [Extended Cut]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580066.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как команда отчаянных гонщиков под предводительством Доминика Торрето уничтожила преступную банду Оуэна Шоу и вызволила из его цепких лап подружку Доминика, родной брат погибшего — Ян Шоу — мечтает отомстить. Команду, виновную в гибели Оуэна, Ян планирует жестоко покарать...Производство: USA, Japan, Universal Pictures, Media Rights Capital, China Film Co.Жанр: Боевик, Триллер, КриминалРежиссер: Джеймс ВанАктеры: Дуэйн Джонсон, Пол Уокер, Вин Дизель, Джейсон Стэтхэм, Мишель Родригес, Лукас Блэк, Джордана Брюстер, Лудакрис, Джон Сенатьемпо, Тайрез Гибсон, Анна Колвелл, Джимон Хонсу, Ронда Раузи, Бенджамин Бланкеншип, Клер Кэллэуэй, Микки Фрэнсис, Виктор Эрнандес, Роджер Херрера, Тони Джа, Натали Келлей, Тэйлор МакФерсон, Роман МитичянПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B32A01069F39DC4B6E8595605058CD46A7EA46
+magnet:?xt=urn:btih:9D7D94D8EA13E3F600528E40CDAE29B2772A7D53
 ```
 
 https://mybot314.ru/tekegram_catalog/

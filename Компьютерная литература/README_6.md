@@ -1,3 +1,112 @@
+###  Публикация: 1850070   (1053996) от 26.01.2026
+
+Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Automation (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053996.jpg" />
+</div>
+
+
+###  Подробнее
+
+In this era of advanced programming languages, the simplicity, universality, and efficiency of Batch scripting holds undeniable value.
+
+Whether you’re maintaining legacy systems or seeking to understand the foundations of command line automation, The Book of Batch Scripting shows you how to become proficient with this tool included in every version of Windows.
+(   Читать дальше...   )Жанр: Computer Network Administration, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850067   (1053995) от 26.01.2026
+
+Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power BI. Simpler AI for the Enterprise (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advance your Power BI skills by adding AI to your repertoire at a practice level. With this practical book, business-oriented software engineers and developers will learn the terminologies, practices, and strategy necessary to successfully incorporate AI into your business intelligence estate. Jen Stirrup, CEO of AI and BI leadership consultancy Data Relish, and (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850066   (1053994) от 26.01.2026
+
+Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Out. 3rd Edition (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Conquer Microsoft 365 administration, from the inside out!
+
+Dive into Microsoft 365 administration and harness the full power of cloud scaling, automation, and availability in Microsoft 365! This supremely well-organized reference packs hundreds of time-saving solutions, tips, and workarounds; all you need to continually enhance organizational agility, productivity, (   Читать дальше...   )Жанр: Client-Server Networking Systems, Software Suite Books, Microsoft Office GuidesЯзык: АнглийскийИздательство: Microsoft PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39E63F0F0D36C48D5BE5216AC0C4CBBF76728AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850065   (1053993) от 26.01.2026
+
+В.С. Мхитарян, В.Ф. Шишов, А.Ю. Козлов | Анализ данных в MS Excel. Учебное пособие. Основные сведения о MS Excel. Статистические таблицы и графики. Статистические функции. Пакет анализа (анализ дан ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит подробное описание «Статистических функций» и средств анализа данных (инструментов) «Пакета анализа», входящих в настоящее время в MS Excel. В пособии также изложены сведения по основам работы в Excel, представлению первичной статистической информации в виде статистических таблиц и графиков; рассмотрены теоретические основы статистических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КУРСФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A9A29D66C65CB169E09CE057FB2AF2260D4A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849350   (1053555) от 22.01.2026
 
 Zunaira Babar, Daryus Chandra, Soon Xin Ng и др. | From Classical to Quantum Coding (2026) [PDF] [EN]
@@ -572,113 +681,6 @@ Whether you’re new to the Mac or have been using one for a while, Mac ‒ The 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088206451851381230309B94A7B0C683B7A712A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849097   (1053231) от 21.01.2026
-
-Chris Fregly | AI Systems Performance Engineering. Optimizing Model Training and Inference Workloads with GPUs, CUDA, and PyTorch (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elevate your AI system performance capabilities with this definitive guide to maximizing efficiency across every layer of your AI infrastructure. In today's era of ever-growing generative models, AI Systems Performance Engineering provides engineers, researchers, and developers with a hands-on set of actionable optimization strategies. Learn to co-optimize hardware, (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849095   (1053230) от 21.01.2026
-
-Priyanka Vergadia, Valliappa Lakshmanan | Visualizing Generative AI. How AI Paints, Writes, and Assists (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI has the potential to innovate and evolve business processes, but workers are still figuring out how to build with, optimize, and prompt GenAI tools to fit their needs. And of course, there are pitfalls to avoid, like security risks and hallucinations. Getting it right requires an intuitive understanding of the technology’s capabilities and limitations. (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9D20864D3E05062088489C327A1CC836C32FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849063   (1053228) от 21.01.2026
-
-John Paul Mueller, Luca Massaron, Stephanie Diamond | Artificial Intelligence For Dummies. 3rd Edition (2025) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dive into the intelligence that powers artificial intelligence
-
-Artificial intelligence is swiftly moving from a sci-fi future to a modern reality. This edition of Artificial Intelligence For Dummies keeps pace with the lighting-fast expansion of AI tools that are overhauling every corner of reality. This book demystifies how artificial intelligence systems operate, (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектЯзык: АнглийскийИздательство: John Wiley & Sons, Inc.Формат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E983CFAFA9AF08C686D459750E235881CBB152AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849061   (1053227) от 21.01.2026
-
-Chris Minnick | Artificial Intelligence All-in-One (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053227.jpg" />
-</div>
-
-
-###  Подробнее
-
-A comprehensive roadmap to using AI in your career and in your life.
-Artificial Intelligence is everywhere. Major software organizations like Microsoft, Google, and Apple have built AI directly into products and invited the world to become part of the AI revolution. And it's impossible to use these tools to their fullest potential without understanding the basics (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: John Wiley & Sons, Inc.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD56D35BABA53A07DC8BA64218E695761D33F5AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

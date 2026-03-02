@@ -1,3 +1,177 @@
+###  Публикация: 1266831   (269207) от 03.12.2018
+
+VA - Trance Pure (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amitacek - Blonde in Violet (Radio Mix)
+02. Air-T - Moments of Life (Radio Summer Mix)
+03. Damis - Balisto
+04. Miky - Nomad (Club Mix Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9715E786AE798AF1B078B7869879F1EDCB4C5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338630   (269004) от 16.11.2019
+
+Misja Helsloot - WhatTheHelsloot (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Misja - E-mocean (Misja Helsloot Deep Remix) (6:21)
+02. Sean Dexter - Synthetica (Misja Helsloot Deep Remix) (7:26)
+03. AxelPolo & Misja Helsloot presents Dark Echo - Apache (2:58)
+04. Misja Helsloot with Cari - See the Sun Again (3:54)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50470576F45546A42A1E72EF0F9358FF3C3BE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266912   (268413) от 04.12.2018
+
+VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren vs Shapov – The Last Dancer (Extended Mix)
+02. Cosmic Gate & Emma Hewitt – Tonight (Allen Watts Extended Remix)
+03. Richard Durand – The Air I Breathe (Extended Mix)
+04. Shane 54 And Jonathan Mendelsohn – Return To Love (Cubicore Extended Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4588A59930F6AA8EE68505F855434B86B7D8D6E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190056   (267146) от 10.12.2017
+
+VA - Tranceiology: Trance Music Contest (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Devciio  -  Funjoylife (Original Mix)  5:51
+02.  Attila Syah  -  Interstellar (Original Mix)  5:20
+03.  Victor Andro & Fatal Brightness Alex  -  Wonderful Thought (Original Mix)  4:45
+04.  Pulse Nation Project  -  Your Heart (Original Mix)  5:41(   Читать дальше...   )Жанр: TranceПродолжительность: 04:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E21EB5C4DA23C9B81A1E59E879FBAF0B1DDAB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189980   (267145) от 10.12.2017
+
+VA - Damaged Records - Best of 2017 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jordan Suckley & Kutski – Surveillance (05:23)
+02. Sam Jones – Freakout (06:04)
+03. Cold Blue & Johnny Yono – Fall Into Dusk (06:48)
+04. William Daniel & Fu2ra – Machine Language (06:39)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D382E9C2ED7D72175368579D9045CC804475965A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190020   (267143) от 10.12.2017
+
+VA - The Sound Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ben Ashley  -  Paradise (Original Mix)  7:13
+02.  Etamin  -  Covenant (Original Mix)  7:53
+03.  Max Freegrant & Brandon Hills  -  War Goes On (Sodality Remix)  6:00
+04.  Michael Milov  -  Cosmophobia (Original Mix)  2:53(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AF077FEB84FC391DAE7692B47826F28CE9B3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190048   (267141) от 10.12.2017
 
 VA - Suanda Music: Track Of The Week - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
@@ -571,180 +745,6 @@ VA - Alter Ego: Best Of 2017 (Mixed by Luigi Palagano & Duncan Newell) (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101136174F3DA1379828C19CAA56BA5EBD0808A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192461   (263254) от 17.12.2017
-
-VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thick As Thieves - Any Time (Original Mix)
-02 Mark Sherry - Imbecile (Original Mix)
-03 Stuart Ferguson - Rellik (Original Mix)
-04 Ikorus - Suplex (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F2EBD110BD5FDCAC3D566C992E110701B93FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192522   (263251) от 17.12.2017
-
-VA - The Best Of Pulsar (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Groove - Thunderstorm (original mix)
-02. AEG - Always In My Memories (original mix)
-03. Volmax - Near Reality (James Kitcher remix)
-04. Sound Apparel - Dream (2017 Remaster)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4237E13B119A3790B45DA7A61F046A834E8C505E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192577   (263246) от 17.12.2017
-
-VA - Alter Ego: Progressive Best Of 2017 (Mixed by Luigi Palagano) (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanski - Sirens (radio edit)
-02. Varun & Inge Lemon - Velour (radio edit)
-03. ARChima - Skyfall (radio edit)
-04. Metroom - Inside (radio edit)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD5904988E99E3E5A81D5476EBDBD923B49CECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192690   (262841) от 18.12.2017
-
-VA - Extrema Global Music Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroki Nagamine - Eien (Radio Edit)
-02. 4 Seas - Sagra (Radio Edit)
-03. Peter Martijn Wijnia - Carpe Diem (Temple One Remix Edit)
-04. Mike Sanders - Love Your Life (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1DBE19C68F43D36D02F7D6F5572B8C89131E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192772   (262271) от 20.12.2017
-
-VA - The Best Of Suanda Dark (Mixed by  Roman Messer) (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attila Syah presents Gamma (Ind)  -  Hello Earth (Radio Edit)  3:21
-02.  Vadim Spark  -  Surrender To Me (Original Mix)  3:27
-03.  Roman Messer & Ruslan Radriges  -  Stronghold (Attila Syah pres. Gamma Radio Edit)  2:47
-04.  F.G. Noise & Axel Walters  -  Target On Fire (Original Mix)  3:31(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22F96E871575AA17B0030E0DFB4AA75417D384E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192854   (262270) от 20.12.2017
-
-NX-Trance - Angst: The Seventh Album (2017) [MP3|320 Kbps] <Trance, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Angst (Intro)  2:05
-02.  Blackout (Original Mix)  8:10
-03.  Whiplash (Original Mix)  8:00
-04.  Threshold (Original Mix)  8:02(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE90001FB9A56DA90CC6F975264F175B2935D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

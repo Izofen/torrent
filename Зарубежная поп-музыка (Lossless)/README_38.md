@@ -1,3 +1,119 @@
+###  Публикация: 1224676   (664868) от 11.05.2018
+
+John Travolta - John Travolta (1998) 2001 Compilation, Reissue [FLAC|Lossless|image + .cue] <Ballad, Rock & Roll, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.		All Strung Out On You
+2.		Big Trouble
+3.		Greased Lightnin'
+4.		Let Her In(   Читать дальше...   )Жанр: Ballad, Rock & Roll, Pop RockПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF11DD7CCA0A81B840E2251F78A48CBEF310412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224631   (664862) от 11.05.2018
+
+The New Seekers - The Best Of The New Seekers (2000) [FLAC|Lossless|image + .cue] <Pop, Ballad, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I get a little sentimental over you
+  2. You won't find another foll like me
+  3. Fire and rain
+  4. All Right My Love(   Читать дальше...   )Жанр: Pop, Ballad, Easy ListeningПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDD03B60C8C36A747369B3BC7A2B47BC02B8C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138535   (664214) от 29.05.2017
+
+Stars On 45 Proudly Presents The Star Sisters - Tonight ! 20.00 Hrs. Remix (2007) [FLAC|Lossless|image + .cue] <Europop, Schlager, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Sisters Remix 2007  (03:44) 
+02. A Tribute To Marilyn Monroe  (04:23) 
+03. Alexander's Ragtime Band  (03:07) 
+04. Cry Me A River  (03:53) (   Читать дальше...   )Жанр: Europop, Schlager, EurodanceПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4637E5D81BCF9496F545ED64B2A31EAEF047C25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538002   (663289) от 20.03.2022
+
+VA - Delicious Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5 - Sugar
+02. OneRepublic - Counting Stars
+03. Shawn Mendes - There's Nothing Holdin' Me Back
+04. Katy Perry - The One That Got Away(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE77C0CA1ADAD43F30C0E133803F7E50088C1CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138977   (661292) от 01.06.2017
 
 Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
@@ -625,119 +741,6 @@ The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141745   (648497) от 11.06.2017
-
-Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. İsyancı
-2. Baba Evi
-3. İhanetten Geri Kalan
-4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541291   (646938) от 02.04.2022
-
-Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Bury Me 3:55
-02. Wouldn't That Be Lovely 1:39
-03. We All Fall Down 2:22
-04. Tonight 0:31(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292458   (646920) от 29.03.2019
-
-Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas in L.A. (feat. The Tinseltown Tabernacle Choir) (4:15)Жанр: PopПродолжительность: 00:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541151   (646852) от 02.04.2022
-
-Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Womanizer
-02. Circus
-03. Out From Under
-04. Kill The Lights(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAEEDE1C98C1897368BAE0B6894A1A02A8DB7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

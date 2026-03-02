@@ -1,32 +1,3 @@
-###  Публикация: 1460742   (1022479) от 06.04.2021
-
-Martine - Martine (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Progressive Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bones (7:40)
-02. Onani L'amorce (1:39)
-03. Onani (6:51)
-04. Running Goose (6:57)(   Читать дальше...   )Жанр: Jazz-Rock, Progressive RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1AB4B894C3684DED0DF56B4FB7ED15E4B3473A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460724   (1022404) от 06.04.2021
 
 Louis Mezzasoma - Mercenary (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -745,6 +716,35 @@ Pete Wain - When the Blues Get You Baby (2021) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE06E06EC727552AAD97F431893151D6A9391872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461801   (1021532) от 11.04.2021
+
+Popa Chubby - Tinfoil Hat (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinfoil Hat (4:07)
+02. Baby Put On Your Mask (2:45)
+03. No Justice No Peace (5:06)
+04. Someday Soon (Change Is Gonna Come) (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B447073BA2A00A91DE8DF90D998F25E66106C79A
 ```
 
 https://mybot314.ru/tekegram_catalog/

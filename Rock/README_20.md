@@ -1,3 +1,61 @@
+###  Публикация: 1199117   (802933) от 14.01.2018
+
+Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 Kbps] <Psych-Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prologue
+2. Right On, Fight On
+3. Portobello Shuffle
+4. Marilyn(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5239B6CF52F50B4BCD83AD5C2F5E3786CE4F747D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120467   (802117) от 31.03.2017
+
+OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfall (04:45)
+Desire (03:16)
+The First Cut (03:25)
+Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010785   (802074) от 25.04.2016
 
 Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
@@ -687,64 +745,6 @@ The Zombies - Odessey And Oracle (1968) Reissue, 1987, Rhino Records [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EEAFD249A38A7DE9F4FC3B9F784899CA27EC3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274069   (794985) от 05.01.2019
-
-Sweet - The Rainbow - Live In The UK 1973 (2018) [MP3|320 Kbps] <Glam Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stripper (Intro)
-02. Hell Raiser
-03. Burning / Someone Else Will
-04. Rock’n Roll Disgrace(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895A628A98B9656383DABA9F0A24B25AD06664B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200765   (794974) от 22.01.2018
-
-Walking Papers - WP2 (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Luck Pushed Back (03:54)
-02. Death On The Lips (04:29)
-03. Red & White (05:47)
-04. Somebody Else (03:42)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F42B24F14256E7EEF14676C8876E7263B01F88C
 ```
 
 https://mybot314.ru/tekegram_catalog/
